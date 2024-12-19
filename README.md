@@ -775,4 +775,4 @@ of what occurs from the artificial axiom in the degrees of distance,
 metaphysical in some instances, for the "self" to develop its own 
 truths, of artificial axiom, on top of the constant that does not 
 always require the consideration of the "self" through expression 
-by the "self" on the truths' existences and plausibilities.  
+by the "self" on the constants' existences and plausibilities.  
