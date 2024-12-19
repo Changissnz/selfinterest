@@ -781,7 +781,7 @@ the constants that do not always require the consideration
 of the "self", through expression by the "self" on the constants' 
 existences and plausibilities. There is no centrality of the word 
 that is not another word in a self-contained construct, what the 
-source of expressing Aristotelian logic originally is without 
+source of the expressing of Aristotelian logic originally is without 
 application, and this the "self" is responsible for confirmation 
 and belief through their own application.  
 
