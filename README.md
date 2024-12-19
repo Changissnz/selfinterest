@@ -719,12 +719,12 @@ under. The previous statement is so obvious that it means nothing for
 the pragmatics of additional development on top of the present infrastructure 
 that is the utility of knowledge for the methodologies and material constructs. 
 The statement could very well be spun by interpretation for words of 
-analogous assortment for meanings outside of the bluntness, perhaps 
+analogous assortment, for meanings outside of the bluntness, perhaps 
 something sharp or witty to please the humors, cracking smiles on all of 
 those faces, or something that is a patronizing remark on the follies of 
 introspection that could have taken many years only to miss the mark by 
 many immeasurable distances. Additionally, the statement could be interpreted 
-as a call to deconstruct understanding right down the axiom, which then 
+as a call to deconstruct understanding right down to the axiom, which then 
 would not demand much words to be used, leaving sentient existence little 
 else to do but the predominantly physical. Herein lies more issues with the 
 usage of the word. The word, as used for ultimate consideration, must 
@@ -773,4 +773,5 @@ with, and also the quantification of what occurs from the artificial axiom
 in the degrees of distance, metaphysical in some instances, for the 
 "self" to develop its own truths, of artificial axiom, on top of the 
 constant that does not always require the consideration of the "self" 
-through expression by the "self" on their existence. 
+through expression by the "self" on the truths' existences and 
+plausibilities.  
