@@ -769,8 +769,8 @@ essentially axiom. Similarly, Aristotelian logic places the word,
 outside of smallest difference to the axiom, in the way of an orientation 
 alongside the counterpart words to the word. And these words cannot 
 be immediately discredited in and of themselves, because every word 
-is a unit for natural language, the consensus for the mapping between 
-sound and concatenation of letters or strokes to meaning, although 
+is a unit for natural language, the consensus for the mapping of 
+sound or concatenated writing strokes to meaning, although 
 every word could be described in additional words. For these words, 
 references to them, these references found predominantly in the 
 measurable spatiotemporal contexts, are what is required to prove 
