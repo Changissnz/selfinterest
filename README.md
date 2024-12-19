@@ -683,19 +683,20 @@ as adjectives and more lengthy forms of accounting that may have their usage res
 completely on arbitrariness. But for the sake of comprehension, every accounting 
 tool of adjective or lengthier forms have references in counterpart or identity 
 of medians and extremums, but with no guarantee of its correct usage by the will 
-of the "self". And thus, social theory does not depend entirely on the natural 
-law of axioms because it is attempted understanding and depiction of preferences 
-in sentient decisions and other qualities in selected spatiotemporal contexts. 
-Social theory advances statements that rest on the preference of subjectivity. 
-In order for the social theory to yield effects greater than cognitive 
-processing of its forms of marketing such as through educative means, meaning 
-the social theory necessarily has to become a fixture for a social construct or 
-even become an entire social construct, certain statements of the social theory 
+of the "self". And thus, social theory does not depend entirely on natural 
+law of axioms because it is attempted understanding, depiction, and replication 
+of preferences in sentient decisions and other qualities in selected spatiotemporal 
+contexts. Social theory advances statements that rest on the preference of 
+subjectivity. In order for the social theory to yield effects greater than 
+cognitive processing of its forms of marketing such as through educative means, 
+meaning the social theory necessarily has to become a fixture for a social construct 
+or even become an entire social construct, certain statements of the social theory 
 have to be treated as axioms, something more than an assumption for the 
-convenience of no effort of proof through interaction or observation. But 
+convenience of no effort of proof by interaction or observation. But 
 statements of social theory seldom rest on natural law, so cannot be axioms, 
 certainly processed through cognition they can be recognized as axioms though. 
 The intent of any social theory is to produce artificial axioms that may as 
-well be axioms, always through the will that believes the artificial axiom 
-and designs according to the calculated means for its success and duration in 
-the social setting that is supposed to be a social construct for the social theory. 
+well be axioms, always through the will can there be belief the artificial 
+axiom and designs according to the calculated means for its success and 
+duration in the social setting that is supposed to be a social construct 
+for the social theory. 
