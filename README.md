@@ -642,14 +642,15 @@ one that is unsplittable, for then there cannot be any chain reaction started fr
 # More on philosophies of self-interest #19 
 
 The practice of self-interest has always had a curious relationship with 
-social theory. Atomize the human, call them an individual but treat them as 
-if they were a disconnected part from the whole, for what they are perceived to 
-be after, before, or on top of the social theory applied onto them. Social theory 
-is convenient for self-interest to not acknowledge if some conditions are satisfied. 
-The basic physical demands, food and water, for the host of self-interest are met in 
-full. Then there is the question of socio-economic perception of the host, according 
-to the metrical comparison of expected and actual. Social theory, put into practice by 
-a piecewise selection of all social theory ever conceptualized onto paper or not, is 
+social theory. Treat the human in the way of a lone atom, call them an 
+individual but do them as if they were a disconnected part from the whole, 
+for what they are perceived to be after, before, or on top of the social 
+theory applied onto them. Social theory is convenient for self-interest to not 
+acknowledge if some conditions are satisfied. The basic physical demands, food 
+and water, for the host of self-interest are met in full. Then there is the 
+question of socio-economic perception of the host, according to the metrical 
+comparison of expected and actual. Social theory, put into practice by a 
+piecewise selection of all social theory ever conceptualized onto paper or not, is 
 what is essentially the social construct. The concept that is a "social construct", 
 in turn, leads to misconception of its comprehension, and obviously, through its use 
 produces misconceptions. The social construct is not material. The social construct is 
