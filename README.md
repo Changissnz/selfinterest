@@ -769,17 +769,19 @@ essentially axiom. Similarly, Aristotelian logic places the word,
 outside of smallest difference to the axiom, in the way of an orientation 
 alongside the counterpart words to the word. And these words cannot 
 be immediately discredited in and of themselves, because every word 
-is a unit for natural language, although every word could be described 
-in additional words. For these words, references to them, these 
-references found predominantly in the measurable spatiotemporal contexts, 
-are what is required to prove that the word fits, through the 
-discrimination of application. There is an innate imprecision from 
-the preference of word use the "self" has to contend with, and also 
-decisions of quantifying what occurs from the declared artificial axiom, 
-necessarily constructed beforehand, in the degrees of distance, 
-metaphysical in some instances, for the "self" to develop their own 
-truths, of artificial axiom, on top of the constants that do not 
-always require the consideration of the "self", through expression 
+is a unit for natural language, the consensus for the mapping between 
+sound and concatenation of letters or strokes to meaning, although 
+every word could be described in additional words. For these words, 
+references to them, these references found predominantly in the 
+measurable spatiotemporal contexts, are what is required to prove 
+that the word fits, through the discrimination of application. 
+There is an innate imprecision from the preference of word use 
+the "self" has to contend with, and also decisions of quantifying 
+what occurs from the declared artificial axiom, necessarily 
+constructed beforehand, in the degrees of distance, metaphysical 
+in some instances, for the "self" to develop their own truths, 
+of artificial axiom, on top of the constants that do not always 
+require the consideration of the "self", through expression 
 by the "self" on the constants' existences and plausibilities. There 
 is no centrality of the word that is not another word in a self-contained 
 construct, what the source of the expressing of Aristotelian logic 
