@@ -766,14 +766,23 @@ to the axiom, the constant. There would be nothing else to question,
 only to take the work as a wholesome artificial axiom because it is 
 essentially axiom. Similarly, Aristotelian logic places the word, 
 outside of smallest difference to the axiom, in the way of an orientation 
-alongside the counterpart words to the word. For these words, references 
-to them, these references found predominantly in the measurable 
-spatiotemporal contexts, are what is required to prove that the word 
-fits, through the discrimination of application. There is an innate 
-imprecision from the preference of word use the "self" has to contend 
-with, and also decisions of quantifying what occurs from the artificial 
-axiom in the degrees of distance, metaphysical in some instances, 
-for the "self" to develop its own truths, of artificial axiom, on 
-top of the constant that does not always require the consideration 
+alongside the counterpart words to the word. And these words cannot 
+be immediately discredited in and of themselves, because every word 
+is a unit for natural language, although every word could be described 
+in additional words. For these words, references to them, these 
+references found predominantly in the measurable spatiotemporal contexts, 
+are what is required to prove that the word fits, through the 
+discrimination of application. There is an innate imprecision from 
+the preference of word use the "self" has to contend with, and also 
+decisions of quantifying what occurs from the artificial axiom in 
+the degrees of distance, metaphysical in some instances, for the 
+"self" to develop its own truths, of artificial axiom, on top of 
+the constants that do not always require the consideration 
 of the "self", through expression by the "self" on the constants' 
-existences and plausibilities.  
+existences and plausibilities. There is no centrality of the word 
+that is not another word in a self-contained construct, what the 
+source of expressing Aristotelian logic is, and this the "self" 
+is responsible for confirmation and belief. 
+
+# More on philosophies of self-interest #21 
+
