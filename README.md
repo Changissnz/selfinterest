@@ -759,19 +759,20 @@ on the word. Presumptions are constructed, expectations are demanded
 for order. Aristotelian logic used to systematize the metaphysical, 
 a great part of this being the potential, of a sentient being is 
 typically not subjective by intrinsic analyses. The composition of 
-works in Aristotelian logic rely on the axiom, so to dissect these 
-words right down the axiom would result in the axiom, the constant. 
-There would be nothing else to question, only to take the work as a 
-wholesome artificial axiom because it is essentially axiom. Similarly, 
-Aristotelian logic places the word, outside of smallest difference 
-to the axiom, in the way of an orientation alongside the counterpart 
-words to the word. For these words, references to them, these references 
-found predominantly in the measurable spatiotemporal contexts, are 
-what is required to prove that the word fits. There is an innate 
-imprecision from the preference of word use the "self" has to contend 
-with, and also the quantification of what occurs from the artificial axiom 
-in the degrees of distance, metaphysical in some instances, for the 
-"self" to develop its own truths, of artificial axiom, on top of the 
-constant that does not always require the consideration of the "self" 
-through expression by the "self" on the truths' existences and 
-plausibilities.  
+works in Aristotelian logic rely on the axiom, so to dissect the 
+relational arrangements of these words right down the axiom would 
+result in the axiom, the constant. There would be nothing else to 
+question, only to take the work as a wholesome artificial axiom 
+because it is essentially axiom. Similarly, Aristotelian logic places 
+the word, outside of smallest difference to the axiom, in the way 
+of an orientation alongside the counterpart words to the word. 
+For these words, references to them, these references found 
+predominantly in the measurable spatiotemporal contexts, are 
+what is required to prove that the word fits, through the discrimination 
+of application. There is an innate imprecision from the preference 
+of word use the "self" has to contend with, and also the quantification 
+of what occurs from the artificial axiom in the degrees of distance, 
+metaphysical in some instances, for the "self" to develop its own 
+truths, of artificial axiom, on top of the constant that does not 
+always require the consideration of the "self" through expression 
+by the "self" on the truths' existences and plausibilities.  
