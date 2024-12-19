@@ -760,9 +760,9 @@ for order. Aristotelian logic used to systematize the metaphysical,
 a great part of this being the potential, of a sentient being is 
 typically not subjective by intrinsic analyses. The composition of 
 works in Aristotelian logic rely on the axiom, so to dissect the 
-relational arrangements of these words right down the axiom, without 
-the external reference, would directly result in a downward fashion 
-to the axiom, the constant. There would be nothing else to question, 
+relational arrangements of these words, without the external 
+reference, would directly result in a downward fashion to the 
+axiom, the constant. There would be nothing else to question, 
 only to take the work as a wholesome artificial axiom because it is 
 essentially axiom. Similarly, Aristotelian logic places the word, 
 outside of smallest difference to the axiom, in the way of an orientation 
