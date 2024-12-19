@@ -774,16 +774,17 @@ references found predominantly in the measurable spatiotemporal contexts,
 are what is required to prove that the word fits, through the 
 discrimination of application. There is an innate imprecision from 
 the preference of word use the "self" has to contend with, and also 
-decisions of quantifying what occurs from the artificial axiom in 
-the degrees of distance, metaphysical in some instances, for the 
-"self" to develop their own truths, of artificial axiom, on top of 
-the constants that do not always require the consideration 
-of the "self", through expression by the "self" on the constants' 
-existences and plausibilities. There is no centrality of the word 
-that is not another word in a self-contained construct, what the 
-source of the expressing of Aristotelian logic originally is without 
-application, and this places responsibility onto the "self" for 
-confirmation and belief through their own application.  
+decisions of quantifying what occurs from the declared artificial axiom, 
+necessarily constructed beforehand, in the degrees of distance, 
+metaphysical in some instances, for the "self" to develop their own 
+truths, of artificial axiom, on top of the constants that do not 
+always require the consideration of the "self", through expression 
+by the "self" on the constants' existences and plausibilities. There 
+is no centrality of the word that is not another word in a self-contained 
+construct, what the source of the expressing of Aristotelian logic 
+originally is without application, and this places responsibility 
+onto the "self" for confirmation and belief through their own 
+application.  
 
 # More on philosophies of self-interest #21 
 
