@@ -776,7 +776,7 @@ discrimination of application. There is an innate imprecision from
 the preference of word use the "self" has to contend with, and also 
 decisions of quantifying what occurs from the artificial axiom in 
 the degrees of distance, metaphysical in some instances, for the 
-"self" to develop its own truths, of artificial axiom, on top of 
+"self" to develop their own truths, of artificial axiom, on top of 
 the constants that do not always require the consideration 
 of the "self", through expression by the "self" on the constants' 
 existences and plausibilities. There is no centrality of the word 
