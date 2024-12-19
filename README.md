@@ -685,18 +685,92 @@ tool of adjective or lengthier forms have references in counterpart or identity
 of medians and extremums, but with no guarantee of its correct usage by the will 
 of the "self". And thus, social theory does not depend entirely on natural 
 law of axioms because it is attempted understanding, depiction, and replication 
-of preferences in sentient decisions and other qualities in selected spatiotemporal 
-contexts. Social theory advances statements that rest on the preference of 
-subjectivity. In order for the social theory to yield effects greater than 
-cognitive processing of its forms of marketing such as through educative means, 
-meaning the social theory necessarily has to become a fixture for a social construct 
-or even become an entire social construct, certain statements of the social theory 
-have to be treated as axioms, something more than an assumption for the 
-convenience of no effort of proof by interaction or observation. But 
-statements of social theory seldom rest on natural law, so cannot be axioms, 
-certainly processed through cognition can they be recognized as axioms though. 
-The intent of any social theory is to produce artificial axioms that may as 
-well be axioms, always through the will can there be belief in the artificial 
-axiom and designs in accordance with the calculated means for its success and 
-duration in the social setting that is supposed to be a social construct 
-for the social theory. 
+of preferences in sentient decisions and other qualities for selected 
+spatiotemporal contexts. Social theory advances statements that rest on the 
+preference of subjectivity. In order for the social theory to yield effects 
+greater than cognitive processing of its forms of marketing such as through 
+educative means, meaning the social theory necessarily has to become a fixture 
+for a social construct or even become an entire social construct, certain 
+statements of the social theory have to be treated as axioms, something more 
+than an assumption for the convenience of no effort of proof by interaction 
+or observation. But statements of social theory seldom rest on natural law, 
+so cannot be axioms, certainly processed through cognition can they be 
+recognized as axioms though. The intent of any social theory is to produce 
+artificial axioms that may as well be axioms, always through the will can 
+there be belief in the artificial axiom and designs in accordance with the 
+calculated means for its success and duration in the social setting that 
+is supposed to be a social construct for the social theory. 
+
+# More on philosophies of self-interest #20
+
+The word, as used to label the metaphysical, serves as an identifier for 
+that what is labeled. There are limits in pragmatics, outside of the use 
+of the word for cognitive processing, not to underestimate the effect of 
+cognitive processing on the same internalist mechanisms that produce it, 
+let alone the effects of cognitive processing as triggers for measurable 
+biological function that may slip out of the control of the self's will, 
+and for decisions as outward actions. The word then cannot be anymore than 
+a medium, a symbol for interpretation. For an entire society to be able 
+to think and do nothing without words is a society doomed to fail. There 
+is only the translation and transcription. Where is the primal cause that 
+is exactly one unit of smallest difference to the axiom? A society that 
+is heavily reliant on the word cannot be advanced unless there is something 
+under. The previous statement is so obvious that it means nothing for 
+the pragmatics of additional development on top of the present infrastructure 
+that is the utility of knowledge for the methodologies and material constructs. 
+The statement could very well be spun by interpretation for words of 
+analogous assortment for meanings outside of the bluntness, perhaps 
+something sharp or witty to please the humors, cracking smiles on all of 
+those faces, or something that is a patronizing remark on the follies of 
+introspection that could have taken many years only to miss the mark by 
+many immeasurable distances. Additionally, the statement could be interpreted 
+as a call to deconstruct understanding right down the axiom, which then 
+would not demand much words to be used, leaving sentient existence little 
+else to do but the predominantly physical. Herein lies more issues with the 
+usage of the word. The word, as used for ultimate consideration, must 
+consider all span/s of possibilities, synonymously any thing that lies in 
+any pair of extrema for the topic/s. Then when the time for action through 
+preference is demanded, the entire span/s cannot possibly be acted on in 
+full. The word is used to produce replication of understanding and awareness 
+of said understanding, but as for the "self", the "self" has always been 
+the one responsible for making use of the word. The "self" does not 
+understand the word without the experience, and the experience cannot 
+happen without the capability of the host belonging to the "self". 
+Capability can be engineered outside of the control of the "self" for 
+the "self". It is themes from this that helped to produced some of the 
+most heartfelt literature and social dynamics, from an emotive perspective. 
+To take the word as a uni-directed meaning that rests on assumptions 
+through interpretation, void of consideration for the directionality 
+of the will that resulted in the use, and the intended effects of that 
+usage, is something personal to the "self". And the "self" that feels 
+obliged to reciprocate does so in ways also perceived to be heartfelt, 
+from an emotive perspective. This is subjectivity that cannot be rationally 
+disputed through attempts to be objective on the immeasurable. The 
+cause for the appearance and the behavior from metaphysical matters, 
+such as interpretation of the word, is something that has to be taken 
+in full after whatever skepticism and inquiries were conducted on the 
+perception, in order for credibility of belief to persist. There is 
+a gap in explanation by the word. Essentially, any interaction between 
+selves produce something like an axiom, specifically an artificial 
+axiom, that serves as a generality for the image of understanding 
+greater than the axiom, the constant. The "self" is understood by 
+others that are outside the realm of immediate perception depend 
+on the word. Presumptions are constructed, expectations are demanded 
+for order. Aristotelian logic used to systematize the metaphysical, 
+a great part of this being the potential, of a sentient being is 
+typically not subjective by intrinsic analyses. The composition of 
+works in Aristotelian logic rely on the axiom, so to dissect these 
+words right down the axiom would result in the axiom, the constant. 
+There would be nothing else to question, only to take the work as a 
+wholesome artificial axiom because it is essentially axiom. Similarly, 
+Aristotelian logic places the word, outside of smallest difference 
+to the axiom, in the way of an orientation alongside the counterpart 
+words to the word. For these words, references to them, these references 
+found predominantly in the measurable spatiotemporal contexts, are 
+what is required to prove that the word fits. There is an innate 
+imprecision from the preference of word use the "self" has to contend 
+with, and also the quantification of what occurs from the artificial axiom 
+in the degrees of distance, metaphysical in some instances, for the 
+"self" to develop its own truths, of artificial axiom, on top of the 
+constant that does not always require the consideration of the "self" 
+through expression by the "self" on their existence. 
