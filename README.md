@@ -730,32 +730,33 @@ else to do but the predominantly physical. Herein lies more issues with the
 usage of the word. The word, as used for ultimate consideration, must 
 consider all span/s of possibilities, synonymously any thing that lies in 
 any pair of extrema for the topic/s. Then when the time for action through 
-preference is demanded, the entire span/s cannot possibly be acted on in 
-full. The word is used to produce replication of understanding and awareness 
-of said understanding, but as for the "self", the "self" has always been 
-the one responsible for making use of the word. The "self" does not 
-understand the word without the experience, and the experience cannot 
-happen without the capability of the host belonging to the "self". 
-Capability can be engineered outside of the control of the "self" for 
-the "self". It is themes from this that helped to produced some of the 
-most heartfelt literature and social dynamics, from an emotive perspective. 
-To take the word as a uni-directed meaning that rests on assumptions 
-through interpretation, void of consideration for the directionality 
-of the will that resulted in the use, and the intended effects of that 
-usage, is something personal to the "self". And the "self" that feels 
-obliged to reciprocate does so in ways also perceived to be heartfelt, 
-from an emotive perspective. This is subjectivity that cannot be rationally 
-disputed through attempts to be objective on the immeasurable. The 
-cause for the appearance and the behavior from metaphysical matters, 
-such as interpretation of the word, is something that has to be taken 
-in full after whatever skepticism and inquiries were conducted on the 
+preference is demanded, this being how the will of the sentient shows itself, 
+the entire span/s cannot possibly be acted on in full. The word is used to 
+produce replication of understanding and awareness of said understanding, 
+but as for the "self", the "self" has always been the one responsible 
+for making use of the word. The "self" does not understand the word without 
+the experience, and the experience cannot happen without the capability 
+of the host belonging to the "self". Capability can be engineered outside 
+of the control of the "self" for the "self". It is themes from this that 
+helped to produced some of the most heartfelt literature and social 
+dynamics, from an emotive perspective. To take the word as a uni-directed 
+meaning that rests on assumptions through interpretation, void of 
+consideration for the directionality of the will that resulted in 
+the use, and the intended effects of that usage, is something personal 
+to the "self". And the "self" that feels obliged to reciprocate does 
+so in ways also perceived to be heartfelt, from an emotive perspective. 
+This is subjectivity that cannot be rationally disputed through 
+attempts to be objective on the immeasurable. The cause for the 
+appearance and the behavior from metaphysical matters, such as 
+interpretation of the word, is something that has to be taken in 
+full after whatever skepticism and inquiries were conducted on the 
 perception, in order for credibility of belief to persist. There is 
 a gap in explanation by the word. Essentially, any interaction between 
 selves produces something like an axiom, specifically an artificial 
 axiom, that serves as a generality for the image of understanding 
-greater than the axiom, the constant. The "self" is understood by 
-others that are outside the realm of immediate perception depend 
-on the word. Presumptions are constructed, expectations are demanded 
+greater than the axiom, the constant. The "self" is understood, 
+through use of the word, by others outside the realm of immediate 
+perception. Presumptions are constructed, expectations are demanded 
 for order. Aristotelian logic used to systematize the metaphysical, 
 a great part of this being the potential, of a sentient being is 
 typically not subjective by intrinsic analyses. The composition of 
