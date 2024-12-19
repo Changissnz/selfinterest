@@ -706,7 +706,7 @@ is supposed to be a social construct for the social theory.
 The word, as used to label the metaphysical, serves as an identifier for 
 that what is labeled. There are limits in pragmatics, outside of the use 
 of the word for cognitive processing, not to underestimate the effect of 
-cognitive processing on the same internalist mechanisms that produce it, 
+cognitive processing on the same internalist mechanisms that produces it, 
 let alone the effects of cognitive processing as triggers for measurable 
 biological function that may slip out of the control of the self's will, 
 and for decisions as outward actions. The word then cannot be anymore than 
@@ -725,7 +725,7 @@ those faces, or something that is a patronizing remark on the follies of
 introspection that could have taken many years only to miss the mark by 
 many immeasurable distances. Additionally, the statement could be interpreted 
 as a call to deconstruct understanding right down to the axiom, which then 
-would not demand much words to be used, leaving sentient existence little 
+would not demand any words to be used, leaving sentient existence little 
 else to do but the predominantly physical. Herein lies more issues with the 
 usage of the word. The word, as used for ultimate consideration, must 
 consider all span/s of possibilities, synonymously any thing that lies in 
@@ -751,7 +751,7 @@ such as interpretation of the word, is something that has to be taken
 in full after whatever skepticism and inquiries were conducted on the 
 perception, in order for credibility of belief to persist. There is 
 a gap in explanation by the word. Essentially, any interaction between 
-selves produce something like an axiom, specifically an artificial 
+selves produces something like an axiom, specifically an artificial 
 axiom, that serves as a generality for the image of understanding 
 greater than the axiom, the constant. The "self" is understood by 
 others that are outside the realm of immediate perception depend 
@@ -760,19 +760,20 @@ for order. Aristotelian logic used to systematize the metaphysical,
 a great part of this being the potential, of a sentient being is 
 typically not subjective by intrinsic analyses. The composition of 
 works in Aristotelian logic rely on the axiom, so to dissect the 
-relational arrangements of these words right down the axiom would 
-result in the axiom, the constant. There would be nothing else to 
-question, only to take the work as a wholesome artificial axiom 
-because it is essentially axiom. Similarly, Aristotelian logic places 
-the word, outside of smallest difference to the axiom, in the way 
-of an orientation alongside the counterpart words to the word. 
-For these words, references to them, these references found 
-predominantly in the measurable spatiotemporal contexts, are 
-what is required to prove that the word fits, through the discrimination 
-of application. There is an innate imprecision from the preference 
-of word use the "self" has to contend with, and also the quantification 
-of what occurs from the artificial axiom in the degrees of distance, 
-metaphysical in some instances, for the "self" to develop its own 
-truths, of artificial axiom, on top of the constant that does not 
-always require the consideration of the "self" through expression 
-by the "self" on the constants' existences and plausibilities.  
+relational arrangements of these words right down the axiom, without 
+the external reference, would directly result in a downward fashion 
+to the axiom, the constant. There would be nothing else to question, 
+only to take the work as a wholesome artificial axiom because it is 
+essentially axiom. Similarly, Aristotelian logic places the word, 
+outside of smallest difference to the axiom, in the way of an orientation 
+alongside the counterpart words to the word. For these words, references 
+to them, these references found predominantly in the measurable 
+spatiotemporal contexts, are what is required to prove that the word 
+fits, through the discrimination of application. There is an innate 
+imprecision from the preference of word use the "self" has to contend 
+with, and also decisions of quantifying what occurs from the artificial 
+axiom in the degrees of distance, metaphysical in some instances, 
+for the "self" to develop its own truths, of artificial axiom, on 
+top of the constant that does not always require the consideration 
+of the "self", through expression by the "self" on the constants' 
+existences and plausibilities.  
