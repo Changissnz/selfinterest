@@ -641,7 +641,7 @@ one that is unsplittable, for then there cannot be any chain reaction started fr
 
 # More on philosophies of self-interest #19 
 
-The practice of self-interest has always had a curious relationship with 
+The practice of self-interest always had and has a curious relationship with 
 social theory. Treat the human in the way of a lone atom, call them an 
 individual but do them as if they were a disconnected part from the whole, 
 for what they are perceived to be after, before, or on top of the social 
