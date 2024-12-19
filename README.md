@@ -694,9 +694,9 @@ or even become an entire social construct, certain statements of the social theo
 have to be treated as axioms, something more than an assumption for the 
 convenience of no effort of proof by interaction or observation. But 
 statements of social theory seldom rest on natural law, so cannot be axioms, 
-certainly processed through cognition they can be recognized as axioms though. 
+certainly processed through cognition can they be recognized as axioms though. 
 The intent of any social theory is to produce artificial axioms that may as 
-well be axioms, always through the will can there be belief the artificial 
-axiom and designs according to the calculated means for its success and 
+well be axioms, always through the will can there be belief in the artificial 
+axiom and designs in accordance with the calculated means for its success and 
 duration in the social setting that is supposed to be a social construct 
 for the social theory. 
