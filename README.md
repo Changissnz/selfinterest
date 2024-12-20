@@ -952,17 +952,17 @@ Sentient intelligence is a social value in practice. It cannot
 be anything more without relation to other intelligences. There would 
 only be actions and products initiated by sentient intelligence, but 
 the actions and products would merely have occurred or exists as a 
-change onto the physical world. Another way to think of the previous 
-statement is promoting the notion that the "self" can actually "self-reference" 
-and "self-justify" without immunity, but only through the lack of social 
-settings capable of producing challenge in physical or psychological 
-form can this notion be accepted without the longest and most thoughtful 
-intellectual conversations in the whole entire galaxy. Intelligence is a 
-value that, with training and application, becomes refined in the way of 
-metalworking products, but intelligence is not entirely metal. Intelligence 
-becomes the worst thing for sociability when the sentient being has to 
-dedicate virtually all of their efforts to propagate the works of their 
-intelligence, whereas competitors in socio-economically comfortable 
+change onto the physical world. One way to counter the previous 
+statement is promoting the notion of the "self" actually being 
+"self-referential" and "self-justifying" without immunity, but only 
+through the lack of social settings capable of producing challenge in 
+physical or psychological form can this notion be accepted without the 
+longest and most thoughtful intellectual conversations in the whole entire 
+galaxy. Intelligence is a value that, with training and application, becomes 
+refined in the way of metalworking products, but intelligence is not entirely 
+metal. Intelligence becomes the worst thing for sociability when the sentient 
+being has to dedicate virtually all of their efforts to propagate the works 
+of their intelligence, whereas competitors in socio-economically comfortable 
 positions can simply censor them according to the respective construct 
 of prescribed power. These situations must be in the manner of mind slavery 
 for others, in the economic dogma of capitalism where both time and emotions 
