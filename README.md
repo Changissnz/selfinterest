@@ -969,18 +969,18 @@ slavery for others, in the economic dogma of capitalism where both time and
 emotions can somehow be quantified into money for the money. The products of 
 intelligence can be replicated, a statement that goes against the whole "knowledge 
 is power" axiom (very questionably), since as already stated, sentient intelligence 
-is a social value and requires relations to the external world to exist in worthy 
-practice, and thoughts can be transcribed onto paper and/or machine with a 
-relative degree of inaccuracy, however the idea and the formulae still become 
-present in material form. The knowledge economy is governed by knowledge 
-authorities. That is the structure that self-interest must navigate in 
-order to extract gold, metaphysical or not, from the knowledge economy, 
-hopefully netting something before becoming too demoralized to continue the 
-high road of thought, instead having to resort to the practice, borne from 
-"schools" of pragmatics, as if that resort ever blindly turned an eye 
-to subjective mistakes in the same leniency as the intellectual sphere. 
-There is a relation between knowledge and power, sure. The relation is 
-that knowledge can be both a precursor for obtaining victory for power, 
+is a social value and requires relations to the external world to exist in 
+practice of effects with other sentience, and thoughts can be transcribed onto 
+paper and/or machine with a relative degree of inaccuracy, however the idea and 
+the formulae still become present in material form. The knowledge economy is 
+governed by knowledge authorities. That is the structure that self-interest 
+must navigate in order to extract gold, metaphysical or not, from the knowledge 
+economy, hopefully netting something before becoming too demoralized to 
+continue the high road of thought, instead having to resort to the practice, 
+borne from "schools" of pragmatics, as if that resort ever blindly turned 
+an eye to subjective mistakes in the same leniency as the intellectual 
+sphere. There is a relation between knowledge and power, sure. The relation 
+is that knowledge can be both a precursor for obtaining victory for power, 
 and knowledge can also be produced from the power of accurate cognitive 
 direction in problem-solving. This, as a reminder, does not mean that 
 knowledge is power, only somewhere in the equation. The understanding 
