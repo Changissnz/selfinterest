@@ -869,7 +869,7 @@ as, and so, must require the correct directionalities of the will
 for the self-interest in order to be satisfactory to self-interest, 
 outside of the reference to their conceptualization of the ideal. 
 In another possibility for understanding what the individual and 
-the collective really means, there are the cases of individuals, 
+the collective really mean, there are the cases of individuals, 
 despite in what society they lived in, to become resolved to their 
 "own path", withdrawing themselves to a reliance on remembering 
 the actuality they have come to believe through their experience 
@@ -888,7 +888,7 @@ the guard is an individual designated to act for a collectivistic
 interest. But seemingly out of nowhere, the guard, out of his own 
 greed and desires foreign to those he is supposed to guard, proceeds 
 on a different economical route of compromise to what is ordered to him 
-to be the fixture, as per the duties declared onto him as the guard. 
+to be the fixture, as per the duties declared onto him the guard. 
 The male pronoun is used for the reason of the male being the 
 predominant gender in physical security arrangements. But in a 
 parallel way, human females can do no better. And in the nationalist 
