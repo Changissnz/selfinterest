@@ -945,3 +945,59 @@ over another human being's loss is something else outside of the procedures
 and status, despite what reason for their loss. To adhere to a social 
 system that was designed by human beings, but to somehow have issues 
 with the system at specific points in time?  
+
+# More on philosophies of self-interest #23 
+
+Sentient intelligence is a social value in practice. It cannot 
+be anything more without relation to other intelligences. There would 
+only be actions and products initiated by sentient intelligence, but 
+the actions and products would merely have occurred or exists as a 
+change onto the physical world. Another way to think of the previous 
+statement is promoting the notion that the "self" can actually "self-reference" 
+and "self-justify" without immunity, but only through the lack of social 
+settings capable of producing challenge in physical or psychological 
+form can this notion be accepted without the longest and most thoughtful 
+intellectual conversations in the whole entire galaxy. Intelligence is a 
+value that, with training and application, becomes refined in the way of 
+metalworking products, but intelligence is not entirely metal. Intelligence 
+becomes the worst thing for sociability when the sentient being has to 
+dedicate virtually all of their efforts to propagate the works of their 
+intelligence, whereas competitors in socio-economically comfortable 
+positions can simply censor them according to the respective construct 
+of prescribed power. These situations must be in the manner of mind slavery 
+for others, in the economic dogma of capitalism where both time and emotions 
+can somehow be quantified into money for the money. The products of intelligence 
+can be replicated, a statement that goes against the whole "knowledge is power" 
+axiom, since as already stated, sentient intelligence is a social value 
+and requires relations to the external world to exist in worthy practice, 
+and thoughts can be transcribed onto paper and/or machine with a relative 
+degree of inaccuracy, however the idea and the formulae still become present 
+in material form. The knowledge economy is governed by knowledge authorities 
+then. That is the structure that self-interest must navigate in order to 
+extract gold, metaphysical or not, from the knowledge economy, hopefully 
+netting something before becoming too demoralized to continue the high 
+road of thought, instead having to resort to the practice, borne from 
+"schools" of pragmatics, as if that resort ever blindly turned an eye 
+to subjective mistakes in the same leniency as the intellectual sphere. 
+There is a relation between knowledge and power, sure. The relation is 
+that knowledge can be both a precursor for obtaining victory for power, 
+and knowledge can also be produced from the power of accurate cognitive 
+direction in problem-solving. This, as a reminder, does not mean that 
+knowledge is power, only somewhere in the equation. The understanding 
+of power typically adopts the forms of broad concepts first, then 
+becomes implemented into the specificities of decorum belonging to 
+human beings under that power. As an example of why knowledge and power 
+is not one and the same, memorize this scenario. A human being, out 
+of their self-interest, believes in sharing and promoting certain 
+knowledges, as a testament to their goodwill, only to get shot in 
+the face. Moral relativism exists in this scenario if and only if 
+the "self" were to remain impartial, thereby granting them the cognitive 
+freedom, out of their will not steadfast in directionality, to think 
+whatever of the event at any point in time or space during their 
+host's remaining existence. Intellectual purity is a myth. At best, 
+there is creativity original by the lack of immediate reference, first 
+buried before being cherished by those that no longer have the inconvenience 
+of thinking those thoughts into material form for society, the collective, 
+or whatever. Then there are institutions for regulatory bureaucracy and 
+big business. What is really the "self" in civilization, with the potential 
+to not have to hunt or farm for a living? 
