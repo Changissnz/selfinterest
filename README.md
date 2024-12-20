@@ -904,3 +904,42 @@ cannot be summarized with just these two labels, "hyper-collectivist"
 and "anti-individualist", without there being dishonesty. Something 
 the individual with their self-interest, dependent on their will, 
 contemplates either rationally or emotively, at least every so often. 
+
+# More on philosophies of self-interest #22 
+
+Human beings can be the most insulting there is. There is no way 
+around this statement if considered in the holistic sense. For 
+statements that become reasons such as the one two sentences 
+back, the "self" develops behavior in thinking and action based 
+on the experience. The host of the "self", upon belief that their 
+siblings have been informing on them to the police to keep them broke 
+and terrorized, has other notions of blood. The host of the "self", 
+upon believing that they have been treated like a lab rat for lethal 
+poisons and viruses, places less faith in doctors. The host of the 
+"self", after believing that their internet activity has been sold 
+by their own government to foreign political organizations, becomes 
+a Luddite. The host of the "self", upon being discovered by their elders 
+that they are seeking independence, gets their belongings confiscated 
+and labeled a handicapped and crippled piece of trash by their welfare 
+system. The "self" remains with the host after the host is let down 
+and set back by the collective. Perhaps that is the most important 
+merit for the preference of individualism over collectivism. What 
+the human being, as a "social creature", does is meddle and inform, 
+at best, if their skills and expertise are not called for. It is 
+the experience from human being to human being that produces pathological 
+hate for the human, that is what misanthropy is. The collective is 
+not a mechanical system from the start. It is not even entirely organic. 
+Through the propensities of the appearance of the human being, leanings 
+become careers and institutions. Women easy on the eyes aim to become 
+whores for the sons of aristocrats. Men of unusual size and strength 
+become icons in big sports. These are merely two examples and they 
+focus entirely on the physical appearance, but through them, the reader 
+can very well gather, by recollection of their own experience, how 
+the humanities portray things and what really goes on in socio-economic 
+policy, with appearances, talents, and governance. Human beings can 
+also be the most helpless, without institutions backing their wars 
+and deceptions. Ultimately, to become upset over another human being's 
+loss is something else outside of the procedures and status, despite 
+what reason for their loss. To adhere to a social system that was 
+designed by human beings, but to somehow have issues with the system 
+at specific points in time?  
