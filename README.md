@@ -910,8 +910,8 @@ contemplates either rationally or emotively, at least every so often.
 Human beings can be the most insulting there is. There is no way 
 around this statement if considered in the holistic sense. For 
 statements that become reasons such as the one two sentences 
-back, the "self" develops behavior in thinking and action based 
-on the experience. The host of the "self", upon belief that their 
+back, the "self" develops certain behaviors in thinking and action 
+based on the experience. The host of the "self", upon belief that their 
 siblings have been informing on them to the police to keep them broke 
 and terrorized, has other notions of blood. The host of the "self", 
 upon believing that they have been treated like a lab rat for lethal 
