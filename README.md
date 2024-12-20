@@ -899,8 +899,8 @@ icon, as long as the practice of history goes on. Dynamics such as
 these show the unexpected that believed loyalties can result in 
 with just the right kind of flux. Self-interest means nothing in 
 some places, supposedly in hyper-collectivist or anti-individualist 
-arrangements. And this nullification cannot be summarized with just 
-these two labels, "hyper-collectivist" and "anti-individualist", 
-without there being dishonesty. Something the individual with their 
-self-interest, dependent on their will, contemplates either rationally 
-or emotively, at least every so often. 
+arrangements; it is the will that is responsible. And this nullification 
+cannot be summarized with just these two labels, "hyper-collectivist" 
+and "anti-individualist", without there being dishonesty. Something 
+the individual with their self-interest, dependent on their will, 
+contemplates either rationally or emotively, at least every so often. 
