@@ -896,4 +896,6 @@ and then the foreigners as the secret admirers and worshippers of
 that specific individual, supposed to always be regarded as an 
 icon, as long as the practice of history goes on. Dynamics such as 
 these show the unexpected that believed loyalties can result in 
-with just the right kind of flux. 
+with just the right kind of flux. Self-interest means nothing in 
+some places, supposedly in hyper-collectivist or anti-individualist 
+arrangements. 
