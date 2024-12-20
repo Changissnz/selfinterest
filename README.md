@@ -994,10 +994,18 @@ the face. Moral relativism exists in this scenario if and only if
 the "self" were to remain impartial, thereby granting them the cognitive 
 freedom, out of their will not steadfast in directionality, to think 
 whatever of the event at any point in time or space during their 
-host's remaining existence. Intellectual purity is a myth. At best, 
-there is creativity original by the lack of immediate reference, first 
-buried before being cherished by those that no longer have the inconvenience 
-of thinking those thoughts into material form for society, the collective, 
-or whatever. Then there are institutions for regulatory bureaucracy and 
-big business. What is really the "self" in civilization, with the potential 
-to not have to hunt or farm for a living? 
+host's remaining existence. Here is another example. The authorities 
+demand a human being use their brain to produce some work, as part of 
+social responsibility to the public. The human being refuses, escapes, 
+and joins a revolt. How much intelligence is needed then that does not 
+also require "chance"? And what kind of changes would that intelligence 
+produce? The human being only wanted to be left alone. 
+
+Curiosity aside to demands prescribed by the socially responsible onto 
+sentient intelligence, sentient intelligence is a social value. Intellectual 
+purity is a myth. At best, there is creativity original by the lack of 
+immediate reference, first buried before being cherished by those that 
+no longer have the inconvenience of thinking those thoughts into material 
+form for society, the collective, or whatever. Then there are institutions 
+for regulatory bureaucracy and big business. What is really the "self" in 
+civilization, with the potential to not have to hunt or farm for a living? 
