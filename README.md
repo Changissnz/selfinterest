@@ -919,7 +919,7 @@ poisons and viruses, places less faith in doctors. The host of the
 "self", after believing that their internet activity has been sold 
 by their own government to foreign political organizations, becomes 
 a Luddite. The host of the "self", upon being discovered by their elders 
-that they are seeking independence, gets their belongings confiscated 
+of their seeking independence, gets their belongings confiscated 
 and labeled a handicapped and crippled piece of trash by their welfare 
 system. The "self" remains with the host after the host is let down 
 and set back by the collective. Perhaps that is the most important 
