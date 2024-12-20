@@ -827,9 +827,10 @@ people how they would write the number 7. There would be at least
 one way, and goes all the way up to 1000. And that is only the 
 initial decision that each illiterate person makes. There are 
 many variables besides from writing the number 7 that serve as 
-topics of such great variance, no two human beings could possibly 
-turn adversarial against each other if both were tasked with finding 
-out as much about one another based on their roots, their heritage, 
+topics of such great variance. Regarding the question of compatibilities, 
+no two human beings could possibly turn adversarial against each 
+other if both were tasked with finding out as much about one another 
+based on their roots, their heritage, their present and prior experience 
 on the penalty of unwanted death for their failure through inadequacy 
 or incompetence. Peace would need to be maintained, until the job is 
 done for one or both. Another peculiar aspect on social and cultural 
