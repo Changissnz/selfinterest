@@ -927,8 +927,9 @@ merit for the preference of individualism over collectivism. What
 the human being, as a "social creature", does is meddle and inform, 
 at best, if their skills and expertise are not called for. It is 
 the experience from human being to human being that produces pathological 
-hate for the human, that is what misanthropy is. The collective is 
-not a mechanical system from the start. It is not even entirely organic. 
+hate for the human, that is what misanthropy is. All cravings of blood 
+not for the meal is part of this long-lasting emotive body. The collective 
+is not a mechanical system from the start. It is not even entirely organic. 
 Through the propensities of the appearance of the human being, leanings 
 become careers and institutions. Women easy on the eyes aim to become 
 whores for the sons of aristocrats. Men of unusual size and strength 
@@ -938,8 +939,9 @@ can very well gather, by recollection of their own experience, how
 the humanities portray things and what really goes on in socio-economic 
 policy, with appearances, talents, and governance. Human beings can 
 also be the most helpless, without institutions backing their wars 
-and deceptions. Ultimately, to become upset over another human being's 
-loss is something else outside of the procedures and status, despite 
-what reason for their loss. To adhere to a social system that was 
-designed by human beings, but to somehow have issues with the system 
-at specific points in time?  
+and deceptions. Individuals become slaves before knowing it, from the 
+perspective of psychological acknowledgment. Ultimately, to become upset 
+over another human being's loss is something else outside of the procedures 
+and status, despite what reason for their loss. To adhere to a social 
+system that was designed by human beings, but to somehow have issues 
+with the system at specific points in time?  
