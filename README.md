@@ -961,15 +961,15 @@ longest and most thoughtful intellectual conversations in the whole entire
 galaxy. Intelligence is a value that, with training and application, becomes 
 refined in the way of metalworking products, but intelligence is not entirely 
 metal. Intelligence becomes the worst thing for sociability when the sentient 
-being has to dedicate virtually all of their efforts to propagate the works 
-of their intelligence, whereas competitors in socio-economically comfortable 
-positions can simply censor them according to the respective construct 
-of prescribed power. These situations must be in the manner of mind slavery 
-for others, in the economic dogma of capitalism where both time and emotions 
-can somehow be quantified into money for the money. The products of intelligence 
-can be replicated, a statement that goes against the whole "knowledge is power" 
-axiom (very questionably), since as already stated, sentient intelligence is 
-a social value and requires relations to the external world to exist in worthy 
+being has to dedicate virtually all of their efforts to develop the works 
+of their intelligence for propagation, whereas competitors in socio-economically 
+comfortable positions can simply censor them according to the respective 
+construct of prescribed power. These situations must be in the manner of mind 
+slavery for others, in the economic dogma of capitalism where both time and 
+emotions can somehow be quantified into money for the money. The products of 
+intelligence can be replicated, a statement that goes against the whole "knowledge 
+is power" axiom (very questionably), since as already stated, sentient intelligence 
+is a social value and requires relations to the external world to exist in worthy 
 practice, and thoughts can be transcribed onto paper and/or machine with a 
 relative degree of inaccuracy, however the idea and the formulae still become 
 present in material form. The knowledge economy is governed by knowledge 
