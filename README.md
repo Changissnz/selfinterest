@@ -800,7 +800,7 @@ practices individualism to a certain extent. The strict dichotomy
 is probably necessary to an extent, on top of the existing translation 
 issues, due to there existing additional considerations besides from the 
 elevation of the individual to the status of icon, as requirements 
-for individualism to be present. Then the discusion entirely 
+for individualism to be present. Then the discussion entirely 
 turns into many topics, with social theory sitting somewhere on top. 
 Human societies of various ideologies "make their people", as confusing 
 as the quotation sounds. A human being is born, but then has to 
@@ -830,8 +830,8 @@ many variables besides from writing the number 7 that serve as
 topics of such great variance, no two human beings could possibly 
 turn adversarial against each other if both were tasked with finding 
 out as much about one another based on their roots, their heritage, 
-on the penalty of death for their failure through inadequacy or 
-incompetence. Peace would need to be maintained, until the job is 
+on the penalty of unwanted death for their failure through inadequacy 
+or incompetence. Peace would need to be maintained, until the job is 
 done for one or both. Another peculiar aspect on social and cultural 
 studies is observing how the individual adapts to a changing world, the 
 changes very incongruent and not so cleanly cut based on geographic 
@@ -847,7 +847,7 @@ the suffering of select others, the breaking of the collective
 or individual expectation has a proportional degree of emotive 
 energy elicited, frequently hysterical and demented when the 
 top and only paradigm is determinism. For these matters, there 
-seldom are answers adequate enough to fulfill perceived inadequancies 
+seldom are answers adequate enough to fulfill perceived inadequacies 
 of empirical accounting, scientific, mathematical, narrative, et 
 cetera, and perhaps even the explanation from religious/political 
 authorities also falls short of quelling the perceived hurt from 
@@ -858,7 +858,7 @@ to the chagrin of certain self-interests. When there are mysteries
 in human decision-making or the material constructs that humans produce 
 to eventually crumble, the remaining mystery irreducible to any more 
 detail or infinitesimal material is caused by the will. That is 
-where the will came into underlying play. The ideal can be dichotomized 
+where the will comes into underlying play. The ideal can be dichotomized 
 into individual and the collective. The individual that lives in the 
 same image before their experience of the ideal must be deluded. 
 Expectations can never be met according to the self-interest of 
@@ -872,7 +872,7 @@ the collective really means, there are the cases of individuals,
 despite in what society they lived in, to become resolved to their 
 "own path", withdrawing themselves to a reliance on remembering 
 the actuality they have come to believe through their experience 
-of the actual before paying their attention to any image of ideal. 
+of the actual, before paying their attention to any image of ideal. 
 From a rubric that considers these individuals' cognitive states, 
 the individuals would be individualist. But the collective can 
 represent these individuals as collectivists, in order to maintain 
