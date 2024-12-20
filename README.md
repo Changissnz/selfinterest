@@ -968,15 +968,15 @@ of prescribed power. These situations must be in the manner of mind slavery
 for others, in the economic dogma of capitalism where both time and emotions 
 can somehow be quantified into money for the money. The products of intelligence 
 can be replicated, a statement that goes against the whole "knowledge is power" 
-axiom, since as already stated, sentient intelligence is a social value 
-and requires relations to the external world to exist in worthy practice, 
-and thoughts can be transcribed onto paper and/or machine with a relative 
-degree of inaccuracy, however the idea and the formulae still become present 
-in material form. The knowledge economy is governed by knowledge authorities 
-then. That is the structure that self-interest must navigate in order to 
-extract gold, metaphysical or not, from the knowledge economy, hopefully 
-netting something before becoming too demoralized to continue the high 
-road of thought, instead having to resort to the practice, borne from 
+axiom (very questionably), since as already stated, sentient intelligence is 
+a social value and requires relations to the external world to exist in worthy 
+practice, and thoughts can be transcribed onto paper and/or machine with a 
+relative degree of inaccuracy, however the idea and the formulae still become 
+present in material form. The knowledge economy is governed by knowledge 
+authorities. That is the structure that self-interest must navigate in 
+order to extract gold, metaphysical or not, from the knowledge economy, 
+hopefully netting something before becoming too demoralized to continue the 
+high road of thought, instead having to resort to the practice, borne from 
 "schools" of pragmatics, as if that resort ever blindly turned an eye 
 to subjective mistakes in the same leniency as the intellectual sphere. 
 There is a relation between knowledge and power, sure. The relation is 
@@ -1004,8 +1004,8 @@ Curiosity closed on the question of demands prescribed by the socially
 responsible onto sentient intelligence, sentient intelligence is a social 
 value. Intellectual purity is a myth. At best, there is creativity original 
 by the lack of immediate reference, first buried before being cherished by 
-those that no longer have the inconvenience of thinking those thoughts into 
-material form for society, the collective, or whatever. Then there are 
-institutions for regulatory bureaucracy and big business. What is really 
-the "self" in civilization, with the potential to not have to hunt or farm 
-for a living? 
+those that no longer have the inconvenience of having to think those thoughts 
+into material form for society, the collective, or whatever. There is 
+already one copy. Then there are institutions for regulatory bureaucracy 
+and big business. What is really the "self" in civilization, with the potential 
+to not have to hunt or farm for a living? 
