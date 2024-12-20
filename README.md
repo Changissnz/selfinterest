@@ -999,9 +999,8 @@ demand a human being use their brain to produce some work, as part of
 social responsibility to the public. The human being refuses, escapes, 
 and joins a revolt. How much intelligence is needed then that does not 
 also require "chance"? And what kind of changes would that intelligence 
-produce? The human being only wanted to be left alone. 
-
-Curiosity aside to demands prescribed by the socially responsible onto 
+produce? The human being only wanted to be left alone. Curiosity closed 
+on the question of demands prescribed by the socially responsible onto 
 sentient intelligence, sentient intelligence is a social value. Intellectual 
 purity is a myth. At best, there is creativity original by the lack of 
 immediate reference, first buried before being cherished by those that 
