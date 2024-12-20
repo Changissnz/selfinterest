@@ -791,3 +791,109 @@ application.
 
 # More on philosophies of self-interest #21 
 
+A major misconception is that individualism is a Western thing, 
+collectivism an Eastern thing. That is how some concepts are 
+explained in the basic sense. In practically every nation, there 
+are icons that are human, not elevated to anything equal to a 
+demi-god or beyond. Every icon is an individual, so every nation 
+practices individualism to a certain extent. The strict dichotomy 
+is probably necessary to an extent, on top of the existing translation 
+issues, due to there existing additional considerations besides from the 
+elevation of the individual to the status of icon, as requirements 
+for individualism to be present. Then the discusion entirely 
+turns into many topics, with social theory sitting somewhere on top. 
+Human societies of various ideologies "make their people", as confusing 
+as the quotation sounds. A human being is born, but then has to 
+be made by their people? The quotation effects changes onto 
+self-interest. The quotation, when enmeshed into social 
+decision-making, from human being to human being, that is, 
+originally drives self-interest in degrees of changing directionalities 
+and magnitudes. The will remains the same though, as clarification, 
+despite what involvement of the practice of "make their people". 
+Individualism is not always what self-interest is geared to, 
+but it happens for some reasons more often in certain regions 
+only due to the acceptance of the challenge the individual poses, 
+in other regions a continuation of informatic projection (that 
+is what legacy is a part of). For reasons stemming from the 
+dichotomy that must be implicit by generational design, with 
+the freedom by self-interest to explicitly structure and describe 
+for promoting others' understandings through those courses, 
+social and cultural studies are infinite in discussion by the 
+variance of the pertaining information on different peoples 
+having distinction yet equality, through the explicit mention, 
+while the localities of the practices are also unique. To elaborate, 
+it is as if one were to ask 1000 absolutely illiterate but compliant 
+people how they would write the number 7. There would be at least 
+one way, and goes all the way up to 1000. And that is only the 
+initial decision that each illiterate person makes. There are 
+many variables besides from writing the number 7 that serve as 
+topics of such great variance, no two human beings could possibly 
+turn adversarial against each other if both were tasked with finding 
+out as much about one another based on their roots, their heritage, 
+on the penalty of death for their failure through inadequacy or 
+incompetence. Peace would need to be maintained, until the job is 
+done for one or both. Another peculiar aspect on social and cultural 
+studies is observing how the individual adapts to a changing world, the 
+changes very incongruent and not so cleanly cut based on geographic 
+area. Also in this aspect, so many articles could be written on 
+this as a lone topic that entire libraries would be filled up with 
+nothing but similarities and differences, in the context of localities 
+and globalities, through the accounting of the individual and the 
+individual's collective. There always seems to be expectations for 
+the individual, despite what collectivist policy and arrangements 
+have or were put into place to involve them. Just as types such 
+as misers and vengeance seekers gain a lot of gratification through 
+the suffering of select others, the breaking of the collective 
+or individual expectation has a proportional degree of emotive 
+energy elicited, frequently hysterical and demented when the 
+top and only paradigm is determinism. For these matters, there 
+seldom are answers adequate enough to fulfill perceived inadequancies 
+of empirical accounting, scientific, mathematical, narrative, et 
+cetera, and perhaps even the explanation from religious/political 
+authorities also falls short of quelling the perceived hurt from 
+expectations unmet. Whatever the explanations, the explanations either 
+depend on the use of or rest on the existence of the will. For some 
+things failed or unmet, that would be the doing of the will, much 
+to the chagrin of certain self-interests. When there are mysteries 
+in human decision-making or the material constructs that humans produce 
+to eventually crumble, the remaining mystery irreducible to any more 
+detail or infinitesimal material is caused by the will. That is 
+where the will came into underlying play. The ideal can be dichotomized 
+into individual and the collective. The individual that lives in the 
+same image before their experience of the ideal must be deluded. 
+Expectations can never be met according to the self-interest of 
+sternness in comparing the actual with the ideal. The actual is more 
+experience of default arbitrariness than what the ideal is portrayed 
+as, and so, must require the correct directionalities of the will 
+for the self-interest in order to be satisfactory to self-interest, 
+outside of the reference to their conceptualization of the ideal. 
+In another possibility for understanding what the individual and 
+the collective really means, there are the cases of individuals, 
+despite in what society they lived in, to become resolved to their 
+"own path", withdrawing themselves to a reliance on remembering 
+the actuality they have come to believe through their experience 
+of the actual before paying their attention to any image of ideal. 
+From a rubric that considers these individuals' cognitive states, 
+the individuals would be individualist. But the collective can 
+represent these individuals as collectivists, in order to maintain 
+the notion that said individuals have been fully integrated in 
+the scope of behavior and attitudes. So there are things not mentioned 
+about the individual, in individualistic or collectivistic settings. 
+In certain realities that have produced literary works that reflect 
+back on those realities, some noteworthy dynamics serve as astute 
+examples of the troubles underneath clean-cut dichotomies. There 
+is the guard as the tormentor, or the guard as the traitor, when 
+the guard is an individual that acts for a collectivistic interest. 
+But seemingly out of nowhere, the guard, out of his own greed and 
+desires foreign to those he is supposed to guard, proceeds on a 
+different economical route of compromise to what is ordered to him 
+to be the fixture, as per the duties declared onto him as the guard. 
+The male pronoun is used for the reason of the male being the 
+predominant gender in physical security arrangements. But in a 
+parallel way, human females can do no better. And in the nationalist 
+context, there is the jealous neighbor, the terrible town bullies, 
+and then the foreigners as the secret admirers and worshippers of 
+that specific individual, supposed to always be regarded as an 
+icon, as long as the practice of history goes on. Dynamics such as 
+these show the unexpected that believed loyalties can result in 
+with just the right kind of flux. 
