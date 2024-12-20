@@ -883,10 +883,10 @@ In certain realities that have produced literary works that reflect
 back on those realities, some noteworthy dynamics serve as astute 
 examples of the troubles underneath clean-cut dichotomies. There 
 is the guard as the tormentor, or the guard as the traitor, when 
-the guard is an individual that acts for a collectivistic interest. 
-But seemingly out of nowhere, the guard, out of his own greed and 
-desires foreign to those he is supposed to guard, proceeds on a 
-different economical route of compromise to what is ordered to him 
+the guard is an individual designated to act for a collectivistic 
+interest. But seemingly out of nowhere, the guard, out of his own 
+greed and desires foreign to those he is supposed to guard, proceeds 
+on a different economical route of compromise to what is ordered to him 
 to be the fixture, as per the duties declared onto him as the guard. 
 The male pronoun is used for the reason of the male being the 
 predominant gender in physical security arrangements. But in a 
