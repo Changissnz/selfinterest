@@ -831,9 +831,9 @@ topics of such great variance. Regarding the question of compatibilities,
 no two human beings could possibly turn adversarial against each 
 other if both were tasked with finding out as much about one another 
 based on their roots, their heritage, their present and prior experience 
-on the penalty of unwanted death for their failure through inadequacy 
-or incompetence. Peace would need to be maintained, until the job is 
-done for one or both. Another peculiar aspect on social and cultural 
+on the penalty of unwanted death for their failure through deliberate 
+inadequacy or incompetence. Peace would need to be maintained, until the 
+job is done for one or both. Another peculiar aspect on social and cultural 
 studies is observing how the individual adapts to a changing world, the 
 changes very incongruent and not so cleanly cut based on geographic 
 area. Also in this aspect, so many articles could be written on 
