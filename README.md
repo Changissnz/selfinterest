@@ -951,7 +951,7 @@ with the system at specific points in time?
 Sentient intelligence is a social value in practice. It cannot 
 be anything more without relation to other intelligences. There would 
 only be actions and products initiated by sentient intelligence, but 
-the actions and products would merely have occurred or exists as a 
+the actions and products would merely have occurred or exist as a 
 change onto the physical world. One way to counter the previous 
 statement is promoting the notion of the "self" actually being 
 "self-referential" and "self-justifying" without immunity, but only 
