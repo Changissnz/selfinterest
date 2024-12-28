@@ -1019,11 +1019,11 @@ inventions used to rationalize meanings about numbers, the practice of
 philosophy has never produced "pure reason", that is reason without 
 exemplifying statement, reason that is pure truth as an operation and operator, 
 a systematic rationalizer greater in quality than the boolean. Philosophy, 
-past the rudimentary of the axiom, unable to be produced and only discoverable 
-or re-discoverable, and the empiricism of the natural world, becomes split 
-by perspectives. Each perspective of noteworthy interest is required to 
-argue for non-axiomatic statements of a questionable truthfulness. Certain 
-schools of philosophies promote the idea of some universal thing that is 
+past the rudimentary of the axiom that is unable to be produced and only 
+discoverable or re-discoverable, and the empiricism of the natural world, 
+becomes split by perspectives. Each perspective of noteworthy interest is 
+required to argue for non-axiomatic statements of a questionable truthfulness. 
+Certain schools of philosophies promote the idea of some universal thing that is 
 more elaborate than the axiom, yet just as grounded in principle and 
 intrinsic provability as the axiom. But these promotions do, in fact, 
 require believers since quite frequently, only through approved behaviorial 
