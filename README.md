@@ -1070,7 +1070,7 @@ the practitioner's identity, and not entirely with the philosophical prescriptio
 they were supposed to adhere to as devoted students of the school. In the extreme 
 cases, the practitioner aims for their self-empowerment, for power in excess by 
 relativistic comparison, and the student after becoming a teacher also becomes 
-more dogmatic, loyalty to the foundational principles that they were educated 
+more dogmatic, loyal to the foundational principles that they were educated 
 under. 
 
 # More on philosophies of self-interest #25 
@@ -1089,7 +1089,7 @@ to something that has become so outlandish without the support of their
 recognized centrality. Without the centrality, the reference to a source 
 could be perceived as the source, and both the reference and source could 
 be misidentified as extraneous variables. Understanding would not take the 
-form proper to that which involves the self's chosen centrality. There becomes 
+form proper to that which involves the self's chosen centrality. There become 
 more ways to understand, due to more pathways unleashed by the lack of structure 
 the centrality would have granted. Minor sidelines become the focus, the epicenter 
 of meaning seemingly caves in from the self's perception as the self's comprehending 
