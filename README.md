@@ -1014,23 +1014,37 @@ the potential to not have to hunt or farm for a living?
 
 The philosophy and the living justify and reinforce each other through 
 symbiotic ties for introspection, application, validation, and evolution. 
-Just as numbers cannot be invented, but the mathematical sciences contains 
+Just as numbers cannot be invented, but the mathematical sciences contain 
 inventions used to rationalize meanings about numbers, the practice of 
 philosophy has never produced "pure reason", that is reason without 
 exemplifying statement, reason that is pure truth as an operation and operator, 
 a systematic rationalizer greater in quality than the boolean. Philosophy, 
-past the rudimentary of the axiom and the empiricism of the natural world, 
-becomes split by perspectives. Each perspective of noteworthy interest is 
-required to argue for non-axiomatic statements of a questionable 
-truthfulness. Certain schools of philosophies promote the idea of some 
-universal thing that is more elaborate than the axiom, yet just as grounded 
-in principle and intrinsic provability as the axiom. But these promotions do, 
-in fact, require believers since quite frequently, only through approved 
-behaviorial approaches that some of these universal ideals can be accomplished 
-according to what is deemed right. And some behaviors are intentionally rehearsed 
+past the rudimentary of the axiom, unable to be produced and only discoverable 
+or re-discoverable, and the empiricism of the natural world, becomes split 
+by perspectives. Each perspective of noteworthy interest is required to 
+argue for non-axiomatic statements of a questionable truthfulness. Certain 
+schools of philosophies promote the idea of some universal thing that is 
+more elaborate than the axiom, yet just as grounded in principle and 
+intrinsic provability as the axiom. But these promotions do, in fact, 
+require believers since quite frequently, only through approved behaviorial 
+approaches that some of these universal ideals can be accomplished according 
+to what is deemed right. And some behaviors are intentionally rehearsed 
 by the "self" for what the "self" believes is for the right ideal or whatever. 
 The "self" has the freedom to focus entirely on the "way of living" in order 
 to practice the wanted philosophy. Such emphasis on the practice, the "way of 
 living", over acquiring full memory and awareness of the essence of the philosophy 
 through more formal ways, is quite common for areas in which the written word 
-does not have a strong mark in pushing the student of that particular philosophy. 
+does not have a strong mark in pushing the student of that particular philosophy.
+The written word is more of an introductory reference, a note that remains in 
+case of the school's upheaval. The written word simple does not have the adequacy 
+of expressing formulated effective methodologies for all cases of the generic 
+problem/s the philosophy is designed to solve for. Preference for the independence 
+of "practicing" over "studying" the philosophy carries an implication. The "self" 
+is not so much intent on the "love of wisdom" as they are on reaping as much 
+benefit from their own personal use of the specific philosophy they practice. 
+Self-interest takes precedence as the source of objective for the "self" in 
+either the preference of the "practice" or the "study". But the "practice" 
+clearly focuses more on gains for the "self" as a living agent, forced to take 
+up practices of one or more way/s of life to achieve some wanted existential 
+state. The "study", on the other hand, is for the understanding of 
+the "follower". 
