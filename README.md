@@ -1007,5 +1007,30 @@ by the lack of immediate reference, first buried before being cherished by
 those that no longer have the inconvenience of having to think those thoughts 
 into material form for society, the collective, or whatever. There is 
 already one copy. Then there are institutions for regulatory bureaucracy 
-and big business. What is really the "self" in civilization, with the potential 
-to not have to hunt or farm for a living? 
+and big business. What is really the "self" in civilization, with 
+the potential to not have to hunt or farm for a living? 
+
+# More on philosophies of self-interest #24 
+
+The philosophy and the living justify and reinforce each other through 
+symbiotic ties for introspection, application, validation, and evolution. 
+Just as numbers cannot be invented, but the mathematical sciences contains 
+inventions used to rationalize meanings about numbers, the practice of 
+philosophy has never produced "pure reason", that is reason without 
+exemplifying statement, reason that is pure truth as an operation and operator, 
+a systematic rationalizer greater in quality than the boolean. Philosophy, 
+past the rudimentary of the axiom and the empiricism of the natural world, 
+becomes split by perspectives. Each perspective of noteworthy interest is 
+required to argue for non-axiomatic statements of a questionable 
+truthfulness. Certain schools of philosophies promote the idea of some 
+universal thing that is more elaborate than the axiom, yet just as grounded 
+in principle and intrinsic provability as the axiom. But these promotions do, 
+in fact, require believers since quite frequently, only through approved 
+behaviorial approaches that some of these universal ideals can be accomplished 
+according to what is deemed right. And some behaviors are intentionally rehearsed 
+by the "self" for what the "self" believes is for the right ideal or whatever. 
+The "self" has the freedom to focus entirely on the "way of living" in order 
+to practice the wanted philosophy. Such emphasis on the practice, the "way of 
+living", over acquiring full memory and awareness of the essence of the philosophy 
+through more formal ways, is quite common for areas in which the written word 
+does not have a strong mark in pushing the student of that particular philosophy. 
