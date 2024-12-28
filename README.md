@@ -1027,7 +1027,7 @@ Certain schools of philosophies promote the idea of some universal thing that is
 more elaborate than the axiom, yet just as grounded in principle and 
 intrinsic provability as the axiom. But these promotions do, in fact, 
 require believers since quite frequently, only through approved behaviorial 
-approaches that some of these universal ideals can be accomplished according 
+approaches can some of these universal ideals be accomplished according 
 to what is deemed right. And some behaviors are intentionally rehearsed 
 by the "self" for what the "self" believes is for the right ideal or whatever. 
 The "self" has the freedom to focus entirely on the "way of living" in order 
