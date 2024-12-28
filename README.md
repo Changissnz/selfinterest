@@ -1047,4 +1047,5 @@ either the preference of the "practice" or the "study". But the "practice"
 clearly focuses more on gains for the "self" as a living agent, forced to take 
 up practices of one or more way/s of life to achieve some wanted existential 
 state. The "study", on the other hand, is for the understanding of 
-the "follower". 
+the "follower", serving as a metric for how well the follower has integrated 
+themself amongst their peers in the same school of philosophy. 
