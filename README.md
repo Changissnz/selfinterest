@@ -1072,3 +1072,60 @@ cases, the practitioner aims for their self-empowerment, for power in excess by
 relativistic comparison, and the student after becoming a teacher also becomes 
 more dogmatic, loyalty to the foundational principles that they were educated 
 under. 
+
+# More on philosophies of self-interest #25 
+
+The self understands the world by their own references of knowledge and 
+belief. Through the will, self-interest makes the determination, seemingly 
+arbitrary from the perspective of others, of the centralities of perception, 
+and the will of the self stands by those recognized centralities. The 
+centralities consist of those topics the self recognizes as most essential 
+to their understanding of the world. Without one centrality, it is as if an 
+entire column of reality somehow lacks the support to continue making sense 
+to the self. Confidence is eroded, and the self is left to wonder how their 
+personally recognized centrality could possibly be replaced with something 
+else similar to an immoveable axiom, the only way to restore sense and order 
+to something that has become so outlandish without the support of their 
+recognized centrality. Without the centrality, the reference to a source 
+could be perceived as the source, and both the reference and source could 
+be misidentified as extraneous variables. Understanding would not take the 
+form proper to that which involves the self's chosen centrality. There becomes 
+more ways to understand, due to more pathways unleashed by the lack of structure 
+the centrality would have granted. Minor sidelines become the focus, the epicenter 
+of meaning seemingly caves in from the self's perception as the self's comprehending 
+processes rest on fundamentally different centralities, including the visual foci. 
+What the self chooses to share with other selves is always a fraction of what 
+truths the self believes in. There is no way for anything more than that fraction: 
+besides from the required effort the self needs to expend to make for fuller and 
+fuller explanations, to the self's need to guard beliefs and facts that would 
+be disadvantageous to them if revealed to the other. To complicate the matter 
+of the self's worldview, a collation of information operating in flux to produce 
+multiple images for understanding, based so heavily on the self's recognized 
+centralities, the self dons dualist mechanisms of behaviorial expression and 
+cognitive processing. In virtually all cases, the self dons this duality and 
+seeks to minimize as much opportunity for the other to know the characteristics 
+of the duality in full. The self projects information in uni-directed modalities 
+of comprehension, as to give the impression of a steadfast conviction in belief. 
+The self retains dualist mechanisms for achieving completeness of the ways and 
+forms, at the expense of the traits of  purity and singularity that are oftentimes 
+recognized as the most genuine marks of honesty and goodwill. Duality, in 
+historical use by human beings, serves as an overarching symptom of an immune system 
+that operates on the ruthlessness of pragmatism, but could certainly be described 
+in the idealistic terms of what is the predominant and what should be kept in 
+reserve just in case. Duality compensates for the weakness of ideological purity, 
+goes the thinking of many that adopt dualist tendencies into their modus operandi. 
+By the phrase "weakness of ideological purity", take the phrase to mean the implicit 
+restraints placed onto the self, whether due to the certain principles or lack of 
+principles associated with the ideology's practice. The self that decides on using 
+dualist mechanisms still intends to think and act as one in the whole, not one 
+split in two ways by two halves. The robustness in behavior that the self seeks 
+in duality is a result of the will driving self-interest. The pragmatics of 
+compensation is a choice to go down the route of impurity, with the promise of 
+achieving more and retaining more only due to the greater appreciation of ways 
+and forms anti-thetical to one another, but together produces a self dynamic beyond 
+the predictability of purity. The self has many issues to contemplate and handle, 
+from a cognitive perspective, in dualist modus operandi. The will is what gives 
+reminder to the self about their identity, a part of their self-interest. The 
+will is what energizes the self to find difference in others' similar dualist 
+tendencies, while for the self, their self-interest is self-justifying on their 
+dualism. 
