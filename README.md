@@ -1067,4 +1067,8 @@ on mastering the ways outside of the philosophy's official forms grants them
 the advantage of greater performance through unorthodox knowledge acquired through 
 the personal experience. But the greater performance is strongly associated with 
 the practitioner's identity, and not entirely with the philosophical prescriptions 
-they were supposed to adhere to as devoted students of the school.
+they were supposed to adhere to as devoted students of the school. In the extreme 
+cases, the practitioner aims for their self-empowerment, for power in excess by 
+relativistic comparison, and the student after becoming a teacher also becomes 
+more dogmatic, loyalty to the foundational principles that they were educated 
+under. 
