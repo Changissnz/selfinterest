@@ -1063,6 +1063,6 @@ that has achieved mastery may, in turn, be a poor teacher of the very philosophy
 they mastered. The emphasis they place on mastering the ways outside of the philosophy's 
 official forms grants them the advantage of greater performance through 
 unorthodox knowledge acquired through the personal experience. But the greater 
-performance is strongly associated with the practictioner's identity, and not to 
-the philosophical prescriptions they were supposed to adhere to as devoted students 
-of the school. 
+performance is strongly associated with the practitioner's identity, and not entirely 
+with the philosophical prescriptions they were supposed to adhere to as 
+devoted students of the school. 
