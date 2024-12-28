@@ -1057,12 +1057,12 @@ their puritanical perspective, any practice perfected relies on the trueness
 of the axioms relied upon. The student and the practitioner seldom are completely 
 distinct in their approach to the same philosophy. But the potentials of the 
 student and that of the practictioner eventually diverge to produce two 
-different kinds of characters. The student becomes a teacher, and the practitioner 
-a master. By some unclear dynamics through the means utilized, the practitioner 
-that has achieved mastery may, in turn, be a poor teacher of the very philosophy 
-they mastered. The emphasis they place on mastering the ways outside of the philosophy's 
-official forms grants them the advantage of greater performance through 
-unorthodox knowledge acquired through the personal experience. But the greater 
-performance is strongly associated with the practitioner's identity, and not entirely 
-with the philosophical prescriptions they were supposed to adhere to as 
-devoted students of the school. 
+different kinds of characters. The student becomes a teacher of their craft, and 
+the practitioner a master of their living. By some unclear dynamics through the 
+means utilized, the practitioner that has achieved mastery may, in turn, be a 
+poor teacher of the very philosophy they mastered. The emphasis they place 
+on mastering the ways outside of the philosophy's official forms grants them 
+the advantage of greater performance through unorthodox knowledge acquired through 
+the personal experience. But the greater performance is strongly associated with 
+the practitioner's identity, and not entirely with the philosophical prescriptions 
+they were supposed to adhere to as devoted students of the school.
