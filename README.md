@@ -1054,8 +1054,10 @@ sees the improvements in their way of living as indicative of the power of
 their chosen philosophy. The student, with their strict observance of the 
 philosophy's axioms, does not place as much value on the application, for in 
 their puritanical perspective, any practice perfected relies on the trueness 
-of the axioms relied upon. The student and the practitioner seldom are completely 
-distinct in their approach to the same philosophy. But the potentials of the 
+of the axioms relied upon. All perfected practices are perfect by their performances' 
+reference, but not all systematic bodies of thought carry the same quality. 
+The student and the practitioner seldom are completely distinct in their 
+approach to the same philosophy. But the potentials of the 
 student and that of the practictioner eventually diverge to produce two 
 different kinds of characters. The student becomes a teacher of their craft, and 
 the practitioner a master of their living. By some unclear dynamics through the 
