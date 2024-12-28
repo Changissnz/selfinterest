@@ -1048,4 +1048,21 @@ clearly focuses more on gains for the "self" as a living agent, forced to take
 up practices of one or more way/s of life to achieve some wanted existential 
 state. The "study", on the other hand, is for the understanding of 
 the "follower", serving as a metric for how well the follower has integrated 
-themself amongst their peers in the same school of philosophy. 
+themself amongst their peers in the same school of philosophy. The practitioner 
+focuses more on their own progress, and all else being equal to the student, 
+sees the improvements in their way of living as indicative of the power of 
+their chosen philosophy. The student, with their strict observance of the 
+philosophy's axioms, does not place as much value on the application, for in 
+their puritanical perspective, any practice perfected relies on the trueness 
+of the axioms relied upon. The student and the practitioner seldom are completely 
+distinct in their approach to the same philosophy. But the potentials of the 
+student and that of the practictioner eventually diverge to produce two 
+different kinds of characters. The student becomes a teacher, and the practitioner 
+a master. By some unclear dynamics through the means utilized, the practitioner 
+that has achieved mastery may, in turn, be a poor teacher of the very philosophy 
+they mastered. The emphasis they place on mastering the ways outside of the philosophy's 
+official forms grants them the advantage of greater performance through 
+unorthodox knowledge acquired through the personal experience. But the greater 
+performance is strongly associated with the practictioner's identity, and not to 
+the philosophical prescriptions they were supposed to adhere to as devoted students 
+of the school. 
