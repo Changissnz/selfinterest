@@ -1174,4 +1174,6 @@ objectives that require as much scale as they do perfection. The self can reach 
 of perfection, but the perfection is granular, constrained to orbit around the lone 
 source, the self. By involving others, the self has to make due with possible lessening 
 in quality and contentious/mixed agenda, such as collusion, favoritism, hyper-competition, 
-and non-independence. 
+and non-independence. In arrangements of relativity, the self can always be made out 
+(conceptualized, narrated about) to be wrong, foolish, et cetera, by the other's use of 
+statements that employ opinion  while being fronted by illusion of fact. 
