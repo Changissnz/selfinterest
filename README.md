@@ -1,3 +1,5 @@
+# Self-interest 
+
 The uniqueness of all philosophies of self-interest are but 
 a fraction of any other. In more words, that is because this 
 kind of philosophy is not self-contained, instead required to 
@@ -14,7 +16,7 @@ fundamental low level of abstraction because it is one based on the
 utility of available choice, essentially economics in the individualistic 
 sense, and the utility is always centered around the self.
 
-# More on philosophies of self-interest
+## More on philosophies of self-interest
 
 The philosophy of self-interest is one that leans towards the 
 private and privatization of value. Every philosopher must have 
@@ -33,7 +35,7 @@ and their morality better understood by their craft of philosophy, not
 by the benefits bestowed onto them because of their craft. But one that 
 is a philosopher is not strictly one of that one role.
 
-# More on philosophies of self-interest #2
+## More on philosophies of self-interest #2
 
 Not to discredit the category of self-interest as a philosophy, 
 but this kind of philosophy indeed serves defeatist purposes to 
@@ -51,7 +53,7 @@ tending to the self by the internal means of the self. These philosophies
 cannot grow in and of themselves, only serving as backgrounds of reminder 
 to encourage the individual past the general that bounds all under it.
 
-# More on philosophies of self-interest #3
+## More on philosophies of self-interest #3
 
 Technical difficulties exist in the usage of natural language to explain 
 philosophies of self-interest. For one thing, what is the self from one 
@@ -70,7 +72,7 @@ the interests of sentient beings, there are inevitable clashes and mergers
 between the self separated from the remaining world and the self alongside 
 other selves in the same world.
 
-# More on philosophies of self-interest #4
+## More on philosophies of self-interest #4
 
 Philosophies of self-interest have a murky aura in their teaching and 
 interpretation. The phrasing, “murky aura”, is carefully selected to describe 
@@ -95,7 +97,7 @@ a rational framework of expectations for students from each school of philosophy
 may very well be folly, especially in terms of self-interest, one that rests on 
 the concept of “choice” more so than “obligation”.
 
-# More on philosophies of self-interest #5
+## More on philosophies of self-interest #5
 
 The use of self-interest for one’s purpose always rests on systems, 
 axiomatic principles pieced together for at least a metaphysical construct 
@@ -127,7 +129,7 @@ meaning of the “self” in a universal and thorough manner, without the “sel
 having to be the one responsible for induction to suit their specific forms 
 and movements.
 
-# More on philosophies of self-interest #6
+## More on philosophies of self-interest #6
 
 A posit on self-interest that cannot be proven wrong, no matter how unlike 
 the fundamental truth it may be interpreted as, is that communicating to another 
@@ -155,7 +157,7 @@ of the image projected from the “self”, and comprehensions of alternative wa
 expression, alternative images, for the “self” to project their “self” by their 
 chosen means for their wanted image.
 
-# More on philosophies of self-interest #7
+## More on philosophies of self-interest #7
 
 Another origin problem, this one on self-interest. Does the “self” first have 
 to learn about their “interest” through a sequence of events that is their 
@@ -187,7 +189,7 @@ respective self-interests, and these connections of likeness then converge to si
 principles on what self-interest is, practices by selves that each one conducts in 
 and on their respective systems.
 
-# More on philosophies of self-interest #8
+## More on philosophies of self-interest #8
 
 Self-interest, a force that depends on the utility of existing systems, 
 perhaps to maintain those existing systems or to improve or to abolish 
@@ -219,7 +221,7 @@ amongst its many hosts. This elaboration has at least provided some proof,
 through example, that self-interest is in fact not a self-contained field, 
 due to its many outward forms that chooses existing systems to use.
 
-# More on philosophies of self-interest #9
+## More on philosophies of self-interest #9
 
 Philosophies of self-interest emphasize to followers principles similar 
 to utilitarian ideals. The concept of “self-interest”, when put into 
@@ -281,7 +283,7 @@ utilitarianism, means that the regulatory patterns used by the “self” for
 their “self-interest” do not necessarily have to coincide with external 
 material or immaterial.
 
-# More on philosophies of self-interest #10
+## More on philosophies of self-interest #10
 
 Manipulative agents such as material, reactions from the material, and 
 other means (“agents”, in this usage) that influence cognition become 
@@ -319,7 +321,7 @@ meeting half-way in initiatives by the “self” for “self-interest” than b
 utilitarian practice. Thus, utilitarian practice is typically more pre-determined 
 than the self-interested in setting limits, not aspirations.
 
-# More on philosophies of self-interest #11
+## More on philosophies of self-interest #11
 
 The broad field of choice is of the abstract unquantifiable not because 
 of the practice of choice in the spatiotemporal setting. The spatiotemporal 
@@ -358,7 +360,7 @@ that is not one purely with their “self-interest” can also be manipulated, s
 through the alterations and demands presented to them in their spatiotemporal setting, 
 although the directionality of the will is still original to the “self-interest”.
 
-# More on philosophies of self-interest #12
+## More on philosophies of self-interest #12
 
 Philosophies of self-interest tend to overlap with studies and practices of ethics, 
 due to the fact that “self-interest” is necessarily existent and then perhaps evident 
@@ -382,7 +384,7 @@ philosophy through the natural sciences to ethics and also past ethics in the
 application of ethics in arbitrarily structured format, this being the “law for 
 human beings”.
 
-# More on philosophies of self-interest #13
+## More on philosophies of self-interest #13
 
 Through the lens of ethics, the thinking and actions of sentient beings can 
 be what is called “judged” in the form of adjectives that carry more than 
@@ -417,7 +419,7 @@ in its more outward appearances of sentient thinking and behavior, is undeniably
 to ethics, the connection a cause of varying doubt and conviction through the question 
 for the cause of the “self-interest”.
 
-# More on philosophies of self-interest #14 
+## More on philosophies of self-interest #14 
 
 The previous note made the claim: "without subjectivity, there can be no 
 ethics". Furthering the argument in favor of this claim, a very 
@@ -473,7 +475,7 @@ of the sphere of influence, in turn, believe the human being to have done those
 particular things, without anything close to being as real as the direct experience 
 that can be recalled by cognitive instruments of healthy structure, such as human brains.
 
-# More on philosophies of self-interest #15
+## More on philosophies of self-interest #15
 
 Subjectivity is a matter for cognition, with two primary bodies of 
 understanding and believing it. This is a duality that adds to the 
@@ -515,7 +517,7 @@ represent the axiom in non-interfering ways with the axiom. The constant existen
 of the axiom does not require recognition, in accurate forms for action from 
 the axiom, from "self-interest".  
 
-# More on philosophies of self-interest #16
+## More on philosophies of self-interest #16
 
 The sphere of influence, being a construct that "self-interest" navigates 
 and operates in, practically connected to the spatiotemporal context, has 
@@ -562,7 +564,7 @@ exist in or co-exist with. The first layer of activity for the "self-interest"
 is seldom the last layer in matters of the physical, and activity in the 
 "sphere of influence" is the last layer that "self-interest" is a driver for.
 
-# More on philosophies of self-interest #17 
+## More on philosophies of self-interest #17 
 
 For one to "find a reason" to think some way or do some thing is odd in the 
 phrasing. Of importance more than null is the context, that which is 
@@ -596,7 +598,7 @@ and use a methodological course of thinking and action. The phrasing can lead
 to misconception, since to "find a feeling" is a subset of "find a reason", but 
 not the converse. 
 
-# More on philosophies of self-interest #18 
+## More on philosophies of self-interest #18 
 
 The Democritean atom can be interpreted as a template with some rather 
 disconcerting implications. The "self" can never be one that cannot be 
@@ -639,7 +641,7 @@ produce notions on the individual as one that transcended the restrictions of th
 existence as an impactless atom, or an atom either unconnected to other atoms or 
 one that is unsplittable, for then there cannot be any chain reaction started from it. 
 
-# More on philosophies of self-interest #19 
+## More on philosophies of self-interest #19 
 
 The practice of self-interest always had and has a curious relationship with 
 social theory. Treat the human in the way of a lone atom, call them an 
@@ -701,7 +703,7 @@ there be belief in the artificial axiom and designs in accordance with the
 calculated means for its success and duration in the social setting that 
 is supposed to be a social construct for the social theory. 
 
-# More on philosophies of self-interest #20
+## More on philosophies of self-interest #20
 
 The word, as used to label the metaphysical, serves as an identifier for 
 that what is labeled. There are limits in pragmatics, outside of the use 
@@ -789,7 +791,7 @@ originally is without application, and this places responsibility
 onto the "self" for confirmation and belief through their own 
 application.  
 
-# More on philosophies of self-interest #21 
+## More on philosophies of self-interest #21 
 
 A major misconception is that individualism is a Western thing, 
 collectivism an Eastern thing. That is how some concepts are 
@@ -905,7 +907,7 @@ and "anti-individualist", without there being dishonesty. Something
 the individual with their self-interest, dependent on their will, 
 contemplates either rationally or emotively, at least every so often. 
 
-# More on philosophies of self-interest #22 
+## More on philosophies of self-interest #22 
 
 Human beings can be the most insulting there are. There is no way 
 around this statement if considered in the holistic sense. For 
@@ -946,7 +948,7 @@ and status, despite what reason for their loss. To adhere to a social
 system that was designed by human beings, but to somehow have issues 
 with the system at specific points in time?  
 
-# More on philosophies of self-interest #23 
+## More on philosophies of self-interest #23 
 
 Sentient intelligence is a social value in practice. It cannot 
 be anything more without relation to other intelligences. There would 
@@ -1010,7 +1012,7 @@ already one copy. Then there are institutions for regulatory bureaucracy
 and big business. What is really the "self" in civilization, with 
 the potential to not have to hunt or farm for a living? 
 
-# More on philosophies of self-interest #24 
+## More on philosophies of self-interest #24 
 
 The philosophy and the living justify and reinforce each other through 
 symbiotic ties for introspection, application, validation, and evolution. 
@@ -1073,7 +1075,7 @@ relativistic comparison, and the student after becoming a teacher also becomes
 more dogmatic, loyal to the foundational principles that they were educated 
 under. 
 
-# More on philosophies of self-interest #25 
+## More on philosophies of self-interest #25 
 
 The self understands the world by their own references of knowledge and 
 belief. Through the will, self-interest makes the determination, seemingly 
@@ -1130,7 +1132,7 @@ will is what energizes the self to find difference in others' similar dualist
 tendencies, while for the self, their self-interest is self-justifying of their 
 dualism. 
 
-# More on philosophies of self-interest #26 
+## More on philosophies of self-interest #26 
 
 Self-interest has many attributes, not even of a constant number, variable to 
 the whims of the self's will and the necessitated demands of the spatiotemporal 
@@ -1188,7 +1190,9 @@ sees fault first in others, considers their self as first in the line of conside
 and is seldom not the last to admit fault. Admission of fault rarely ever makes sense 
 to the self that knows the world can turn hostile against them very quickly, despite 
 of what reason. The self, regardless of their cooperation with others, is a hypocrite 
-by taking up dualist principles. From a singularist perspective, there is no need 
+after taking up dualist principles. From a singularist perspective, there is no need 
 for duality except for dealing with conflicts of systemic inconsistency and hierarchy 
 from the other, and the self knows how to state this in countless ways out of their 
 self-interest. 
+
+## More on philosophies of self-interest #27 
