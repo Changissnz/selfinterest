@@ -1127,5 +1127,29 @@ the predictability of purity. The self has many issues to contemplate and handle
 from a cognitive perspective, in dualist modus operandi. The will is what gives 
 reminder to the self about their identity, a part of their self-interest. The 
 will is what energizes the self to find difference in others' similar dualist 
-tendencies, while for the self, their self-interest is self-justifying on their 
+tendencies, while for the self, their self-interest is self-justifying of their 
 dualism. 
+
+# More on philosophies of self-interest #26 
+
+Self-interest has many attributes, not even of a constant number, variable to 
+the whims of the self's will and the necessitated demands of the spatiotemporal 
+context. Recognizing a thing, out of possible candidates, as a centrality is a 
+preference for the self. Using dualist thought and behavior is a pragmatic choice. 
+These two principles, of choosing centrality/ies and donning duality, no longer 
+become generalizable to any self after the self puts them into their own existential 
+practice. Using these two principles, the self is able to be their own ultimate 
+agent in the acceptance and rejection of outcome. This is different from the 
+statement that the self alone bears the expectation of succeeding or failing at 
+any arbitrarily-defined task. Given the hindrances posed by some spatiotemporal 
+circumstances, it would be reasonably foolish to expect one to be able to succeed 
+at some task. But human beings seldom demand others to do things only because the 
+demands are reasonable. On the contrary, the great prospect of watching a human 
+being fail at something due to the odds stacked against them is what gives some 
+adversaries sheer satisfaction in being witness to that specific kind of failure, 
+typically also narrated back to the audience as foolhardy and hubristic. When the 
+self becomes capable of exercising their own acceptance and rejection of outcomes, based 
+on the centralities that they use in comprehension and judgment, and on the styles 
+of expression in transparency or dishonesty by their dualist modus operandi, the 
+self has a form of control unacquirable by others, yet this control is still vulnerable 
+enough to be manipulated against their self-interest. 
