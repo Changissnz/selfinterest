@@ -1189,5 +1189,5 @@ and is seldom not the last to admit fault. Admission of fault rarely ever makes 
 to the self that knows the world can turn hostile against them very quickly, despite 
 of what reason. The self, regardless of their cooperation with others, is a hypocrite 
 by taking up dualist principles. But from a singularist perspective, there is no need 
-for duality except for dealing with conflicts of consistency and hierarchy from the 
-other.
+for duality except for dealing with conflicts of systemic inconsistency and hierarchy 
+from the other.
