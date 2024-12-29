@@ -1176,4 +1176,17 @@ source, the self. By involving others, the self has to make due with possible le
 in quality and contentious/mixed agenda, such as collusion, favoritism, hyper-competition, 
 and non-independence. In arrangements of relativity, the self can always be made out 
 (conceptualized, narrated about) to be wrong, foolish, et cetera, by the other's use of 
-statements that employ opinion  while being fronted by illusion of fact. 
+statements that employ opinion while being fronted by illusion of fact. The self uses 
+systems by their own strengths and preferences, and another self likewise but with the 
+freedom to not be identical in use. As such, the same system when used differently is 
+an antinomy between any two users of distinct styles and preferences. And that is in 
+regards to only one system. The self becomes one forced to compromise for the greater 
+ideal, when the self can do no things declared important without other accomplices. 
+Compromise does not quite negate the innate righteousness of the self in their preferences. 
+The self, being one with their self-interest above all, this so-called greater ideal, 
+sees fault first in others, considers their self as first in the line of consideration, 
+and is seldom not the last to admit fault. Admission of fault rarely ever makes sense 
+to the self that knows the world can turn hostile very quickly. The self, regardless 
+of their cooperation with others, is a hypocrite by taking up dualist principles. But 
+from a singularist perspective, there is no need for duality except for dealing with 
+conflicts of consistency and hierarchy from the other.
