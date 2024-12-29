@@ -907,7 +907,7 @@ contemplates either rationally or emotively, at least every so often.
 
 # More on philosophies of self-interest #22 
 
-Human beings can be the most insulting there is. There is no way 
+Human beings can be the most insulting there are. There is no way 
 around this statement if considered in the holistic sense. For 
 statements that become reasons such as the one two sentences 
 back, the "self" develops certain behaviors in thinking and action 
@@ -1020,7 +1020,7 @@ philosophy has never produced "pure reason", that is reason without
 exemplifying statement, reason that is pure truth as an operation and operator, 
 a systematic rationalizer greater in quality than the boolean. Philosophy, 
 past the rudimentary of the axiom that is unable to be produced and only 
-discoverable or re-discoverable, and the empiricism of the natural world, 
+discoverable or re-discoverable and the empiricism of the natural world, 
 becomes split by perspectives. Each perspective of noteworthy interest is 
 required to argue for non-axiomatic statements of a questionable truthfulness. 
 Certain schools of philosophies promote the idea of some universal thing that is 
