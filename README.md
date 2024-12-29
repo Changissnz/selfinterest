@@ -1152,4 +1152,20 @@ self becomes capable of exercising their own acceptance and rejection of outcome
 on the centralities that they use in comprehension and judgment, and on the styles 
 of expression in transparency or dishonesty by their dualist modus operandi, the 
 self has a form of control unacquirable by others, yet this control is still vulnerable 
-enough to be manipulated against their self-interest. 
+enough to be manipulable against their self-interest. Incorporating dualist mechanisms 
+and finding new centralities still do not guarantee the self to become an independent 
+agent, even when the question of such basics as food,water, and shelter are not 
+part of the consideration. Unfortunately for those bent on achieving independence 
+for themselves, there are no easy formulae to use for that objective, although many 
+cases of achieving independence rely on certain staples obvious enough for there 
+not be any need to explicitly mention. When the self relies on another, there are 
+some rather predictable routes for outcomes. In the first two routes, the other 
+assumes a regulatory/oversight role of hierarchical power over the self. The other 
+could make "correct" use of a pertaining system to aid in judgments, recommendations, 
+and other advice for the self. The other could also make "incorrect" use of a pertaining 
+system, through discriminatory practices of misapplication and/or preferential 
+application of system functions belonging to a system that otherwise is based on 
+impeccable principle (but those impeccable principles are safeguards for nothing, as 
+it turns out in some cases). In the third route, the other plays along by taking an 
+auxiliary (secondary) role as a helper to the self. The self has a balancing problem 
+to deal with in their involvement of an other into their efforts. 
