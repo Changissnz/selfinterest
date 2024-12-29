@@ -1188,6 +1188,7 @@ sees fault first in others, considers their self as first in the line of conside
 and is seldom not the last to admit fault. Admission of fault rarely ever makes sense 
 to the self that knows the world can turn hostile against them very quickly, despite 
 of what reason. The self, regardless of their cooperation with others, is a hypocrite 
-by taking up dualist principles. But from a singularist perspective, there is no need 
+by taking up dualist principles. From a singularist perspective, there is no need 
 for duality except for dealing with conflicts of systemic inconsistency and hierarchy 
-from the other.
+from the other, and the self knows how to state this in countless ways out of their 
+self-interest. 
