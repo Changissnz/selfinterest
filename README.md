@@ -1186,7 +1186,8 @@ Compromise does not quite negate the innate righteousness of the self in their p
 The self, being one with their self-interest above all, this so-called greater ideal, 
 sees fault first in others, considers their self as first in the line of consideration, 
 and is seldom not the last to admit fault. Admission of fault rarely ever makes sense 
-to the self that knows the world can turn hostile very quickly. The self, regardless 
-of their cooperation with others, is a hypocrite by taking up dualist principles. But 
-from a singularist perspective, there is no need for duality except for dealing with 
-conflicts of consistency and hierarchy from the other.
+to the self that knows the world can turn hostile against them very quickly, despite 
+of what reason. The self, regardless of their cooperation with others, is a hypocrite 
+by taking up dualist principles. But from a singularist perspective, there is no need 
+for duality except for dealing with conflicts of consistency and hierarchy from the 
+other.
