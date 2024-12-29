@@ -1168,4 +1168,10 @@ application of system functions belonging to a system that otherwise is based on
 impeccable principle (but those impeccable principles are safeguards for nothing, as 
 it turns out in some cases). In the third route, the other plays along by taking an 
 auxiliary (secondary) role as a helper to the self. The self has a balancing problem 
-to deal with in their involvement of an other into their efforts. 
+to deal with in their involvement of an other into their efforts. The self believes 
+themself to be inadequate, usually by spatiotemporal metrics, to accomplishing 
+objectives that require as much scale as they do perfection. The self can reach a level 
+of perfection, but the perfection is granular, constrained to orbit around the lone 
+source, the self. By involving others, the self has to make due with possible lessening 
+in quality and contentious/mixed agenda, such as collusion, favoritism, hyper-competition, 
+and non-independence. 
