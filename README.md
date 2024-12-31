@@ -370,7 +370,7 @@ their priorities, the fixture as analysis in the form of cross-examinations and
 introspections relatable to but not required to be related to the natural sciences, 
 since sentient being’s understanding of the natural sciences bears relevance outside 
 of the manuscripts and natural phenomenon as practiced by sentient beings, practices 
-coinciding with natural phenomenon but differs to natural phenomenon by their sole 
+coinciding with natural phenomenon but differing to natural phenomenon by their sole 
 association to sentient will, so will has the effecting autonomy to heed natural 
 phenomenon for the “self-interest”. This last point of natural phenomenon being 
 separate from sentient will is necessary not to promote arguments in duality and 
@@ -796,7 +796,7 @@ application.
 A major misconception is that individualism is a Western thing, 
 collectivism an Eastern thing. That is how some concepts are 
 explained in the basic sense. In practically every nation, there 
-are icons that are human, not elevated to anything equal to a 
+are icons that are human, not necessarily elevated to anything equal to a 
 demi-god or beyond. Every icon is an individual, so every nation 
 practices individualism to a certain extent. The strict dichotomy 
 is probably necessary to an extent, on top of the existing translation 
@@ -1196,3 +1196,16 @@ from the other, and the self knows how to state this in countless ways out of th
 self-interest. 
 
 ## More on philosophies of self-interest #27 
+
+What separates the force of self-interest from the practice of pragmatics is the 
+fundamental ground of operation. Pragmatics is merely a body, of indeterminate 
+size, of relational principles (non-axiomatic in other words) for use as a framework 
+in decision-making. Thus, the pragmatic person may have habitually developed their 
+pragmatism to emcompass traits such as stoicism, mindfulness in calculation, and 
+avoidance of endeavors recognized as vain and deluded, yet their pragmatism, being 
+an outward practice of expression based on relational principles learned to aid in 
+decisions of specific spatiotemporal circumstances, cannot be a part of their 
+essential existence. This is in stark contrast to the force of self-interest, 
+propelled by the will, for what the host believes is for their own good, the 
+good oscillating somewhere between desiring for the gains of the collective 
+and the gains of the self, as an indisputable form of selfishness. 
