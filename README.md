@@ -1217,6 +1217,6 @@ being that relies on coincidence to obtain their best possible decision simply
 cannot be pragmatic due to the chance that they never put any thought or practice 
 into controlling for their self-interest. Those that act by their self-interest 
 are not obliged to act pragmatically, for self-interest is a force that is a 
-culmination of what is arguably "free will" for human beings, naturally granted 
-the liberties to fight at great costs for their ideals and coincidentally contrarian 
-to orthodox pragmatic practices. 
+primary driver of what is arguably "free will" for human beings, naturally granting 
+human beings the liberty to fight at great costs for their ideals that are 
+coincidentally contrarian to orthodox pragmatic practices. 
