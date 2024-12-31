@@ -930,7 +930,7 @@ the human being, as a "social creature", does is meddle and inform,
 at best, if their skills and expertise are not called for. It is 
 the experience from human being to human being that produces pathological 
 hate for the human, that is what misanthropy is. All cravings of blood 
-not for the meal is part of this long-lasting emotive body. The collective 
+not for the meal are part of this long-lasting emotive body. The collective 
 is not a mechanical system from the start. It is not even entirely organic. 
 Through the propensities of the appearance of the human being, leanings 
 become careers and institutions. Women easy on the eyes aim to become 
@@ -1257,3 +1257,4 @@ the spatiotemporal mundanity and the pragmatics to set standards and definitions
 for achievement is a constant balancing act that becomes a factor many times 
 in relevance, due to the empirical performance, to the force of self-interest 
 lofty without the definition of pragmatics and ideals. 
+
