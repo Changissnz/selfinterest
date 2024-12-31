@@ -1311,5 +1311,6 @@ another individual to have to abide by those practices. This abstract structure
 is, in effect, one of the cornerstone paradigms for understanding the economizing 
 of power according to self-interest, a force that may attempt to supercede in 
 relevance of authority to the self-interests of others, or a force that, through 
-the pragmatism of utmost consideration for the social construct, allows an 
+the pragmatism of utmost consideration for the social construct, drives an 
 individual to pretend one way to satisfy their aims of another wanted outcome. 
+
