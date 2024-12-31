@@ -1266,7 +1266,7 @@ The difficulty in generalizing self-interest is due, in notable part, to
 the plasticity of human behavior given the cultural landscape and spatiotemporal 
 resources available to the self. The connectivities an individual has with their 
 surroundings, a great part of these surroundings being the artificial construct 
-material or immaterial made by other human beings, demands the individual to 
+material or immaterial made by other human beings, demand the individual to 
 adapt their styles of expression, to "conform" perhaps, in the same way that 
 a puzzle piece must fit its neighboring puzzle pieces in order to constitute 
 the whole. The analogy of the puzzle piece is a gross simplification of the 
@@ -1284,11 +1284,32 @@ and flatter. Other individuals, based on their socio-economic positioning,
 may actually have the same vanities and character flaws as those higher in 
 rank to them. These other individuals may also crave power and seek to do 
 harm to those disadvantaged. But ultimately, due to their obligation to 
-remain fixed at their socio-economic positions, cannot afford to show their 
-faces of wickedness and excess in contradiction by challenge to those higher 
-in rank to them. These broad descriptions of how individuals express themselves 
-due to their socio-economic status, despite the similarities in objectives 
-between their self-interests, is about the human being's utility of their 
-available means as well as their constant need to satisfy hierarchical 
-expectations as part of their temperance from excess that upsets the order 
-of their society at large. 
+remain fixed at their socio-economic positions, they cannot afford to show 
+their faces of wickedness and excess in contradiction by challenge to those 
+higher in rank to them. These broad generalizations of how individuals express 
+themselves due to their socio-economic status, despite the similarities in 
+objectives between their self-interests, is about the human being's utility 
+of their available means as well as their constant need to satisfy hierarchical 
+expectations, as part of their temperance from excess which may upset the order 
+of their society at large. The concept of a "sphere of influence" is of an 
+important reminder on the effecting potency of the individual in their preferences. 
+The sphere of influence acts as a radius of effective power an individual 
+has with respect to their vicinity. Any individual that uses the language of 
+ideals to propagate their own vision onto the rest of the world discovers a 
+harsh lesson in the reality of constraints granted to them because of their 
+spatio-temporal limits, their sphere of influence. Their words of ideals can 
+only go so far without there being misinterpretation. Furthermore, their words 
+of ideals must manifest themselves in forms of examples instead of the purity 
+that is incontrovertible yet also not specified enough to bear actual effect. 
+Through paradigms such as the sphere of influence, what one individual believes 
+is a selfish intrusion, masquerading under the language of ideals, onto others 
+is according to the definitions of another individual based on their 
+self-interest, for the order, that is, the greater good that is for collective 
+instead of individual gain. The sphere of influence is an abstract structure that 
+allows one individual to impose practices, stemming from their self-interest, and 
+another individual to have to abide by those practices. This abstract structure 
+is, in effect, one of the cornerstone paradigms for understanding the economizing 
+of power according to self-interest, a force that may attempt to supercede in 
+relevance of authority to the self-interests of others, or a force that, through 
+the pragmatism of utmost consideration for the social construct, allows an 
+individual to pretend one way to satisfy their aims of another wanted outcome. 
