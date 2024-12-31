@@ -1236,4 +1236,8 @@ this force of self-interest contains the irrationality of passion and personal
 belief. Without the guidance of pragmatic thought, those by their own self-interest 
 can only learn the better path through first experiencing costly mistakes, and 
 many of these mistakes cannot be rewinded back to the starting point before the 
-costs have inflicted themselves in the manner of permanence.
+costs have inflicted themselves in the manner of permanence. Pragmatism allows the 
+self the opportunity to understand the means, in abstract and technical forms, 
+that would allow them the greatest probabilities of achieving their vision, their 
+ideal, through the emphasis on choosing the best relative degree for the pertaining 
+issue and maintaining a mindfulness on the relations at play in the problem. 
