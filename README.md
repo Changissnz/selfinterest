@@ -1208,4 +1208,15 @@ decisions of specific spatiotemporal circumstances, cannot be a part of their
 essential existence. This is in stark contrast to the force of self-interest, 
 propelled by the will, for what the host believes is for their own good, the 
 good oscillating somewhere between desiring for the gains of the collective 
-and the gains of the self, as an indisputable form of selfishness. 
+and the gains of the self, as an indisputable form of selfishness. The host, 
+by their self-interest, always has the option to take the pragmatic path, given 
+the condition that the host knows what it means to be essentially pragmatic, 
+instead of making decisions that coincide with increasing the chances of their 
+survival. The pragmatist tends to be an informed decision-maker, so a human 
+being that relies on coincidence to obtain their best possible decision simply 
+cannot be pragmatic due to the chance that they never put any thought or practice 
+into controlling for their self-interest. Those that act by their self-interest 
+are not obliged to act pragmatically, for self-interest is a force that is a 
+culmination of what is arguably "free will" for human beings, naturally granted 
+the liberties to fight at great costs for their ideals and coincidentally contrarian 
+to orthodox pragmatic practices. 
