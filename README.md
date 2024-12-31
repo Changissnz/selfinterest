@@ -1296,7 +1296,7 @@ important reminder on the effecting potency of the individual in their preferenc
 The sphere of influence acts as a radius of effective power an individual 
 has with respect to their vicinity. Any individual that uses the language of 
 ideals to propagate their own vision onto the rest of the world discovers a 
-harsh lesson in the reality of constraints granted to them because of their 
+harsh lesson in the reality of constraints that contains them because of the 
 spatio-temporal limits, their sphere of influence. Their words of ideals can 
 only go so far without there being misinterpretation. Furthermore, their words 
 of ideals must manifest themselves in forms of examples instead of the purity 
