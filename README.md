@@ -1279,7 +1279,7 @@ their fellow human being may find the decorum of niceties and endless layers
 of bureaucratic regulation ironically unwholesome because of excess and 
 superficiality. These particular individuals, out of their self-interest 
 to operate in haste and for immediate results impactful in messaging to others 
-their own power, do not base their actions on the obligation to appease 
+of their own power, do not base their actions on the obligation to appease 
 and flatter. Other individuals, based on their socio-economic positioning, 
 may actually have the same vanities and character flaws as those higher in 
 rank to them. These other individuals may also crave power and seek to do 
@@ -1302,7 +1302,7 @@ only go so far without there being misinterpretation. Furthermore, their words
 of ideals must manifest themselves in forms of examples instead of the purity 
 that is incontrovertible yet also not specified enough to bear actual effect. 
 Through paradigms such as the sphere of influence, what one individual believes 
-is a selfish intrusion, masquerading under the language of ideals, onto others 
+is a selfish intrusion, masquerading under the language of ideals, onto themself 
 is according to the definitions of another individual based on their 
 self-interest, for the order, that is, the greater good that is for collective 
 instead of individual gain. The sphere of influence is an abstract structure that 
