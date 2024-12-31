@@ -1201,7 +1201,7 @@ What separates the force of self-interest from the practice of pragmatics is the
 fundamental ground of operation. Pragmatics is merely a body, of indeterminate 
 size, of relational principles (non-axiomatic in other words) for use as a framework 
 in decision-making. Thus, the pragmatic person may have habitually developed their 
-pragmatism to emcompass traits such as stoicism, mindfulness in calculation, and 
+pragmatism to encompass traits such as stoicism, mindfulness in calculation, and 
 avoidance of endeavors recognized as vain and deluded, yet their pragmatism, being 
 an outward practice of expression based on relational principles learned to aid in 
 decisions of specific spatiotemporal circumstances, cannot be a part of their 
@@ -1209,8 +1209,9 @@ essential existence. This is in stark contrast to the force of self-interest,
 propelled by the will, for what the host believes is for their own good, the 
 good oscillating somewhere between desiring for the gains of the collective 
 and the gains of the self, as an indisputable form of selfishness. The host, 
-by their self-interest, always has the option to take the pragmatic path, given 
-the condition that the host knows what it means to be essentially pragmatic, 
+by their self-interest, that vital force inseparable from sentience until death 
+does them part, always has the option to take the pragmatic path, given the 
+condition that the host knows what it means to be essentially pragmatic, 
 instead of making decisions that coincide with increasing the chances of their 
 survival. The pragmatist tends to be an informed decision-maker, so a human 
 being that relies on coincidence to obtain their best possible decision simply 
@@ -1255,9 +1256,39 @@ of satisfying details to persist as a body operating under integrity. For
 the self with their self-interest, the dual needs to use the ideal to transcend 
 the spatiotemporal mundanity and the pragmatics to set standards and definitions 
 for achievement is a constant balancing act that becomes a factor many times 
-in relevance, due to the demands for empirical performance, to the force of 
+in relevance, by the demands for empirical performance, to the force of 
 self-interest lofty and senseless without the definition of pragmatics and 
 ideals. 
 
+## More on philosophies of self-interest #28 
 
-
+The difficulty in generalizing self-interest is due, in notable part, to 
+the plasticity of human behavior given the cultural landscape and spatiotemporal 
+resources available to the self. The connectivities an individual has with their 
+surroundings, a great part of these surroundings being the artificial construct 
+material or immaterial made by other human beings, demands the individual to 
+adapt their styles of expression, to "conform" perhaps, in the same way that 
+a puzzle piece must fit its neighboring puzzle pieces in order to constitute 
+the whole. The analogy of the puzzle piece is a gross simplification of the 
+complexities that human societies of flux, economically and through other 
+aspects of rapid mobilization, are capable of. But the analogy does imply that 
+the individual is influenced by their society at large, in any directionality 
+of positive (exaggerated) and negative (understated) expression of what their 
+will advocates them to do. Those that are in positions of power relative to 
+their fellow human being may find the decorum of niceties and endless layers 
+of bureaucratic regulation ironically unwholesome because of excess and 
+superficiality. These particular individuals, out of their self-interest 
+to operate in haste and for immediate results impactful in messaging to others 
+their own power, do not base their actions on the obligation to appease 
+and flatter. Other individuals, based on their socio-economic positioning, 
+may actually have the same vanities and character flaws as those higher in 
+rank to them. These other individuals may also crave power and seek to do 
+harm to those disadvantaged. But ultimately, due to their obligation to 
+remain fixed at their socio-economic positions, cannot afford to show their 
+faces of wickedness and excess in contradiction by challenge to those higher 
+in rank to them. These broad descriptions of how individuals express themselves 
+due to their socio-economic status, despite the similarities in objectives 
+between their self-interests, is about the human being's utility of their 
+available means as well as their constant need to satisfy hierarchical 
+expectations as part of their temperance from excess that upsets the order 
+of their society at large. 
