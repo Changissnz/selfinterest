@@ -1240,4 +1240,11 @@ costs have inflicted themselves in the manner of permanence. Pragmatism allows t
 self the opportunity to understand the means, in abstract and technical forms, 
 that would allow them the greatest probabilities of achieving their vision, their 
 ideal, through the emphasis on choosing the best relative degree for the pertaining 
-issue and maintaining a mindfulness on the relations at play in the problem. 
+issue and maintaining a mindfulness of the relations at play in the problem. 
+The pragmatist seeks to define in terms of specifics, in order to cognitively pave 
+the way before actually pursuing the way. This pre-definition is important in 
+structuring the possibilities and the possibilities' corresponding decisions 
+in a manner superior to resting one's modus operandi purely on the language 
+of ideals, the loftiness of this kind of phrasing inconsiderate of the compromises 
+and technicalities that are sure to come in real-world decision-making and 
+application. 
