@@ -1247,4 +1247,13 @@ structuring the possibilities and the possibilities' corresponding decisions
 in a manner superior to resting one's modus operandi purely on the language 
 of ideals, the loftiness of this kind of phrasing inconsiderate of the compromises 
 and technicalities that are sure to come in real-world decision-making and 
-application. 
+application. Without the ideal, however, the self does not have to share the 
+language and symbolism that transcends the self to integrate the vision and 
+behavior of others. This could, in turn, prove problematic to the self as an 
+agent amongst the collective that requires more than the technical minutiae 
+of satisfying details to persist as a body operating under integrity. For 
+the self with their self-interest, the dual needs to use the ideal to transcend 
+the spatiotemporal mundanity and the pragmatics to set standards and definitions 
+for achievement is a constant balancing act that becomes a factor many times 
+in relevance, due to the empirical performance, to the force of self-interest 
+lofty without the definition of pragmatics and ideals. 
