@@ -1219,4 +1219,21 @@ into controlling for their self-interest. Those that act by their self-interest
 are not obliged to act pragmatically, for self-interest is a force that is a 
 primary driver of what is arguably "free will" for human beings, naturally granting 
 human beings the liberty to fight at great costs for their ideals that are 
-coincidentally contrarian to orthodox pragmatic practices. 
+coincidentally contrarian to orthodox pragmatic practices. The potential of 
+achievements through pragmatism revolves around mastery of the relative and the 
+relation. For instance, those that operate purely by their self-interest may 
+find themselves lost for direction that yields them gain. Instead of gain, there 
+is loss due to over-consumption, oversensuality, and miscomprehension of the 
+abstract and noble ideal when the ideal is put into objective form. These errors
+in decision-making are common for those that do not have the experience of 
+contemplating their intrinsic weaknesses that cannot be resolved or ignored 
+through efforts in the same direction, based on the directionality of their will 
+in charge of advancing their self-interest. The individual, with their self-interest, 
+may fall prey to their whim fostered by a will blind to the risks of their being 
+deluded by their ideals. Self-interest, then, cannot be a sole determining force 
+for a human being to understand what their long-term interests of gains are. Within 
+this force of self-interest contains the irrationality of passion and personal 
+belief. Without the guidance of pragmatic thought, those by their own self-interest 
+can only learn the better path through first experiencing costly mistakes, and 
+many of these mistakes cannot be rewinded back to the starting point before the 
+costs have inflicted themselves in the manner of permanence.
