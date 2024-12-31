@@ -1255,6 +1255,9 @@ of satisfying details to persist as a body operating under integrity. For
 the self with their self-interest, the dual needs to use the ideal to transcend 
 the spatiotemporal mundanity and the pragmatics to set standards and definitions 
 for achievement is a constant balancing act that becomes a factor many times 
-in relevance, due to the empirical performance, to the force of self-interest 
-lofty without the definition of pragmatics and ideals. 
+in relevance, due to the demands for empirical performance, to the force of 
+self-interest lofty and senseless without the definition of pragmatics and 
+ideals. 
+
+
 
