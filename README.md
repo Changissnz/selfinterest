@@ -1344,5 +1344,5 @@ matter of the individual, one with their own self-interest. The will of the
 individual can be simply for justifying the individual by invocation of the 
 ideal as justification, instead of genuinely believing in the ideal, although 
 the degree of genuine belief in anything, including the ideal, is not the 
-only pre-requisite to leading a life instead of being misguided by the symbols 
-in practice associated with the ideal. 
+only pre-requisite to leading a life instead of having one's life misguided 
+by the symbols in practice associated with the ideal. 
