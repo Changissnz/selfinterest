@@ -1342,11 +1342,11 @@ have if their thoughts and actions are geared towards the ideal, or rationalized
 in retrospect as being for the ideal? This question is tricky to answer on the 
 matter of the individual, one with their own self-interest. The will of the 
 individual can be simply for justifying the individual by invocation of the 
-ideal as justification, instead of genuinely believing in the ideal, although 
-the degree of genuine belief in anything, including the ideal, is not the 
-only pre-requisite for leading a life instead of having one's life misguided 
-by the symbols in practice associated with the ideal. Invocation of the 
-ideal is a convenient solution for self-interest: explain away the misdeeds, 
+ideal as the impeccable answer of brevity, instead of genuinely believing in 
+the ideal, although the degree of genuine belief in anything, including the 
+ideal, is not the only pre-requisite for leading a life instead of having one's 
+life misguided by the symbols in practice associated with the ideal. Invocation 
+of the ideal is a convenient solution for self-interest: explain away the misdeeds, 
 misgivings, and other errors as something confusingly both unavoidable and 
 necessary to fulfill the ideal through practice. In the usual course of these 
 explanations, it is the practice, after resulting in unideal losses, that 
