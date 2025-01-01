@@ -1268,7 +1268,7 @@ resources available to the self. The connectivities an individual has with their
 surroundings, a great part of these surroundings being the artificial construct 
 material or immaterial made by other human beings, demand the individual to 
 adapt their styles of expression, to "conform" perhaps, in the same way that 
-a puzzle piece must fit its neighboring puzzle pieces in order to constitute 
+a puzzle piece must fit with its neighboring puzzle pieces in order to constitute 
 the whole. The analogy of the puzzle piece is a gross simplification of the 
 complexities that human societies of flux, economically and through other 
 aspects of rapid mobilization, are capable of. But the analogy does imply that 
@@ -1314,3 +1314,35 @@ relevance of authority to the self-interests of others, or a force that, through
 the pragmatism of utmost consideration for the social construct, drives an 
 individual to pretend one way to satisfy their aims of another wanted outcome. 
 
+## More on philosophies of self-interest #29 
+
+The individual typically likes to project themself as a being of ideals, of 
+those things that cannot be so easily quantified and outside of the ordinariness 
+of the world's materialization. Regardless of what the individual really believes 
+in, the individual that claims to stand by their professed metaphysical bodies 
+of ideals is one that cannot be so conveniently rationalized by someone else. 
+The ideal stands, is the reason, when all else can crumble because of the material 
+impermanence. Stylistic forms of expression the individual takes up, as part of 
+their participation in their respective sphere/s of influence, tend to exude 
+the ideal, first and foremost, because the ideal is about as fundamental as 
+the axiom, yet also serves as a testament to the transcendental nature of the 
+individual past their potential of physical impact. The axiom, being an irreducible 
+component of the body of natural law, serves as the "root" explanation of all 
+natural phenomenon connected to it. The ideal, similarly, is the apex of human 
+desire and human conception of infallibility, and thus serves the individual's 
+constant need to justify the specifics of their possibly contradictory and 
+hypocritical actions; it is the ideal that is fought for, that is to be aspired 
+to, and for this to happen, sacrifices in the form of compromise and errors 
+are inevitable, so goes the thinking of those that explain themselves in terms 
+of their ideals instead of the minutiae of their actions. The sweetest actions, 
+the greatest monstrosities throughout history have been committed in the name 
+of the ideal. It is as if the ideal is an axiom for what free will the human 
+has. But truthfully, how much span of free will can the human being have if 
+their thoughts and actions are geared towards the ideal, or rationalized in 
+retrospect as being for the ideal? This question is tricky to answer on the 
+matter of the individual, one with their own self-interest. The will of the 
+individual can be simply for justifying the individual by invocation of the 
+ideal as justification, instead of genuinely believing in the ideal, although 
+the degree of genuine belief in anything, including the ideal, is not the 
+only pre-requisite to leading a life instead of being misguided by the symbols 
+in practice associated with the ideal. 
