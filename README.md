@@ -1099,7 +1099,7 @@ processes rest on fundamentally different centralities, including the visual foc
 What the self chooses to share with other selves is always a fraction of what 
 truths the self believes in. There is no way for anything more than that fraction: 
 besides from the required effort the self needs to expend to make for fuller and 
-fuller explanations, to the self's need to guard beliefs and facts that would 
+fuller explanations, the self has a need to guard beliefs and facts that would 
 be disadvantageous to them if revealed to the other. To complicate the matter 
 of the self's worldview, a collation of information operating in flux to produce 
 multiple images for understanding, based so heavily on the self's recognized 
