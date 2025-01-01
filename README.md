@@ -1351,4 +1351,4 @@ misgivings, and other errors as something confusingly both unavoidable and
 necessary to fulfill the ideal through practice. In the usual course of these 
 explanations, it is the practice, after resulting in unideal losses, that 
 constitutes the proof of the individual being one with their self-interest 
-in line with the ideal. 
+in parallel support for the ideal.
