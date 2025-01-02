@@ -1433,3 +1433,29 @@ rational-like expression, and is used to offer direction of morality and action 
 those individuals susceptible to believing the narrative, out of what the individuals 
 believe is for the betterment of themselves based on their self-interest, in which 
 case their will is for advancing the procedures of reactionary quality to the narrative. 
+On the use of the narrative for constructive purposes, the self that feels lost or at 
+odds with the course of their life's trajectory can be made to accept the realities of 
+their situation by the perspective embedded in the narrative they have interpreted as 
+fact by their belief. The narrative, for purposes of positive construction, offers 
+an explanation through the reality of purported opportunities for the self to 
+elevate their stature. There is more than grim facts of details, void of implication 
+and causality, that the narrative offers. The narrative can be used to give a sense 
+of righteousness to self-interest, that force that is not dependent on scruples to 
+operate. The narrative, as a tool of positive construction for the self, instills 
+confidence in the self to act by their self-interest, and also to perpetuate fears 
+based on the irrationalities of distortion into those adversarial to the self. 
+In any complex situation, there are many perspectives that can be formed to 
+interpret said situation. The narrative can give a sense of closure to the 
+individual that feels torn by the plurality of contradicting interpretation, 
+through the details selected in the manner of half-truths and other kinds of 
+distortions to validate the individual's sense of their own merit, a positive 
+elevator for their self-interest. Because the narrative is not required to be 
+based on fact, the narrative could always be constructed to push the perspective 
+that suits the desires of the individual's expectations. Without the narrative, 
+self-interest has only facts and interpretations gathered from their perception. 
+There is still yet the question of the proceeding, the objective that should be 
+attempted because of those facts and interpretations. Thus, the narrative removes 
+the self's need to continue their contemplation of morality and reason. And without 
+any further restraints, the self could very well act in accordance to the implications 
+and means pushed by the narrative, for what they believe is for the best, given 
+their self-interest. 
