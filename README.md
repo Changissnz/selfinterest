@@ -1416,7 +1416,7 @@ only effective on the cognitive processes of an individual. To clarify though, c
 being the process that yields the first step to any serious thought or action, cannot 
 be underestimated or overestimated without there also occurring errors in judgment, 
 and judgment gives way to decisions that are impactful to collective perception and 
-physical existences. The narrative changes perception and perspective of the individual. 
+physical existences. The narrative changes the individual's perception and perspective. 
 The reason for this occurrence of cause (the narrative) to effect (the changes onto 
 perception and perspective) is simple to understand: the narrative contains centralities 
 for cognition to recognize as motives, objectives, and symbols, and those that believe 
