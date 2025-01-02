@@ -1424,8 +1424,8 @@ in the narrative must also perceive things differently enough to accomodate the 
 messages of the narrative. Likewise, the perspective of the believer in the narrative 
 also undergoes changes, evidenced by the believer's language used, the ideals they claim 
 to now uphold, and the methodologies that they feel they have a right to use, all due 
-to the narrative. Some common uses of the narrative are to ascribe objectivity to that 
-which otherwise can only be opinionated on given the facts at disposal, to draw 
+to the narrative. Some common uses of the narrative are to ascribe constructed objectivity 
+to that which otherwise can only be opinionated on given the facts at disposal, to draw 
 conclusions on the matters that otherwise can only be speculated on due to the missing 
 of vital facts. The narrative fills in the holes of missing information, removes plausible 
 sources of doubt, uses language of collective acceptance or traditionalist practice to 
