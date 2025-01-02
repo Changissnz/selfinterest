@@ -1408,3 +1408,28 @@ direction of decision, cannot be truly eradicated. Dictates for self-interest to
 rely on emotive forces are vain because the choice to let in these forces is an innate 
 part of sentient existence; to conclude, sentient thought and action is not confined 
 to the rules of stoicism. 
+
+## More on philosophies of self-interest #31 
+
+The narrative is a powerful tool in relation to self-interest. Such power is factually 
+only effective on the cognitive processes of an individual. To clarify though, cognition, 
+being the process that yields the first step to any serious thought or action, cannot 
+be underestimated or overestimated without there also occurring errors in judgment, 
+and judgment gives way to decisions that are impactful to collective perception and 
+physical existences. The narrative changes perception and perspective of the individual. 
+The reason for this occurrence of cause (the narrative) to effect (the changes onto 
+perception and perspective) is simple to understand: the narrative contains centralities 
+for cognition to recognize as motives, objectives, and symbols, and those that believe 
+in the narrative must also perceive things differently enough to accomodate the persuading 
+messages of the narrative. Likewise, the perspective of the believer in the narrative 
+also undergoes changes, evidenced by the believer's language used, the ideals they claim 
+to now uphold, and the methodologies that they feel they have a right to use, all due 
+to the narrative. Some common uses of the narrative are to ascribe objectivity to that 
+which otherwise can only be opinionated on given the facts at disposal, to draw 
+conclusions on the matters that otherwise can only be speculated on due to the missing 
+of vital facts. The narrative fills in the holes of missing information, uses 
+language of collective acceptance or traditionalist practice to advance points by 
+rational-like expression, and is used to offer direction of morality and action to 
+those individuals susceptible to believing the narrative, out of what the individuals 
+believe is for the betterment of themselves based on their self-interest, in which 
+case their will is for advancing the procedures of reactionary quality to the narrative. 
