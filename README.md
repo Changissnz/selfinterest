@@ -1352,3 +1352,59 @@ necessary to fulfill the ideal through practice. In the usual course of these
 explanations, it is the practice, after resulting in unideal losses, that 
 constitutes the proof of the individual being one with their self-interest 
 in parallel support for the ideal.
+
+## More on philosophies of self-interest #30 
+
+Self-interest, as already noted, is driven by the individual's will. But there 
+are some rather important emotive bodies, not yet explicitly named, that influence 
+the will. On the negative end of the spectrum is fear. Fear is a classic irrational 
+influencer of the will. Fear causes one, no matter the amount of information they 
+have or the experiences they have had, to steer themselves, usually in ways not 
+completely uncontrollable by their will, towards routes they have already recognized 
+beforehand as decision sequences for the insane. Of course, fear is not an element 
+that results in universal outcomes for all those that experience it. Many individuals 
+have a seemingly perfect grasp over the influences that fear radiates. But the 
+"power", for lack of a more encapsulating term, that fear exerts onto sentient 
+cognition is most definitely not null, despite the apparent lack of symptoms the 
+individual may express in response to fear. Due to fear, narratives are concocted 
+to rationalize the unknown. Since the unknown cannot be properly rationalized because 
+knowledge of it lacks in truthful substance, the narratives can only be structured 
+to yield answers in the veins of probability or answers that are imprecise due to 
+their reliance on metaphorical reasoning. One whose self-interest operates under 
+fear is equivalently, one that has decided to de-emphasize their faculty of reason 
+to proceed onto their preferred answer. The example of the emotive body that is 
+fear makes for a comprehensive discussion on the vulnerabilities of those that 
+operate purely on their self-interest without the guardrails of default reasoning, 
+the only surefire class of decision-making that can yield replicable and rationalizable 
+solutions. The force of self-interest can be likened to a rabid animal that has 
+lost its ability to recognize and correct its insanity, or to a fiend that has 
+compulsive needs to satisfy their cravings of flesh or inanimate substance. A common 
+question, usually asked with great wonder, is how someone that operates by their 
+self-interest can make decisions so adverse to their livelihood of mind and body, 
+even when there is opportunity of valuable information to make better decisions. 
+This question is usually answered by psycho-analytic means, especially when there 
+is not enough quantitative information to present explanation by the number and the 
+figure. A simple answer rests on how the individual processes fear. By believing 
+in the aura that fear radiates into them, the individual closes their mind to 
+the outlets that would have granted them greater solution through decisions 
+better because the decisions are more informed ones. The will can ward off fear, 
+but could just as well let in fear as an influencer variable of the will, practically 
+a controller of the will. The actualization of success by an individual with their 
+self-interest is oftentimes very dependent on the constituents of their emotive 
+state. There is fear that represses. And then there is confidence that motivates 
+self-interest to proceed in resistive or forward ways. Both fear and confidence 
+are emotive forces that seek to govern the will, by presenting the circumstances 
+of unknown or incomplete empirical knowledge as an illusion in the directions 
+of positivity (inflation as the willfully ignorant motivator of confidence) and 
+negativity (deflation as the repressive fear). In the impartial perspective on 
+the utility of emotive forces, such as fear and confidence, self-interest can 
+be greatly disserviced by their utility in the long run, where objectivity and empiricism 
+yield solutions more durable because of their resting on rational bases, instead of 
+the ephemeral power of spontaneity and personal motivation that these two emotive 
+forces encourage. However, in the grand scheme of the concept of free will, the choice 
+of the individual with their self-interest to rely on the tools of fear and confidence, 
+as makers and breakers of the illusions that drive them to act in any direction of 
+decision, cannot be truly eradicated. Dictates for self-interest to not rely on 
+emotive forces are vain because the choice to let in these forces is an innate 
+part of sentient existence; to conclude, sentient thought and action is not confined 
+to the rules of stoicism. 
