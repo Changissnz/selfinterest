@@ -1530,7 +1530,7 @@ here on planet Earth if the individual were to embark on their "higher road"
 instead of the socially acceptable road? Here in this elaboration on the 
 intersection of the social construct, the sphere of influence, and the 
 narrative, the individual with their self-interest does not have to be 
-a servant only to their self-interest, but also acts as an agent of plasticity 
+a servant only to their self-interest, but also be an agent of plasticity 
 for satisfying the social rules of relativity and agreeableness. And the 
 self, being one with their self-interest, typically takes up the liberty 
 of justifying the compromises they felt forced to make, a stipulation 
