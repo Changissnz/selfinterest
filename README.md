@@ -1427,12 +1427,12 @@ to now uphold, and the methodologies that they feel they have a right to use, al
 to the narrative. Some common uses of the narrative are to ascribe objectivity to that 
 which otherwise can only be opinionated on given the facts at disposal, to draw 
 conclusions on the matters that otherwise can only be speculated on due to the missing 
-of vital facts. The narrative fills in the holes of missing information, uses 
-language of collective acceptance or traditionalist practice to advance points by 
-rational-like expression, and is used to offer direction of morality and action to 
+of vital facts. The narrative fills in the holes of missing information, removes plausible 
+sources of doubt, uses language of collective acceptance or traditionalist practice to 
+advance points by rational-like expression, and offers direction of morality and action to 
 those individuals susceptible to believing the narrative, out of what the individuals 
 believe is for the betterment of themselves based on their self-interest, in which 
-case their will is for advancing the procedures of reactionary quality to the narrative. 
+case their will is for advancing the procedures of reactionary follow-up from the narrative. 
 On the use of the narrative for constructive purposes, the self that feels lost or at 
 odds with the course of their life's trajectory can be made to accept the realities of 
 their situation by the perspective embedded in the narrative they have interpreted as 
@@ -1456,6 +1456,6 @@ self-interest has only facts and interpretations gathered from their perception.
 There is still yet the question of the proceeding, the objective that should be 
 attempted because of those facts and interpretations. Thus, the narrative removes 
 the self's need to continue their contemplation of morality and reason. And without 
-any further restraints, the self could very well act in accordance to the implications 
+any further restraints, the self could very well completely act for to the implications 
 and means pushed by the narrative, for what they believe is for the best, given 
 their self-interest. 
