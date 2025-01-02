@@ -1459,3 +1459,80 @@ the self's need to continue their contemplation of morality and reason. And with
 any further restraints, the self could very well completely act for the implications 
 and means pushed by the narrative, for what they believe is for the best, given 
 their self-interest. 
+
+## More on philosophies of self-interest #32 
+
+There exist strong relations between the social constructs that human beings 
+create, based on their acceptances and postulations of social theory, and the 
+sphere of influence, how these social constructs operate in radiating manner 
+from agents of the social construct onto other agents of the same social construct, 
+as well as the narrative, one of the prime tools that spheres of influence use 
+to foster belief for what is deemed the appropriate thought and action given a 
+world that rests on probabilities and the elevation of one's judgment over the 
+judgment of others. The social construct of human understanding, devised and practiced 
+by humans, is the apex of human will's conceptualization for order in thought and 
+behavior, both of which have freedoms that are not ordered by natural law, instead 
+a utility of the constants that comprise natural law. The social construct is what 
+gives unifying meaning to phenomenon, for all beings in that construct to participate 
+in for equality of belief, that otherwise would be interpreted by an individual 
+through their own perception, yielding answers that are subjective in the way of 
+opinion to others. Unlike natural phenomena that rests their actualization on the 
+constants that comprise natural law, the human being seems to always have a choice 
+to think or do some thing. There is a lack of default reason, cause-and-effect that 
+is fixed and derived entirely from natural law, in human thought and behavior. In 
+fact, oftentimes, the human being, due to their self-interest, commits some action 
+that is both costly to themself and damaging to others, but then that same human 
+being justifies their action as something within their rights, an expression out 
+of their ethics self-professed as necessary, explanations that really cannot be 
+rationalized in the manner of propositional logic or calculus as being purely "good", 
+as in "optimal", given the resources and the choice available to them. Social values 
+are the first thing to be considered in relations between human beings, the most 
+frequent aspect to be disagreed upon due to the openness in interpreting the artificial 
+axiom, the rule that is not at the same fundamental level as those of natural law 
+yet still declared by human societies to be of the same correctness given the social 
+construct; the quality of openness in interpreting the artificial axiom is itself 
+probably an axiom on par with natural law, due to the many special cases stemming from 
+the sheer number of possibilities from spatiotemporal preference in choice. Conventionally, 
+any science outside of the fundamental hard sciences (that is what natural law is) 
+cannot be anymore than a soft science due to the freedoms of negotiating and 
+formulating the rules in ways arbitrary to nature yet seemingly most fitting for 
+the belief systems that the corresponding society adheres to. Social constructs, 
+especially spheres of influences, are for the purpose of structuring the subjective 
+into the belief of fact. But at their default disposal are not the irreducible axioms, 
+but rules of relativity and agreeableness. Economic concepts such as zero-sum and 
+non-zero sum make themselves very present as ways to form objective and meaning of what 
+is right or wrong, given the finite resources and the ever-present disputability of 
+actions fallible by preference of one over the other in the context of what 
+is universally recognized as vice. Zero-sum decision-making acts as a template for 
+justifying the double-standard: doing what would be unequivocally considered wrong 
+to one's self or one's group (their sphere of influence) is, on the contrary, 
+completely within their rights to inflict upon another, due to such aspects as 
+survivalism, in other words, necessary competition such that the higher moral 
+principles are forced to be ignored in order to tend to the livelihood of the 
+self and their sphere of influence. The narratives that a sphere of influence 
+espouses, these same narratives that the self usually also upholds as part of 
+their belief system, for their self-interest of course, allow for prioritization 
+of certain courses of action and attention (the centralities) that the society 
+is to take. The self, always a servant to their self-interest, must always be 
+keen on the narratives of the social construct they preside in. The narrative 
+is what gives the first impression, by transforming details of mundanity and 
+incredulity alike into the image of preferred symbols and morals to be regarded 
+in the same vein as natural law, although they are borne from the realm of 
+sentient interpretation. The narrative gives the collective unified meanings 
+on the infinitessimal grades of information with respect to the situation/s. 
+For the individual with their self-interest, there are compromises bound for 
+them to participate in, as a stipulation of their membership in the social 
+construct that operates synonymously as one or more spheres of influence. 
+What is truth for the self then, if the truth goes against the noble lie, 
+or the noble's lie? What is "taking the higher road" then, when the agents 
+of a social construct have decided to condemn any individual to damnation 
+here on planet Earth if the individual were to embark on their "higher road" 
+instead of the socially acceptable road? Here in this elaboration on the 
+intersection of the social construct, the sphere of influence, and the 
+narrative, the individual with their self-interest does not have to be 
+a servant only to their self-interest, but also acts as an agent of plasticity 
+for satisfying the social rules of relativity and agreeableness. And the 
+self, being one with their self-interest, typically takes up the liberty 
+of justifying the compromises they felt forced to make, as a stipulation 
+of their membership in the social construct, as something optimal and correct 
+due to and because of their self-interest. 
