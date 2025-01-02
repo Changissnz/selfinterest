@@ -1456,6 +1456,6 @@ self-interest has only facts and interpretations gathered from their perception.
 There is still yet the question of the proceeding, the objective that should be 
 attempted because of those facts and interpretations. Thus, the narrative removes 
 the self's need to continue their contemplation of morality and reason. And without 
-any further restraints, the self could very well completely act for to the implications 
+any further restraints, the self could very well completely act for the implications 
 and means pushed by the narrative, for what they believe is for the best, given 
 their self-interest. 
