@@ -1536,3 +1536,67 @@ self, being one with their self-interest, typically takes up the liberty
 of justifying the compromises they felt forced to make, a stipulation 
 of their membership in the social construct, as something optimal and correct 
 due to and because of their self-interest. 
+
+## More on philosophies of self-interest #33
+
+Reasoning by common sense points to the force of self-interest as the 
+metaphysical culprit for a sentient being's selfishness. The sentient 
+being, by their self-interest, has the power to act freely within the 
+constraints of their spatiotemporal setting. The idea that self-interest 
+is a force that naturally leads to one exhibiting selfishness is based, 
+first and foremost, on the host of self-interest being that one, the self, 
+so that all thought and behavior done by that self can naturally be traced 
+back to them, and these efforts are usually to benefit the self out of 
+the pragmatic to prioritize the self above others, even in collectivist 
+societies, perhaps especially in collectivist societies since no one 
+loves the self in these societies as much as the self from their 
+self-interest. Selfishness can be understood by the partitioning of 
+quantity, between the self and others. The selfish value their views 
+above others, and also aspire for power and material value of magnitudes 
+disproportionately for them at others' loss. However, if one's self-interest 
+is the only factor to consider them as a being that is more selfish than 
+not, then claims of their being selfish cannot proceed by any rational 
+argument. Self-interest is the force that could give to others as much 
+as that to the self. In certain constructs, especially in those that 
+operate by non-zero sum, there is actually a pronounced stigmatization 
+of those that disproportionately serve themselves over others. The ideal 
+in these non-zero sum constructs is that of equal distribution, of fair 
+and accurate reciprocity, and of holding the "selfless" act as higher in 
+ethical integrity than the selfish act. On the last point of the "selfless" 
+act, such labeling seldom goes without there being misconception. The 
+"selfless" act is committed by one that still operates by their self-interest. 
+The source that is the driving force for a selfless act is the same as that 
+of the selfish act, namely self-interest. One way to differentiate an 
+action is being selfish as opposed to selfless is by a weighted scheme that 
+takes as variables the qualities of reference from said action to the acting 
+self. Some variables are easier than others to judge on the spectrum of 
+selfless to selfish, such as financial values and material resources. 
+Variables that deal with the metaphysical, however, are subject to 
+interpretation. For example, one that claims to have conducted an action 
+to fulfill their ideal could be classified as being selfless, for they 
+took the action for the ideal that exists outside of their sole existence, 
+in apparent disregard for their existence. However, if the criteria is that 
+one's believed ideals is a part of their self, then one that commits actions 
+for what they claim to be for their ideals is selfish by the direct connection 
+of fulfilling the ideal coinciding as efforts to fulfill the self. So the 
+direction of gains intended by the self, regardless of any invoked ideal, is 
+towards the self. As an example, some human beings find a sense of satisfaction 
+in being charitable or empathetic, both of these adjectives being ideals. And 
+although the actions that can be labeled charitable or empathetic are not in 
+complete reference to the self but to the other, the fact that the self finds 
+a sense of satisfaction from the exchange to the other means that the self 
+cannot be logically excluded from being categorized as selfish; the ratio  
+in preferring the self over the other in acts of charity and empathy seldom 
+is ever zero, as in being completely selfless. Such is the fact of sentient 
+existence always necessitating a consideration for the self, out of self-interest, 
+even in exchanges inarguably more selfless than not. There are inexact 
+correlations between the spectrum of selfless to selfish and the spectrum of 
+ideal to pragmatic, and as such, every time there is an attempt to categorically 
+label an individual as being selfless, void of the attribute of selfishness 
+often considered a societal vice, the questions of the involved ideals and 
+pragmatics, as influential forces at play in the social construct as well as 
+the psyche of the individual, have to also be pondered on for wholesome and 
+non-skewed judgment of the individual. In quantitative terms, there is always 
+something that could be quantified as a payoff to the self for acting more so 
+in the interest of their self or the interest of others, both of these routes' 
+efforts spurred by the force of the self's self-interest.
