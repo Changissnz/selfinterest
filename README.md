@@ -1606,9 +1606,11 @@ does what they feel and think fit, oftentimes. Accurately labeling one as being
 more selfish or more selfless requires the weighted consideration of the pertaining 
 variables, but even then, there is room for interpretation that is due not only 
 to the whims and objectives of the culture, the collective, but also to the 
-individual judges of character. The arguments for one's self-interest to be a force 
-for their selfish gain have to remain as subjective notions for factual clarity, 
-unless quantification that is complete and accurate in the consideration of variables 
-takes place. Even so, such quantification for social matters on social terms is a 
-matter that takes as precedent in importance the design over the raw facts, those 
-details that require interpretation (through the design) for labeling by social terms. 
+individual judges of character. The arguments for a specific one's self-interest 
+to be a force for their selfish gain have to remain as subjective notions for 
+factual clarity, unless quantification that is complete and accurate in the 
+consideration of variables, in the scope of the partitioning between the self and 
+the others, takes place. Even so, such quantification for social matters on social 
+terms is a matter that takes as precedent in importance the design over the raw 
+facts, those details that require interpretation (through the design) for 
+labeling by social terms. 
