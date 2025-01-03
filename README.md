@@ -1599,4 +1599,11 @@ the psyche of the individual, have to also be pondered on for wholesome and
 non-skewed judgment of the individual. In quantitative terms, there is always 
 something that could be quantified as a payoff to the self for acting more so 
 in the interest of their self or the interest of others, both of these routes' 
-efforts spurred by the force of the self's self-interest.
+efforts spurred by the force of the self's self-interest. The prioritization by 
+the self, through thought and action, for their self or for others still bears 
+the direct link back to the self. To conclude, the self, through their self-interest, 
+does what they feel and think fit, oftentimes. Accurately labeling one as being 
+more selfish or more selfless requires the weighted consideration of the pertaining 
+variables, but even then, there is room for interpretation that is due not only 
+to the whims and objectives of the culture, the collective, but also to the 
+individual judges of character. 
