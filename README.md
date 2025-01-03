@@ -1576,9 +1576,9 @@ interpretation. For example, one that claims to have conducted an action
 to fulfill their ideal could be classified as being selfless, for they 
 took the action for the ideal that exists outside of their sole existence, 
 in apparent disregard for their existence. However, if the criteria is that 
-one's believed ideals is a part of their self, then one that commits actions 
+one's believed ideals are a part of their self, then one that commits actions 
 for what they claim to be for their ideals is selfish by the direct connection 
-of fulfilling the ideal coinciding as efforts to fulfill the self. So the 
+of fulfilling the ideal being coincidentally efforts to fulfill the self. So the 
 direction of gains intended by the self, regardless of any invoked ideal, is 
 towards the self. As an example, some human beings find a sense of satisfaction 
 in being charitable or empathetic, both of these adjectives being ideals. And 
