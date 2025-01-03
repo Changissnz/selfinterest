@@ -1578,9 +1578,10 @@ took the action for the ideal that exists outside of their sole existence,
 in apparent disregard for their existence. However, if the criteria is that 
 one's believed ideals are a part of their self, then one that commits actions 
 for what they claim to be for their ideals is selfish by the direct connection 
-of fulfilling the ideal being coincidentally efforts to fulfill the self. So the 
-direction of gains intended by the self, regardless of any invoked ideal, is 
-towards the self. As an example, some human beings find a sense of satisfaction 
+of fulfilling the ideal being coincidentally efforts to fulfill the self. By 
+this strict association of the ideal with the self-interest, the direction of 
+gains intended by the self, regardless of any invoked ideal, is towards the 
+self. As an example, some human beings find a sense of satisfaction 
 in being charitable or empathetic, both of these adjectives being ideals. And 
 although the actions that can be labeled charitable or empathetic are not in 
 complete reference to the self but to the other, the fact that the self finds 
