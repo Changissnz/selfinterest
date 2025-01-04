@@ -1615,3 +1615,66 @@ the others, takes place. Even so, such quantification for social matters on soci
 terms is a matter that takes as precedent in importance the design over the raw 
 facts, those details that require interpretation (through the design) for 
 labeling by social terms. 
+
+## More on philosophies of self-interest #34
+
+Self-deprecation consists of acts by the self, naturally counter-intuitive in 
+its rationalization. Why would one place efforts towards debasing their image 
+for the perception by others? Take the concept of self-deprecation a few steps 
+further in the direction of negativity, and interpretation on that individual 
+would quickly shift from their being self-deprecating to their exhibiting a 
+self-hatred or a self-loathing. The individual, in their acknowledgment of their 
+own mortality and finiteness, would not be naturally inclined by their self-interest 
+to deprecate their self. Quantitatively, self-deprecation makes the minor flaw 
+into a sort of irreconciliable difference, the near-perfection into the forever 
+flawed. Self-deprecation is for alteration of one's image that they want to 
+project to the external world, full of other perceptual beings, with their 
+own perspectives and methods of interpretation. However, the topics of 
+self-deprecation seldom rest solely with the one deprecating their self. 
+If the insults and mockery of self-deprecation were to be geared entirely against 
+the self, then by common sense, any individual that engages in self-deprecation 
+would, in fact, be committing assassination of their own character. Despite 
+the superficiality of the image individuals and groups attempt to project about 
+themselves to others, the image once tarnished is difficult to restore to the 
+same degree and nature of idealism before the effacement, especially if the source 
+of the effacement persists. Self-deprecation, as something that affects only the 
+self that commits it, would not be practical for self-interest. In practice, 
+self-deprecation works its effects, not contained only to the self that uses 
+it, by appealing to the propensities of others' cognition. The topics of 
+self-deprecation are frequently those categorized as the universal concept, 
+practiced by virtually all societies structured in some form of socio-economic 
+implementation, such as "chivalry", "honor", "honesty", "modesty", "servitude", 
+and "status". As such, when one expresses their self-deprecation by these 
+universal themes, it is not only them that is impacted by their insult. The 
+thematic broadness of self-deprecation affects all those that abide, in some 
+manner of thought and action, to the universal concept that is either alluded 
+to or explicitly mentioned. Techniques of self-deprecation propagate effect 
+through a few vectors: humor, commonality, and revelation. The indirectness 
+of one using self-deprecation to effect insult onto the other/s has certain 
+advantages to it. For one, the other that is referenced by the insult does 
+not have the basis of substance from the self-deprecating to state that they 
+are being insulted without admitting to their faults alluded to. There cannot 
+be much opportunity to denounce the self-deprecating as one that "stooped 
+low enough" to use ad hominem attacks, for quite literally, the self-deprecating 
+are using themselves as the subject of their insults. What insults perceived 
+by others are due to their interpretation of reference alluding to their own 
+behaviors and way of living, so there must be first acknowledgment from the 
+others that the self-deprecating indirectly portrays them to be. Comparatively, 
+the use of ad hominem attacks is conventionally viewed as clearly antagonistic 
+due to the qualities of bluntness and sharpness directed at some individual 
+or group, thus giving that individual or group logical justification to 
+denounce the user of ad hominem as clearly belligerent, clearly malicious 
+in spirit of intent. Self-deprecation, besides from being a strategy of 
+indirect criticism of the other based on the other's intersection with the 
+universal ideal that they, according to the self-deprecating, have put into 
+grotesque, perverse, and dishonest practice exclusively for their self-interest 
+in utter contempt of all else, also acts as an illusory defense for the 
+self-deprecating. The self-deprecating, out of their need to maintain the 
+appearance of harmlessness (no threat through superiority in quality), uses 
+the strategy of self-deprecation. To avoid accusations from others of their 
+supposedly egoistic ways, coincidentally and intentionally fallible, the 
+self-deprecating insults themselves by way of presenting their conditions 
+and circumstances as half-truths leaning towards the negative light, such 
+as inadequacy and stupidity, in order to portray themselves as ones both 
+humble and modest in how they view themselves, not in the way of superiority 
+in status that is often cause for adversarial envy. 
