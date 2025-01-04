@@ -1628,7 +1628,7 @@ own mortality and finiteness, would not be naturally inclined by their self-inte
 to deprecate their self. Quantitatively, self-deprecation makes the minor flaw 
 into a sort of irreconciliable difference, the near-perfection into the forever 
 flawed. Self-deprecation is for alteration of one's image that they want to 
-project to the external world, full of other perceptual beings, with their 
+project to the external world, full of other perceptual beings with their 
 own perspectives and methods of interpretation. However, the topics of 
 self-deprecation seldom rest solely with the one deprecating their self. 
 If the insults and mockery of self-deprecation were to be geared entirely against 
@@ -1640,7 +1640,7 @@ same degree and nature of idealism before the effacement, especially if the sour
 of the effacement persists. Self-deprecation, as something that affects only the 
 self that commits it, would not be practical for self-interest. In practice, 
 self-deprecation works its effects, not contained only to the self that uses 
-it, by appealing to the propensities of others' cognition. The topics of 
+it, by appealing to the propensities of others' conceptual identities. The topics of 
 self-deprecation are frequently those categorized as the universal concept, 
 practiced by virtually all societies structured in some form of socio-economic 
 implementation, such as "chivalry", "honor", "honesty", "modesty", "servitude", 
@@ -1659,14 +1659,14 @@ low enough" to use ad hominem attacks, for quite literally, the self-deprecating
 are using themselves as the subject of their insults. What insults perceived 
 by others are due to their interpretation of reference alluding to their own 
 behaviors and way of living, so there must be first acknowledgment from the 
-others that the self-deprecating indirectly portrays them to be. Comparatively, 
-the use of ad hominem attacks is conventionally viewed as clearly antagonistic 
-due to the qualities of bluntness and sharpness directed at some individual 
-or group, thus giving that individual or group logical justification to 
-denounce the user of ad hominem as clearly belligerent, clearly malicious 
-in spirit of intent. Self-deprecation, besides from being a strategy of 
+others that the self-deprecating is indirectly portraying them in some negative 
+light. Comparatively, the use of ad hominem attacks is conventionally viewed 
+as clearly antagonistic due to the qualities of bluntness and sharpness directed 
+at some individual or group, thus giving that individual or group logical 
+justification to denounce the user of ad hominem as clearly belligerent, clearly 
+malicious in spirit of intent. Self-deprecation, besides from being a strategy of 
 indirect criticism of the other based on the other's intersection with the 
-universal ideal that they, according to the self-deprecating, have put into 
+universal concept that they, according to the self-deprecating, have put into 
 grotesque, perverse, and dishonest practice exclusively for their self-interest 
 in utter contempt of all else, also acts as an illusory defense for the 
 self-deprecating. The self-deprecating, out of their need to maintain the 
@@ -1674,7 +1674,8 @@ appearance of harmlessness (no threat through superiority in quality), uses
 the strategy of self-deprecation. To avoid accusations from others of their 
 supposedly egoistic ways, coincidentally and intentionally fallible, the 
 self-deprecating insults themselves by way of presenting their conditions 
-and circumstances as half-truths leaning towards the negative light, such 
-as inadequacy and stupidity, in order to portray themselves as ones both 
-humble and modest in how they view themselves, not in the way of superiority 
-in status that is often cause for adversarial envy. 
+and circumstances as half-truths (exaggerations, understatements, derogatory 
+metaphors) leaning towards the negative light, such as inadequacy and stupidity, 
+in order to portray themselves as ones both humble and modest in how they view 
+themselves, not in the way of superior status that is often cause for adversarial 
+envy. 
