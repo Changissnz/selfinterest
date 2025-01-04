@@ -1665,7 +1665,7 @@ as clearly antagonistic due to the qualities of bluntness and sharpness directed
 at some individual or group, thus giving that individual or group logical 
 justification to denounce the user of ad hominem as clearly belligerent, clearly 
 malicious in spirit of intent. Self-deprecation, besides from being a strategy of 
-indirect criticism of the other based on the other's intersection with the 
+indirect criticizing the other based on the other's intersection with the 
 universal concept that they, according to the self-deprecating, have put into 
 grotesque, perverse, and dishonest practice exclusively for their self-interest 
 in utter contempt of all else, also acts as an illusory defense for the 
