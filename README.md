@@ -1586,7 +1586,7 @@ in being charitable or empathetic, both of these adjectives being ideals. And
 although the actions that can be labeled charitable or empathetic are not in 
 complete reference to the self but to the other, the fact that the self finds 
 a sense of satisfaction from the exchange to the other means that the self 
-cannot be logically excluded from being categorized as selfish; the ratio  
+cannot be logically excluded from being categorized as selfish; the ratio 
 in preferring the self over the other in acts of charity and empathy seldom 
 is ever zero, as in being completely selfless. Such is the fact of sentient 
 existence always necessitating a consideration for the self, out of self-interest, 
@@ -1686,3 +1686,66 @@ is also subject to deflationary interpretation by their being insulted. Likewise
 the use of self-deprecation, as a metaphorical shield, can also be driven by the 
 self-interested's need to defend their image from claims of egoism and other 
 qualitative personal attacks. 
+
+## More on philosophies of self-interest #35 
+
+Continuing on with the discussion from part 34, self-deprecation can be 
+categorized as antagonistic techniques, one that literally but insincerely 
+attacks the self for actually attacking an other based on the universal 
+concept's reference to them. As already mentioned, the objective of those 
+that practice self-deprecation is rarely to assassinate their own character, 
+and the criticizing power of such practices must therefore transfer over 
+by negative light onto others based on their commonalities with the concepts 
+expressed by the self-deprecating. Any antagonistic action employed by 
+the self is, by defaults resting on questionable notions such as moral 
+relativism, challengeable by interpretation subjecting said actions into 
+the realm of doubt on their correctness. There is the classic saying, 
+"two wrongs do not make a right", rather simple to understand from 
+an arithmetical perspective, although such wisdom has never produced any 
+conclusive righteousness from both ends in the longevity of time. Despite 
+the inherent freedoms (the default autonomies of the individual life) that 
+the self of any individual is granted in their thinking and taking action, 
+there are some principles that can reliably predict how an individual would 
+appear and actually behave as an antagonist for their self-interest of 
+domination or maintaining power with respect to another. The self, by their 
+self-interest, acts by relativity to the existing power dynamics. One that 
+is part of the rule over sentient beings, for example, must take care to 
+not appear as excessively cruel and prejudiced, for these appearances that 
+may in actuality be true do act as building blocks for resistance to the 
+rule. It is for this reason that the self, if put into positions of 
+consolidated power and privilege over others, outwardly restrains their 
+offenses not only because the social system they are put in charge of 
+already does the work of brutal repression and elegant persuasion of those 
+unruly, but also because of such things as the risk of their losing to 
+the challenger as grounds for there deposition. The infrastructure that 
+these selves are in official control of also grants them the metaphorical 
+tentacles to inflict impact much more than by their direct hands. Frequent 
+courses of action for the ruler/s forced to deal with sentient beings viewed 
+as problematic are via "playing things with class", meaning to do things 
+as elegant as possible by their capabilities, such that their flaws in 
+their practice of power are not conveniently traceable by others that 
+would then reproduce evidence that posits the treachery of the ruler/s. 
+On the converse, the self that is part of a challenger movement to those 
+officially part of the rulership is not beholden to the pragmatic of 
+outward restraint. In the spectrum of liberation to conservation, the 
+self as a challenger is undeniably part of the liberation. There is a 
+status quo that the self, as a challenger, feels that they must challenge, 
+as part of their own rights, thus straying from the path of conservation 
+to be the first-mover in offense against the status quo. From the perspective 
+of the challenger self, the conservation has disserviced them. They, by 
+their self-interest, have the liberty to seek retribution for this disservice, 
+so by whatever means they think necessary to inflict as much destabilizing 
+offense that they feel fit, for "the ends justify the means", their self-interest 
+is the force behind their challenge to the status. The perplexity of understanding 
+the self, when they are in the role of a challenger instead of a ruler, revolves 
+around the perceived flaws they are attempting to correct. The system of the 
+status quo does not suit the self, based on the beliefs generated from their 
+self-interest. Self-justifying selves would therefore reason, whatever 
+flawed means they used and are to use to antagonize the adversary in charge 
+of their social construct and all the miseries wrought onto them, pale in 
+the relativity of comparison to the flaws of the rulership. Self-interest, 
+as a force for the non-total self, being subject to the conditions of the 
+default social construct, oscillates between acting as a controller of 
+circumstances (rulership), possibly verging on despotic behavior if not 
+unquestionable dictatorship, to being an agent of outward offense when they 
+are a challenger to the rulership. 
