@@ -1645,7 +1645,7 @@ self-deprecation are frequently those categorized as the universal concept,
 practiced by virtually all societies structured in some form of socio-economic 
 implementation, such as "chivalry", "honor", "honesty", "modesty", "servitude", 
 and "status". As such, when one expresses their self-deprecation by these 
-universal themes, it is not only them that is impacted by their insult. The 
+universal concepts, it is not only them that is impacted by their insult. The 
 thematic broadness of self-deprecation affects all those that abide, in some 
 manner of thought and action, to the universal concept that is either alluded 
 to or explicitly mentioned. Techniques of self-deprecation propagate effect 
