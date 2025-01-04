@@ -1678,10 +1678,11 @@ and circumstances as half-truths (exaggerations, understatements, derogatory
 metaphors) leaning towards the negative light, such as inadequacy and stupidity, 
 in order to portray themselves as ones both humble and modest in how they view 
 themselves, not in the way of superior status that is often cause for adversarial 
-envy. Self-deprecation, a deflationary illusion technique of the self, onto the 
+envy. Self-deprecation, a deflationary illusion technique of the self onto the 
 self done for their self-interest, is metaphorically something like a double-edged 
 sword. Through the collateralism of simultaneously referencing the self and the 
 other through mocking the other's practice of the universal concepts, the other 
 is also subject to deflationary interpretation by their being insulted. Likewise, 
-the use of self-deprecation can also be driven by the self-interested's need to 
-defend their image from claims of egoism and other qualitative personal attacks. 
+the use of self-deprecation, as a metaphorical shield, can also be driven by the 
+self-interested's need to defend their image from claims of egoism and other 
+qualitative personal attacks. 
