@@ -1715,7 +1715,7 @@ appearances that may in actuality be true do build rationale for resistance
 to the rule. It is for this reason that the self, if put into 
 positions of consolidated power and privilege over others, outwardly 
 restrains their offenses not only because the social system they are put 
-in charge of already does the work of brutal repression and elegant 
+in charge of already does the work of brutal oppression and elegant 
 persuasion of those unruly, but also because of such things as the risk 
 of their losing to the challenger as grounds for their deposition. The 
 infrastructure that these selves are in official control of also grants 
