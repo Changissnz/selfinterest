@@ -1754,3 +1754,27 @@ when they are a challenger to the rulership. The objective remains the
 same for the political self, regardless of their being the ruler or 
 the challenger: power. Obtaining if not retaining power in their wanted 
 form. 
+
+## More on philosophies of self-interest #36 
+
+The artificial axiom can never be on the same low-level of natural 
+instantiation as the axiom, the unit of source for the cause, the 
+indisputable principle of the natural world, a world that behaves and 
+appears less natural by the constructs and mannerisms devised and adhered 
+to by sentient beings, based on their will. These constructs and mannerisms 
+do reason to be arbitrary because of the premise that they can exist or 
+be actualized because of natural law, but they are based on reasoning 
+very unlike the indisputability of natural law, in the way of abidement 
+to the axiom's constant dynamic and the universal formula for the cause, 
+such as the condition/s that consistently activate the axiom's actualization. 
+There is no inherent consistency in the actualization (execution, usage) of 
+the artificial axiom; the artificial axiom is a design by sentience to be 
+used for the orders and constructs established by sentience. Any principle 
+past the hard sciences, and especially past economic principles of finiteness, 
+zero-sum, and cooperation as non-zero sum is an artificial construct derived 
+from an impure combinatorial fusing of socially acceptable views, still requiring 
+the voluntary will to be actualized, and the indisputable natural. The artificial 
+axiom does not automatically act, as in autonomous systems that rely on consistency 
+in the makings of their automation as effect from the cause that impacts them. There 
+is will involved in order for the artificial axiom to bear relevance. 
+
