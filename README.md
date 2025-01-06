@@ -1862,10 +1862,11 @@ is merely a stub, to clarify, a baseline convention. Practices labeled
 either pragmatic or ideal do require a certain coherence of the self with 
 their surroundings, with other selves in contexts of competition and 
 cooperation, and what is "pragmatic" or "ideal" is incontrovertibly 
-connected to the demands, of arbitrary source, onto the self. And the 
-demands, placed onto the self, cannot always be borne from the self's 
-lone self-interest, void of influence from the interests of other selves. 
-This terse statement is yet another rephrasing and proof of the self, as 
-in the human self, having to play the role of the "social creature", 
-a label of truth constant for them so long as there are at least two 
-selves in contact with one another. 
+connected to the demands, of arbitrary source, onto the self. The demands 
+are a crucial determinant in the actualities of pragmatism and idealism 
+for the self's quantifiable gains. And the demands, placed onto the self, 
+cannot always be borne from the self's lone self-interest, void of influence 
+from the interests of other selves. This terse statement is yet another 
+rephrasing and proof of the self, as in the human self, having to play 
+the role of the "social creature", a label of truth constant for them so 
+long as there are at least two selves in contact with one another. 
