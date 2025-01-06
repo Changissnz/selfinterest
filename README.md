@@ -1770,44 +1770,44 @@ such as the condition/s that consistently activate the axiom's actualization.
 There is no inherent consistency in the actualization (execution, usage) of 
 the artificial axiom; the artificial axiom is a design by sentience to be 
 used for the orders and constructs established by sentience. Any principle 
-past the hard sciences, and especially past economic principles of finiteness, 
-zero-sum, and cooperation as non-zero sum is an artificial axiom devised 
-by an impure combinatorial fusing of socially acceptable views, still requiring 
-the voluntary will to be actualized, and the indisputable natural. The artificial 
-axiom does not automatically act, as in autonomous systems that rely on consistency 
-in the makings of their automation as effect from the cause that impacts them. There 
-is will involved in order for the artificial axiom to bear relevance. Without the 
-will of sentience, the artificial axiom fails to remain relevant, forgotten and 
-metaphorically tossed aside into the abysses of the nullified obsolete. Some 
-examples of human practices are necessary to shed light on the notion of the 
-artificial axiom not being automatic. Money is not automatically distributed 
-to those in poverty, but the state, based on the will of its people, could take 
-the effort to. Poverty is strongly associated with vice, encouraging crimes such 
-as robbery and murder for capital, and as such, any developed society recognizes 
-poverty as a chief detriment, against every one's self-interest. Yet, those 
-in poverty are not automatically given enough capital to persist in the way 
-of affording housing or food, just because there is the artificial axiom declared 
-by human beings that poverty must be eradicated. Additional effort, outside of 
-verbal and written declaration of this artificial axiom, must be enacted in order 
-for those in poverty to receive the capital they so desperately need to 
-meaningfully continue to survive. Another example is privilege to the individual, 
-privilege granted to the individual on legal basis. Privilege is not guaranteed 
-to the individual, despite the legal basis, synonymously artificial axioms. 
-The individual must maintain both the knowledge that they have certain privileges 
-in defense from the unrightful intrusion by others, and also to express 
-their privilege as a fixture of their existence to others. Sentient will 
-is involved in erecting and maintaining privilege. On a similar note, it is 
-through the lack of will for reason and the pursuit of happiness that plunges 
-individuals and societies alike into the despair of lowliness relative to 
-their fellow human being. One key operational characteristic separates the 
-axiom, a constituent of natural law, and the artificial axiom. The axiom 
-serves as the irreducible and unpreventable principle, such that if a 
-condition fitting to the axiom were to occur, this condition being the 
-cause, then naturally, the effect borne from the axiom's application onto 
-the cause occurs. There is no sentient will involved that can deter the 
-effect from the cause. A human being, for example, hit in the heart by a 
-multitude of high-caliber bullets has no chance of survival, despite their 
-unquantifiable will to live. The cause (the multitude of high-caliber 
+past the hard sciences, and especially past economic principles of finiteness and 
+zero-sum, into the realm of cooperation as non-zero sum is an artificial axiom 
+devised by an impure combinatorial fusing of socially acceptable views, still 
+requiring the voluntary will to be actualized, and the indisputable natural. 
+The artificial axiom does not automatically act, as in autonomous systems that 
+rely on consistency in the makings of their automation as effect from the cause 
+that impacts them. There is will involved in order for the artificial axiom to 
+bear relevance. Without the will of sentience, the artificial axiom fails to 
+remain relevant, forgotten and metaphorically tossed aside into the abysses 
+of the nullified obsolete. Some examples of human practices are necessary to 
+shed light on the notion of the artificial axiom not being automatic. Money 
+is not automatically distributed to those in poverty, but the state, based on 
+the will of its people, could take the effort to. Poverty is strongly associated 
+with vice, encouraging crimes such as robbery and murder for capital, and as 
+such, any developed society recognizes poverty as a chief detriment, against 
+every one's self-interest. Yet, those in poverty are not automatically given 
+enough capital to persist in the way of affording housing or food, just because 
+there is the artificial axiom declared by human beings that poverty must be 
+eradicated. Additional effort, outside of verbal and written declaration of 
+this artificial axiom, must be enacted in order for those in poverty to receive 
+the capital they so desperately need to meaningfully continue to survive. Another 
+example is privilege to the individual, privilege granted to the individual on 
+legal basis. Privilege is not guaranteed to the individual, despite the legal 
+basis, synonymously artificial axioms. The individual must maintain both the 
+knowledge that they have certain privileges in defense from the unrightful 
+intrusion by others, and also to express their privilege as a fixture of 
+their existence to others. Sentient will is involved in erecting and maintaining 
+privilege. On a similar note, it is through the lack of will for reason and 
+the pursuit of happiness that plunges individuals and societies alike into the 
+despair of lowliness relative to their fellow human being. One key operational 
+characteristic separates the axiom, a constituent of natural law, and the 
+artificial axiom. The axiom serves as the irreducible and unpreventable 
+principle, such that if a condition fitting to the axiom were to occur, this 
+condition being the cause, then naturally, the effect borne from the axiom's 
+application onto the cause occurs. There is no sentient will involved that 
+can deter the effect from the cause. A human being, for example, hit in the 
+heart by a multitude of high-caliber bullets has no chance of survival, despite 
+their unquantifiable will to live. The cause (the multitude of high-caliber 
 bullets) bears the effect of this human being's death, due to the axioms 
 of kinetics and biological mortality from brute force. The artificial axiom, 
 on the other hand, relies on a different category of causality chain. 
