@@ -1868,5 +1868,8 @@ for the self's quantifiable gains. And the demands, placed onto the self,
 cannot always be borne from the self's lone self-interest, void of influence 
 from the interests of other selves. This terse statement is yet another 
 rephrasing and proof of the self, as in the human self, having to play 
-the role of the "social creature", a label of truth constant for them so 
+the role of the "social creature", a label of truth constant to them so 
 long as there are at least two selves in contact with one another. 
+
+## More on philosophies of self-interest #38 
+
