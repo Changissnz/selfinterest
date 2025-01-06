@@ -1788,7 +1788,7 @@ poverty as a chief detriment, against every one's self-interest. Yet, those
 in poverty are not automatically given enough capital to persist in the way 
 of affording housing or food, just because there is the artificial axiom declared 
 by human beings that poverty must be eradicated. Additional effort, outside of 
-verbal or written declaration of this artificial axiom, must be enacted in order 
+verbal and written declaration of this artificial axiom, must be enacted in order 
 for those in poverty to receive the capital they so desperately need to 
 meaningfully continue to survive. Another example is privilege to the individual, 
 privilege granted to the individual on legal basis. Privilege is not guaranteed 
