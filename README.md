@@ -1856,4 +1856,10 @@ idealist of a self. The self is by default, as an agent of change in
 ways attributed on the spectrum enclosed by ordinariness and radicality, 
 torn between the ideal of maximizing their potential (inherent talents 
 and nurtured skills) and satisfying the pragmatic of being a fellow 
-equal amongst different equals of other selves. 
+equal amongst different equals of other selves. This simple characterization 
+of the duality between this specific ideal and this specific pragmatic 
+is merely a stub, to clarify, a baseline convention. Practices labeled 
+either pragmatic or ideal do require a certain coherence of the self with 
+their surroundings, with other selves in contexts of competition and 
+cooperation, and what is "pragmatic" or "ideal" is incontrovertibly 
+connected to the demands, of arbitrary source, onto the self. 
