@@ -1784,35 +1784,49 @@ artificial axiom not being automatic. Money is not automatically distributed
 to those in poverty, unless say, the state, based on the will of its people, 
 decides to. Poverty is strongly associated with vice, encouraging crimes such 
 as robbery and murder for capital, and as such, any developed society recognizes 
-poverty as a chief detriment. Yet, those in poverty are not automatically given 
-enough capital to persist in the way of affording housing or food, just because 
-there is the artificial axiom declared by human beings that poverty must be 
-eradicated. Additional effort, outside of verbal or written declaration of this 
-artificial axiom, must be enacted in order for those in poverty to receive 
-the capital they so desperately need to meaningfully continue to survive. 
-Another example is privilege to the individual, privilege granted to the 
-individual on legal basis. Privilege is not guaranteed to the individual, 
-despite the legal basis, synonymously artificial axioms. The individual must 
-maintain both the knowledge that they have certain privileges in defense 
-from the unrightful intrusion by others, and also to express their privilege 
-as a fixture of their existence to others. Sentient will is involved in 
-erecting and maintaining privilege. On a similar note, it is through the 
-lack of will for reason and the pursuit of happiness that plunges individuals 
-and societies alike into the despair of lowliness relative to their fellow 
-human being. One key operational characteristic separates the axiom, a 
-constituent of natural law, and the artificial axiom. The axiom serves 
-as the irreducible and unpreventable principle, such that if a condition 
-fitting to the axiom were to occur, this condition being the cause, then 
-naturally, the effect borne from the axiom's application onto the cause 
-occurs. There is no sentient will involved that can deter the effect from 
-the cause. A human being, for example, hit in the heart by a multitude of 
-high-caliber bullets has no chance of survival, despite their unquantifiable 
-will to live. The cause (the multitude of high-caliber bullets) bears the 
-effect of this human being's death, due to the axioms of kinetics and 
-biological mortality from brute force. The artificial axiom, on the other 
-hand, relies on a different category of causality chain. There is the 
-cause, that is the human thought, action, and/or appearance, and then 
-there is the sentient will necessary to connect the cause to the effect 
-prescribed by the artificial axiom. With no will to connect the cause to 
-the prescribed effect, the cause of human effort or appearance does not 
-automatically (with no need for sentient will) lead to said effect. 
+poverty as a chief detriment, against every one's self-interest. Yet, those 
+in poverty are not automatically given enough capital to persist in the way 
+of affording housing or food, just because there is the artificial axiom declared 
+by human beings that poverty must be eradicated. Additional effort, outside of 
+verbal or written declaration of this artificial axiom, must be enacted in order 
+for those in poverty to receive the capital they so desperately need to 
+meaningfully continue to survive. Another example is privilege to the individual, 
+privilege granted to the individual on legal basis. Privilege is not guaranteed 
+to the individual, despite the legal basis, synonymously artificial axioms. 
+The individual must maintain both the knowledge that they have certain privileges 
+in defense from the unrightful intrusion by others, and also to express 
+their privilege as a fixture of their existence to others. Sentient will 
+is involved in erecting and maintaining privilege. On a similar note, it is 
+through the lack of will for reason and the pursuit of happiness that plunges 
+individuals and societies alike into the despair of lowliness relative to 
+their fellow human being. One key operational characteristic separates the 
+axiom, a constituent of natural law, and the artificial axiom. The axiom 
+serves as the irreducible and unpreventable principle, such that if a 
+condition fitting to the axiom were to occur, this condition being the 
+cause, then naturally, the effect borne from the axiom's application onto 
+the cause occurs. There is no sentient will involved that can deter the 
+effect from the cause. A human being, for example, hit in the heart by a 
+multitude of high-caliber bullets has no chance of survival, despite their 
+unquantifiable will to live. The cause (the multitude of high-caliber 
+bullets) bears the effect of this human being's death, due to the axioms 
+of kinetics and biological mortality from brute force. The artificial axiom, 
+on the other hand, relies on a different category of causality chain. 
+There is the cause, that is the human thought, action, and/or appearance, 
+and then there is the sentient will necessary to connect the cause to 
+the effect prescribed by the artificial axiom. With no will to connect 
+the cause to the prescribed effect, the cause of human effort or appearance 
+does not automatically (with no need for sentient will) lead to said effect. 
+And the self, in general, focuses their will for their self-interest. If 
+the self believes their self-interest does not benefit much by their will's 
+application into connecting the artificial axiom's cause to the effect, 
+then there is a strong chance they will do nothing, or even prevent the 
+prescribed effect from actualizing due to the cause. The artificial axiom 
+makes for many questions on the concept of free will. It is constructed 
+based on the premise of the interests of many selves, a collective 
+self-interest, envisioned by supporters to be a fixture for the sphere 
+of influence they all participate in. But the artificial axiom is 
+semi-automatic, at most. The application of "free will" is used in cases 
+that invoke the artificial axiom, where the duality of proposition and 
+opposition to the prescribed effect become a matter phrased in terms 
+of choice for self-interest, in tandem with the interests of the 
+involved other selves. 
