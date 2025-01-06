@@ -1749,7 +1749,7 @@ flaws of the rulership and their erroneous abuses. Self-interest, as a
 force for the non-total self, being subject to the conditions of the 
 default social construct, oscillates between acting as a controller 
 of circumstances (rulership), possibly verging on despotic behavior 
-if not unquestionable dictatorship, to being an agent of outward offense 
+if not "unquestionable" dictatorship, to being an agent of outward offense 
 when they are a challenger to the rulership. The objective remains the 
 same for the political self, regardless of their being the ruler or 
 the challenger: power. Obtaining if not retaining power in their wanted 
