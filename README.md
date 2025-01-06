@@ -1830,3 +1830,30 @@ that invoke the artificial axiom, where the dichotomies of proposition and
 opposition to the prescribed effect become matters phrased in terms 
 of choice for self-interest, in tandem with the interests of the 
 involved other selves. 
+
+## More on philosophies of self-interest #37 
+
+Self-interest is one force, the vital force immortally connected to the 
+self, for the self cannot cease in one form without the corresponding 
+self-interest attached also ceasing in that same form, that is obviously 
+not self-contained, proven by the points made from the beginning of this 
+text until this point. The courses of action taken and the thinking done 
+by every sentient being can all be traced back to the force of self-interest. 
+In mathematical terms, this tracing is not a one-to-one mapping. Self-interest
+is indeed responsible for all phenomena expressed by every sentient lifeform, 
+based on their will susceptible to misguidance, from external stimuli, 
+and operational malfunction via their own limbs and bodily organs. For 
+the sake of the self, the will must always be aligned with what they 
+believe to be their self-interest, if the self were intent on their 
+wanted outcome. The objective self is always intent on the outcome; this 
+is a safe assumption for this kind of self since their true objective 
+first cognitively constructed by them is supposed to be executed to 
+their wanted degrees of success, lest they are either lying to themself 
+about the destinations they intend to arrive at or they are, in fact, 
+incapable, such that their stated objective is not even minutely 
+feasible, so they are actually not an objective self but a deluded 
+idealist of a self. The self is by default, as an agent of change in 
+ways attributed on the spectrum enclosed by ordinariness and radicality, 
+torn between the ideal of maximizing their potential (inherent talents 
+and nurtured skills) and satisfying the pragmatic of being a fellow 
+equal amongst different equals of other selves. 
