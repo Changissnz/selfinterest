@@ -1826,7 +1826,7 @@ based on the premise of the interests of many selves, a collective
 self-interest, envisioned by supporters to be a fixture for the sphere 
 of influence they all participate in. But the artificial axiom is 
 semi-automatic, at most. The application of "free will" is used in cases 
-that invoke the artificial axiom, where the duality of proposition and 
+that invoke the artificial axiom, where the dichotomies of proposition and 
 opposition to the prescribed effect become matters phrased in terms 
 of choice for self-interest, in tandem with the interests of the 
 involved other selves. 
