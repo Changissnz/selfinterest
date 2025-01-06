@@ -1873,3 +1873,12 @@ long as there are at least two selves in contact with one another.
 
 ## More on philosophies of self-interest #38 
 
+The category called "mannerism" plays a rather important part in human 
+behavior. The usage of this term, "mannerism", should not be interpreted 
+strictly as the artistic style from 16th century Italy. Truthfully, mannerism 
+is much more than that, and although the 16th century Italians did indeed 
+effectively capture and reproduce many messages, through their artistic 
+depictions, on the concept of mannerism, these successes are culturally relative 
+in the scope of human societies spanning the globe, not just one Western 
+European nation, no matter its significance as a region since the beginning 
+of history. 
