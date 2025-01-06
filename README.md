@@ -1781,8 +1781,8 @@ will of sentience, the artificial axiom fails to remain relevant, forgotten and
 metaphorically tossed aside into the abysses of the nullified obsolete. Some 
 examples of human practices are necessary to shed light on the notion of the 
 artificial axiom not being automatic. Money is not automatically distributed 
-to those in poverty, unless say, the state, based on the will of its people, 
-decides to. Poverty is strongly associated with vice, encouraging crimes such 
+to those in poverty, but the state, based on the will of its people, could take 
+the effort to. Poverty is strongly associated with vice, encouraging crimes such 
 as robbery and murder for capital, and as such, any developed society recognizes 
 poverty as a chief detriment, against every one's self-interest. Yet, those 
 in poverty are not automatically given enough capital to persist in the way 
