@@ -1879,6 +1879,8 @@ strictly as the artistic style from 16th century Italy. Truthfully, mannerism
 is much more than that, and although the 16th century Italians did indeed 
 effectively capture and reproduce many messages, through their artistic 
 depictions, on the concept of mannerism, these successes are culturally relative 
-in the scope of human societies spanning the globe, not just one Western 
-European nation, no matter its significance as a region since the beginning 
-of history. 
+in the scope of human societies spanning the globe. The proceeding discussion 
+on mannerism is entirely about the general principles of mannerism in relation 
+to self-interest, and does not make any further mention of this Western European 
+nation, Italy, no matter its significance as a region since the beginning of 
+history. 
