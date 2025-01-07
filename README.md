@@ -1983,7 +1983,7 @@ channels, buys the same products, all this indicative of conformity. A parallel
 description can be made for the self of a middle or low socio-economic class. 
 However, to clarify, mannerism is the representation of the respective 
 civilization's cultural hallmark. There are elitist elements attached to 
-mannerism. The self, by default connected to a physically independent being, 
+mannerism. The self, by default connected to a physically separate being, 
 does not inherit knowledge of the manner, only perhaps a compass of morality 
 that accepts the manner. The style is a cultural design, and so too must be 
 the manner because the manner is a preferred style for the conceptual ideal 
