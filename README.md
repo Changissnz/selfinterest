@@ -1939,30 +1939,32 @@ mathematical problems already have solutions and only require a critical mind
 trained in quantitative techniques in order for the answers to be revealed, 
 the ideal from the righteous practice. Mannerism can act as an effective 
 front for deception and abuses of power. These two issues of mannerism can 
-be reduced to errors by the practice of correspondence theory. In correspondence 
-theory application, the manner, that is the attitude and/or appearance, signifies 
-a positive ideal, in other words, a virtue or moral infallible by conceptual 
-integrity, yet inclined towards faultiness by practice, but through the 
-trial-and-error, the manner emerges as the best practice of the positive 
-ideal. The manner is a mark of high civilization, something reasoned to 
-have been adopted on the premise that it is good (the only reason why the 
-manner was adopted). The manner is a defense against particular possibilities 
-available to the sentient being with the constant problem of having to deal 
-with their impulses, vices in great portion when related to the ideal standing 
-of the manner. In other words, the manner that becomes a fixture for social 
-acceptability represses particular potentials of behavior in human beings. 
-But from a fatalistic perspective, the potential is still there, and the 
-potential must still manifest (actualize) itself (that is the "natural" course 
-of the span of existence for the potential). So from a preventative standpoint, 
-mannerism values the manner but does not guarantee preventation of action chains 
-labeled as vice. The potential for these alternatives still manifest itself, in 
-the shadows rather than the light that the mannerist society of official standing 
-thinks they have sole ownership of. The manner could still serve as a mask to 
-hide the motive, and in this aspect, deception through pretense and impostor 
-usage branches out into prevalent issues in mannerist society. Acquiring 
-education in the manner is a socio-economic privilege, but education of any 
-kind is, first and foremost, instruction. Through the communication of instruction 
-used to grow awareness of the manner's existence and to nurture the practice, 
+be reduced to errors in judgment by the practice of correspondence theory. 
+In correspondence theory application, the manner, that is the attitude and/or 
+appearance, signifies a positive ideal, in other words, a virtue or moral 
+infallible by conceptual integrity, yet inclined towards faultiness by practice, 
+but through the trial-and-error, the manner emerges as the best practice of the 
+positive ideal. Expressing the manner is reasoned as expressing the good, the 
+ideal by the best realism. The manner is a mark of high civilization, something 
+reasoned to have been adopted on the premise that it is good (the only reason 
+why the manner was adopted). The manner is a defense against particular 
+possibilities available to the sentient being with the constant problem of 
+having to deal with their impulses, vices in great portion when related to 
+the ideal standing of the manner. In other words, the manner that becomes a 
+fixture for social acceptability represses particular potentials of behavior 
+in human beings. But from a fatalistic perspective, the potential is still 
+there, and the potential must still manifest (actualize) itself (that is the 
+"natural" course of the span of existence for the potential). In terms of 
+prevention, mannerism values the manner but does not guarantee prevention 
+of action chains labeled as vice. The potential for these alternatives 
+still manifest itself, in the shadows rather than the light that the mannerist 
+society of official standing thinks they have sole ownership of. The manner 
+could still serve as a mask to hide the motive, and in this aspect, 
+deception through pretense and impostor usage branches out into prevalent 
+issues in mannerist society. Acquiring education in the manner is a 
+socio-economic privilege, but education of any kind is, first and 
+foremost, instruction. Through the communication of instruction used 
+to grow awareness of the manner's existence and to nurture its practice, 
 the one measurable performance trait that can be measured is the expression, 
 not the understanding of acceptance for the reasoned virtue that produced 
 the manner in the first place. In a general but related sense, there is the 
