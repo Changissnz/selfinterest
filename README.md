@@ -1918,30 +1918,30 @@ is the default decision of the mannerist; the mannerist presents themself in
 the accepted forms of attitudes and appearances, these being the references. 
 These references of the practiced attitudes and appearances have taken on 
 an idealism through valuation by the respective social sphere/s of influence. 
-The mannerist's solution for the question of behavior, the acts in great part 
-for appearance, and the entirety of the appearance is comprised of these 
-references, the form out of many possibilities that serves as the best realism 
-of practicing the ideal. Mannerism values the perceived appearance of the sentient 
-being as the centrality of all evidence for judgment. The manners are the 
-artificial axioms in mannerism, understood to be not as a choice to prefer but 
-analogically, something very much like the gold standard out of the possible 
-span of material goods, that is, the optimal, the discovered best that should 
-be valued higher than the practices of the self if the self is positionally 
-incapable of the manners. The mannerist, being one that comprehends other 
-human beings by reliance on their perception of the human beings' appearances, 
-uses the practice of correspondence theory in order to label particular 
-appearances in divisions of dichotomy and greater dimension. This reliance 
-is, in turn, ripe for vulnerability in accurate judgment: not all phenomena 
-can be captured by perception, and this tenet naturally presupposes that not 
-all human appearance, through behavior and pose, can be registered by perception. 
-Furthermore, mannerism is pre-deterministic, similar to how proper mathematical 
-problems already have solutions and only require a critical mind trained in 
-quantitative techniques in order for the answers to be revealed, the ideal 
-from the righteous practice. Mannerism can act as an effective front for 
-deception and abuses of power. These two issues of mannerism can be reduced 
-to errors by the practice of correspondence theory. In correspondence theory 
-application, the manner, that is the attitude and/or appearance, signifies a 
-positive ideal, in other words, a virtue or moral infallible by conceptual 
+The mannerist's solution for the question of behavior, this consisting of 
+acts in great part for appearance, and the entirety of the appearance is 
+comprised of these references, the form out of many possibilities that serves 
+as the best realism of practicing the ideal. Mannerism values the perceived 
+appearance of the sentient being as the centrality of all evidence for judgment. 
+The manners are the artificial axioms in mannerism, understood to be not as 
+a choice to prefer but analogically, something very much like the gold standard 
+out of the possible span of material goods, that is, the optimal, the discovered 
+best that should be valued higher than the practices of the self if the self 
+is positionally incapable of the manners. The mannerist, being one that 
+comprehends other human beings by reliance on their perception of the human 
+beings' appearances, uses the practice of correspondence theory in order to 
+label particular appearances in divisions of dichotomy and greater dimension. 
+This reliance is, in turn, ripe for vulnerability in accurate judgment: not 
+all phenomena can be captured by perception, and this tenet naturally presupposes 
+that not all human appearance, through behavior and pose, can be registered by 
+perception. Furthermore, mannerism is pre-deterministic, similar to how proper 
+mathematical problems already have solutions and only require a critical mind 
+trained in quantitative techniques in order for the answers to be revealed, 
+the ideal from the righteous practice. Mannerism can act as an effective 
+front for deception and abuses of power. These two issues of mannerism can 
+be reduced to errors by the practice of correspondence theory. In correspondence 
+theory application, the manner, that is the attitude and/or appearance, signifies 
+a positive ideal, in other words, a virtue or moral infallible by conceptual 
 integrity, yet inclined towards faultiness by practice, but through the 
 trial-and-error, the manner emerges as the best practice of the positive 
 ideal. The manner is a mark of high civilization, something reasoned to 
@@ -1954,7 +1954,15 @@ acceptability represses particular potentials of behavior in human beings.
 But from a fatalistic perspective, the potential is still there, and the 
 potential must still manifest (actualize) itself (that is the "natural" course 
 of the span of existence for the potential). So from a preventative standpoint, 
-mannerism values the manner but does not guarantee courses of action labeled 
-as vice. The potential for these alternatives still manifest itself, in the 
-shadows rather than the light that the mannerist society of official standing 
-thinks they have sole ownership of. 
+mannerism values the manner but does not guarantee preventation of action chains 
+labeled as vice. The potential for these alternatives still manifest itself, in 
+the shadows rather than the light that the mannerist society of official standing 
+thinks they have sole ownership of. The manner could still serve as a mask to 
+hide the motive, and in this aspect, deception through pretense and impostor 
+usage branches out into prevalent issues in mannerist society. Acquiring 
+education in the manner is a socio-economic privilege, but education of any 
+kind is, first and foremost, instruction. Through the communication of instruction 
+used to grow awareness of the manner's existence and to nurture the practice, 
+the one measurable performance trait that can be measured is the expression, 
+not the understanding or acknowledgment of the reasoned virtue that produced 
+the manner in the first place.
