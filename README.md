@@ -1927,4 +1927,20 @@ artificial axioms in mannerism, understood to be not as a choice to prefer but
 analogically, something very much like the gold standard out of the possible 
 span of material goods, that is, the optimal, the discovered best that should 
 be valued higher than the practices of the self if the self is positionally 
-incapable of the manners. 
+incapable of the manners. The mannerist, being one that comprehends other 
+human beings by reliance on their perception of the human beings' appearances, 
+uses the practice of correspondence theory in order to label particular 
+appearances in divisions of dichotomy and greater dimension. This reliance 
+is, in turn, ripe for vulnerability in accurate judgment: not all phenomena 
+can be captured by perception, and this tenet naturally presupposes that not 
+all human appearance, through behavior and pose, can be registered by perception. 
+Furthermore, mannerism is pre-deterministic, similar to how proper mathematical 
+problems already have solutions and only require a critical mind trained in 
+quantitative techniques in order to reveal the answers, the ideal from the 
+righteous practice. Mannerism can act as an effective front for deception 
+and abuses of power. These two issues of mannerism can be reduced to errors 
+by the practice of correspondence theory. In correspondence theory application, 
+the manner, that is the attitude and/or appearance, signifies a positive ideal, 
+in other words, a virtue or moral infallible in the integrity of the concept, 
+yet subject to faultiness by practice, but through the trial-and-error, the 
+manner emerges as the best practice of the positive ideal. 
