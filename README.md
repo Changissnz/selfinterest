@@ -1920,5 +1920,5 @@ These references of the practiced attitudes and appearances have taken on
 an idealism through valuation by the respective social sphere/s of influence. 
 The mannerist's solution for the question of behavior, the acts in great part 
 for appearance, and the entirety of the appearance is comprised of these 
-references, the form out of many that serves as the best realism after the 
-ideal. 
+references, the form out of many possibilities that serves as the best realism 
+of practicing the ideal. 
