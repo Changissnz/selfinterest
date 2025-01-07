@@ -1893,13 +1893,16 @@ believes in restraining their will to act by impulse, in favor of the form that
 has been taught to them, then repeatedly expressed to them as the preferred 
 pose of behavior and thinking that they should seldom divert away from. The 
 mannerist, as an agent of change, can only go so far as reform rather than 
-outright revolt. There is already a reference to achieve the ideal in practice 
-for the mannerist. Whatever societal change they are attempting is for the 
+outright revolt. For the mannerist, there is already a reference to achieve 
+the ideal in practice. Whatever societal change they are attempting is for the 
 purpose of guiding their society back to the decorum of the manner. As such, 
 the mannerist, in their objective to reform, is also categorically a moralist, 
-albeit one of cultural relativity as the greater concern over the universal 
+albeit one with greater concern for cultural relativity over the universal 
 good, more so than an ideologue with a singleminded vision of actualizing on 
 their ideals by willfully blinding themselves to the cost, the cost being a 
 great consideration for the mannerist tied to their moral in a world where 
 relativity is invoked to counter resistance against what is deemed the necessary 
-vice. 
+vice. The mannerist always attempts to avoid being put into the light of 
+relativity, for this kind of light would place doubt on their preferences for 
+the decorum, and this doubt would carry over to their qualitative character 
+of being comprehended by others. 
