@@ -1940,7 +1940,7 @@ trained in quantitative techniques in order for the answers to be revealed,
 the ideal from the righteous practice. Mannerism can act as an effective 
 front for deception and abuses of power. These two issues of mannerism can 
 be reduced to errors in judgment by the practice of correspondence theory. 
-In correspondence theory application, the manner, that is the attitude and/or 
+In application of correspondence theory, the manner, that is the attitude and/or 
 appearance, signifies a positive ideal, in other words, a virtue or moral 
 infallible by conceptual integrity, yet inclined towards faultiness by practice, 
 but through the trial-and-error, the manner emerges as the best practice of the 
@@ -1965,7 +1965,7 @@ issues in mannerist society. Acquiring education in the manner is a
 socio-economic privilege, but education of any kind is, first and 
 foremost, instruction. Through the communication of instruction used 
 to grow awareness of the manner's existence and to nurture its practice, 
-the one measurable performance trait that can be measured is the expression, 
+the one performance trait that can be measured is the expression, 
 not the understanding of acceptance for the reasoned virtue that produced 
 the manner in the first place. In a general but related sense, there is the 
 frequent rationale that the principle can be easily taught, but the choice to 
