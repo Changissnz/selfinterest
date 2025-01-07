@@ -1968,4 +1968,33 @@ not the understanding of acceptance for the reasoned virtue that produced
 the manner in the first place. In a general but related sense, there is the 
 frequent rationale that the principle can be easily taught, but the choice to 
 accept the moral as a fixture for sentient decision is a question of the 
-individual's acceptance. 
+individual's acceptance. The mannerist is an exteriorist: the exterior of 
+the pose in the style of the manner is what takes priority, since internalist 
+rationales as well as the trial-and-errors have already produced the solution 
+that is the manner, the most appropriate. The self, as a functioning member 
+in human societies, is recognized by the attribute of the roles and 
+responsibilities they must play. To exemplify, the self in servitude to 
+an organization recites phrases promoted by the organization, dresses and 
+poses in ways representative of the organization. The self, if belonging to 
+an elite class, uses language the elite class uses, subscribes to the same 
+channels, buys the same products, all this indicative of conformity. A parallel 
+description can be made for the self of a middle or low socio-economic class. 
+However, to clarify, mannerism is the representation of the respective 
+civilization's cultural hallmark. There are elitist elements attached to 
+mannerism. The self, by default connected to a physically independent being, 
+does not inherit knowledge of the manner, only perhaps a compass of morality 
+that accepts the manner. The style is a cultural design, and so too must be 
+the manner because the manner is a preferred style for the conceptual ideal 
+it is to represent. Self-interest, as a force for the will of the human, 
+synonymously the "social creature", has the tendency to choose mannerism 
+over their own originality, when the objective is to represent rather than 
+discover, to uphold the legacy rather than re-design, and to value the 
+group identity that practices the manner over the identities of others. 
+Mannerism challenges the self's independent choice, free from the prescriptions 
+set forth by the manner. Thus, the self may discover that their adherence 
+to the manner, although conducive to their greater social acceptance, results 
+in deficits of their individuality and possibly their authenticity, measured 
+by their cognitive and emotive connection to the vessel of their body, since 
+the expression of potential possible from the inherent strengths of the 
+individual is not maximalized, even ignored and forgotten, when there is 
+little alignment between the manner and the individual trait. 
