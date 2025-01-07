@@ -1936,11 +1936,25 @@ can be captured by perception, and this tenet naturally presupposes that not
 all human appearance, through behavior and pose, can be registered by perception. 
 Furthermore, mannerism is pre-deterministic, similar to how proper mathematical 
 problems already have solutions and only require a critical mind trained in 
-quantitative techniques in order to reveal the answers, the ideal from the 
-righteous practice. Mannerism can act as an effective front for deception 
-and abuses of power. These two issues of mannerism can be reduced to errors 
-by the practice of correspondence theory. In correspondence theory application, 
-the manner, that is the attitude and/or appearance, signifies a positive ideal, 
-in other words, a virtue or moral infallible in the integrity of the concept, 
-yet subject to faultiness by practice, but through the trial-and-error, the 
-manner emerges as the best practice of the positive ideal. 
+quantitative techniques in order for the answers to be revealed, the ideal 
+from the righteous practice. Mannerism can act as an effective front for 
+deception and abuses of power. These two issues of mannerism can be reduced 
+to errors by the practice of correspondence theory. In correspondence theory 
+application, the manner, that is the attitude and/or appearance, signifies a 
+positive ideal, in other words, a virtue or moral infallible by conceptual 
+integrity, yet inclined towards faultiness by practice, but through the 
+trial-and-error, the manner emerges as the best practice of the positive 
+ideal. The manner is a mark of high civilization, something reasoned to 
+have been adopted on the premise that it is good (the only reason why the 
+manner was adopted). The manner is a defense against particular possibilities 
+available to the sentient being with the constant problem of having to deal 
+with their impulses, vices in great portion when related to the ideal standing 
+of the manner. In other words, the manner that becomes a fixture for social 
+acceptability represses particular potentials of behavior in human beings. 
+But from a fatalistic perspective, the potential is still there, and the 
+potential must still manifest (actualize) itself (that is the "natural" course 
+of the span of existence for the potential). So from a preventative standpoint, 
+mannerism values the manner but does not guarantee courses of action labeled 
+as vice. The potential for these alternatives still manifest itself, in the 
+shadows rather than the light that the mannerist society of official standing 
+thinks they have sole ownership of. 
