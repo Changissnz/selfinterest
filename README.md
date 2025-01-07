@@ -1923,6 +1923,8 @@ for appearance, and the entirety of the appearance is comprised of these
 references, the form out of many possibilities that serves as the best realism 
 of practicing the ideal. Mannerism values the perceived appearance of the sentient 
 being as the centrality of all evidence for judgment. The manners are the 
-artificial axioms in mannerism, to be taken not as a choice to prefer but 
+artificial axioms in mannerism, understood to be not as a choice to prefer but 
 analogically, something very much like the gold standard out of the possible 
-span of material goods. 
+span of material goods, that is, the optimal, the discovered best that should 
+be valued higher than the practices of the self if the self is positionally 
+incapable of the manners. 
