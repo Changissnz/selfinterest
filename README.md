@@ -1907,10 +1907,17 @@ relativity, for this kind of light would place doubt on their preferences for
 the decorum, and this doubt then carries over to their qualitative character 
 of being comprehended by others. The perception by the self of their surrounding 
 mannerism is almost entirely correlated, in the sense of a deterministic mapping, 
-to the effects of the mannerism to their self-interests. If the self were to, 
-for instance, not be welcomed as a participant to certain organizations since 
+to how the mannerism affects their self-interests. If the self were to, for 
+instance, not be welcomed as a participant to certain organizations since 
 although they may practice the manner of those organizations, they do not 
 possess the inherent attributes that position them to benefit from the manner, 
-then the possibility becomes greater that the self rejects against the 
-mannerism. From their self-interest, the mannerism is a legitimacized roadblock 
-that restricts the wanted actualization of potential from the self.
+then the possibility of the self rejecting the mannerism becomes greater. 
+From their self-interest, the mannerism is a legitimacized roadblock 
+that restricts the wanted actualization of potential from the self. Conformity 
+is the default decision of the mannerist; the mannerist presents themself in 
+the accepted forms of attitudes and appearances, these being the references. 
+These references of the practiced attitudes and appearances have taken on 
+an idealism through valuation by the respective social sphere/s of influence. 
+The solution for the question of behavior, the acts in great part for appearance, 
+and the entirety of the appearance is comprised of these references, the form 
+out of many that serves as the best realism after the ideal, for the mannerist. 
