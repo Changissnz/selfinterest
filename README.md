@@ -1883,4 +1883,23 @@ in the scope of human societies spanning the globe. The proceeding discussion
 on mannerism is entirely about the general principles of mannerism in relation 
 to self-interest, and does not make any further mention of this Western European 
 nation, Italy, no matter its significance as a region since the beginning of 
-history. 
+history. The mannerist is a conservative agent in a few important aspects. The 
+mannerist has references to replicate and thus adhere to. These references have 
+been established through the historicity of styles that the mannerist's society 
+has either retained or adopted. References include the custom, the ideological 
+traits of the culture, and the archetypes for each socio-economic class' preferred 
+behavior, this constituting definitive traits to recognize manner. The mannerist 
+believes in restraining their will to act by impulse, in favor of the form that 
+has been taught to them, then repeatedly expressed to them as the preferred 
+pose of behavior and thinking that they should seldom divert away from. The 
+mannerist, as an agent of change, can only go so far as reform rather than 
+outright revolt. There is already a reference to achieve the ideal in practice 
+for the mannerist. Whatever societal change they are attempting is for the 
+purpose of guiding their society back to the decorum of the manner. As such, 
+the mannerist, in their objective to reform, is also categorically a moralist, 
+albeit one of cultural relativity as the greater concern over the universal 
+good, more so than an ideologue with a singleminded vision of actualizing on 
+their ideals by willfully blinding themselves to the cost, the cost being a 
+great consideration for the mannerist tied to their moral in a world where 
+relativity is invoked to counter resistance against what is deemed the necessary 
+vice. 
