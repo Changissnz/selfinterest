@@ -1964,5 +1964,8 @@ education in the manner is a socio-economic privilege, but education of any
 kind is, first and foremost, instruction. Through the communication of instruction 
 used to grow awareness of the manner's existence and to nurture the practice, 
 the one measurable performance trait that can be measured is the expression, 
-not the understanding or acknowledgment of the reasoned virtue that produced 
-the manner in the first place.
+not the understanding of acceptance for the reasoned virtue that produced 
+the manner in the first place. In a general but related sense, there is the 
+frequent rationale that the principle can be easily taught, but the choice to 
+accept the moral as a fixture for sentient decision is a question of the 
+individual's acceptance. 
