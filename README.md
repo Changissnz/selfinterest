@@ -1921,4 +1921,8 @@ an idealism through valuation by the respective social sphere/s of influence.
 The mannerist's solution for the question of behavior, the acts in great part 
 for appearance, and the entirety of the appearance is comprised of these 
 references, the form out of many possibilities that serves as the best realism 
-of practicing the ideal. 
+of practicing the ideal. Mannerism values the perceived appearance of the sentient 
+being as the centrality of all evidence for judgment. The manners are the 
+artificial axioms in mannerism, to be taken not as a choice to prefer but 
+analogically, something very much like the gold standard out of the possible 
+span of material goods. 
