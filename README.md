@@ -1904,5 +1904,13 @@ great consideration for the mannerist tied to their moral in a world where
 relativity is invoked to counter resistance against what is deemed the necessary 
 vice. The mannerist always attempts to avoid being put into the light of 
 relativity, for this kind of light would place doubt on their preferences for 
-the decorum, and this doubt would carry over to their qualitative character 
-of being comprehended by others. 
+the decorum, and this doubt then carries over to their qualitative character 
+of being comprehended by others. The perception by the self of their surrounding 
+mannerism is almost entirely correlated, in the sense of a deterministic mapping, 
+to the effects of the mannerism to their self-interests. If the self were to, 
+for instance, not be welcomed as a participant to certain organizations since 
+although they may practice the manner of those organizations, they do not 
+possess the inherent attributes that position them to benefit from the manner, 
+then the possibility becomes greater that the self rejects against the 
+mannerism. From their self-interest, the mannerism is a legitimacized roadblock 
+that restricts the wanted actualization of potential from the self.
