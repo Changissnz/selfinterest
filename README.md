@@ -1918,6 +1918,7 @@ is the default decision of the mannerist; the mannerist presents themself in
 the accepted forms of attitudes and appearances, these being the references. 
 These references of the practiced attitudes and appearances have taken on 
 an idealism through valuation by the respective social sphere/s of influence. 
-The solution for the question of behavior, the acts in great part for appearance, 
-and the entirety of the appearance is comprised of these references, the form 
-out of many that serves as the best realism after the ideal, for the mannerist. 
+The mannerist's solution for the question of behavior, the acts in great part 
+for appearance, and the entirety of the appearance is comprised of these 
+references, the form out of many that serves as the best realism after the 
+ideal. 
