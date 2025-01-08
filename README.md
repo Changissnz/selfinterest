@@ -2077,11 +2077,12 @@ a priori reasoning, so that only the anticipation of a reasonable span of
 possibilities can be correct in moving forward to experiencing the actual. 
 So too is any conceptualization of self-interest. There are accurate abstractions 
 of self-interest that provide some modicum of understanding. However, the 
-details either occur by chance of coincidence, have not occurred yet so there 
-can only be the prejudice of expectation for the particular details to occur, 
-or somehow produce too many possibilities to be of any valuable meaning (meaning 
-is singular or at least a unified body of sorts, by the way). Self-interest 
-acts in uncountable ways for uncountable appearances and effects, and there 
-appears to be no proof, by the default of generality, on the theoretical 
-availabilities for an agent to manipulate another's self-interest for some 
-other alternative in the spectrum/s of uncountable possibilities. 
+details either occurred by chance of coincidence fitting in example for the 
+abstract, have not occurred yet so there can only be the prejudice of expectation 
+for the particular details to occur, or somehow produce too many possibilities 
+to be of any valuable meaning (meaning is singular or at least a unified body 
+of sorts, by the way). Self-interest acts in uncountable ways for uncountable 
+appearances and effects, and there appears to be no proof, by the default 
+of generality, on the theoretical availabilities for an agent to manipulate 
+another's self-interest for some other alternative in the spectrum/s of 
+uncountable possibilities. 
