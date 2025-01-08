@@ -2046,7 +2046,7 @@ forces. The self always has a conceptualization of their self-interest,
 although they might not know the consequences of acting on what they 
 comprehend to be their self-interest. It can be argued that no one knows 
 the future in absolute detail, after all. As for the will, the will has no 
-mind to decide things on its lone existence as a force. The material of 
+mind to decide things by its lone existence as a force. The material of 
 animate and inanimate is what contains the force of will; on a related note, 
 the will as one single force is dispersed in the way of arbitrary splits 
 of economy between all material. The will, being mindless, exists in modalities 
@@ -2064,13 +2064,13 @@ recognized by any human being as phenomena they feel or think. Due to experience
 belonging to the individual, attempts to define metaphysics always fail to 
 reach the specific that can be universally agreed on, but as for a group or a 
 couple of human beings, agreement is more easily reached, due to the simple 
-reason of less minds for less conflict in specified definition on the same 
+reason of less minds for less conflict in specifying definition on the same 
 concept. With this acknowledgment in mind of the shortfalls of understanding the 
 metaphysical in concrete (ironic, is it not) terms, the conceptualization 
 of the hierarchical structure, of metaphysical existence, with self-interest 
-being on top of the will on top of motivation is correct only because of the 
-definition provided in this section, and correctness is an unanswered question 
-for any detail outside the confines of this section. This here would be an 
+being on top of the will on top of motivation is correct by the definition 
+provided in this section, and correctness is an unanswered question for 
+any detail outside the confines of this section. This here would be an 
 example of the shortfalls of Aristotelian logic: to systematize an understanding, 
 by use of terms independently defined, does indeed suit the purposes of 
 conceptual understanding, but there are specifics of conditions and details 
