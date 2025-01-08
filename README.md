@@ -2031,11 +2031,13 @@ at play that does not allow development of the life past a threshold of
 divergence. Motivation is not equivalent to the biological code of RNA and DNA, 
 but the similarity is mentioned to differentiate the determinism of motivation 
 from that of will. The will can be directed towards one thing but through its 
-use, something else emerges. This difference between the expected and the 
-actual is due to one or more of three culprits: the will as something confused 
-by the associated self, the self-interest as misguided by the use of the will 
-in a directionality improper towards the expected, or the motivation is not 
-there for the will of wants and desires converged into expectation unmet. 
+use, something else emerges, so there is the discrepancy between the expected 
+and actual; how the actual can be rationalized as the outcome from determinism 
+is an argument to be made by the fatalist. This difference between the expected 
+and the actual is due to one or more of three culprits: the will as something 
+confused by the associated self, the self-interest as misguided by the use of 
+the will in a directionality improper towards the expected, or the motivation 
+is not there for the will of wants and desires converged into expectation unmet. 
 Then according to this text's description, when the terms "will" and 
 "motivation" are swapped for one another's definition, then the "will" 
 is a dependency for "motivation". One point of confusion on "self-interest", 
