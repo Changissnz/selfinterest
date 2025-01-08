@@ -1987,7 +1987,7 @@ mannerism. The self, by default connected to a physically separate being,
 does not inherit knowledge of the manner, only perhaps a compass of morality 
 that accepts the manner. The style is a cultural design, and so too must be 
 the manner because the manner is a preferred style for the conceptual ideal 
-it is to represent. Self-interest, as a force for the will of the human, 
+it is to represent. Self-interest, as a force for the will of the human being, 
 synonymously the "social creature", has the tendency to choose mannerism 
 over their own originality, when the objective is to represent rather than 
 discover, to uphold the legacy rather than re-design, and to value the 
@@ -2000,3 +2000,60 @@ by their cognitive and emotive connection to the vessel of their body, since
 the expression of potential possible from the inherent strengths of the 
 individual is not maximalized, even ignored and forgotten, when there is 
 little alignment between the manner and the individual trait. 
+
+## More on philosophies of self-interest #39 
+
+Self-interest, although self-driven through the will, as the force from 
+one's will that is one layer above the one's motivation, can be manipulated. 
+The reason for this manipulation is due to the directionality of the will 
+being manipulable. By simple logic, the change in the input (the will) 
+necessarily changes the output (qualities of self-interest such as the 
+objectives). Some may argue that motivation is dependent on the will, 
+instead of the converse that this text supposes. The semantics of language 
+allow there to be differences in defining motivation and the will. The 
+reason why this text places the will as dependent on motivation is due 
+to the catalytic power of motivation. Motivation is a sort of metaphysical 
+predecessor fuel for all actionable decisions made by the self. The will 
+may be what is responsible for the self to decide on an option, out of 
+their self-interest. But without the motivation, the will lacks an inherent 
+drive to proceed to executing the decision. Plants, for example, have the 
+will to grow once the seed has sprouted. But the growth of the plant is 
+purely physical, the growth of fibers into stems and branches connected to 
+the root. Why would the plant not develop locomotion, or produce the fruits 
+of different species, or naturally merge with other plants instead of competing 
+for resources of soil and water? The plant does not do any of these things 
+in the previous question, because the motivation of the plant propels its 
+will to express development as growth in the formula that motivation is 
+already definitively attached to. The growth is for the form of the plant's 
+species. In biological terms, motivation would be equated to the biological 
+code of RNA and DNA, so that if the potential is there, there is a determinism 
+at play that does not allow development of the life past a threshold of 
+divergence. Motivation is not equivalent to the biological code of RNA and DNA, 
+but the similarity is mentioned to differentiate the determinism of motivation 
+from that of will. The will can be directed towards one thing but through its 
+use, something else emerges. This difference between the expected and the 
+actual is due to one or more of three culprits: the will as something confused 
+by the associated self, the self-interest as misguided by the use of the will 
+in a directionality improper towards the expected, or the motivation is not 
+there for the will of wants and desires converged into expectation unmet. 
+Then according to this text's description, when the terms "will" and 
+"motivation" are swapped for one another's definition, then the "will" 
+is a dependency for "motivation". One point of confusion on "self-interest", 
+"will", and "motivation" is the cognitive awareness by the self of these 
+forces. The self always has a conceptualization of their self-interest, 
+although they might not know the consequences of acting on what they 
+comprehend to be their self-interest. It can be argued that no one knows 
+the future in absolute detail, after all. As for the will, the will has no 
+mind to decide things on its lone existence as a force. The material of 
+animate and inanimate is what contains the force of will; on a related note, 
+the will as one single force is dispersed in the way of arbitrary splits 
+of economy between all material. The will, being mindless, exists in modalities 
+of directionalities, and can be used by the self as a metaphysical propellant 
+of a force. But the motivation is very similar, at least, to the deterministic 
+qualities of the corresponding self, hence why the simile of the biological 
+code of RNA and DNA was used to help describe this force. In common usage, 
+when one is said to be "motivated" for something or to do something, in 
+the factuality of this text's description, it is the directionality of will 
+that has been geared towards that something. However, without the motivation 
+that is responsible for the capability, in addition to the physical requirements, 
+the possibility of attaining or achieving that something can never actualize. 
