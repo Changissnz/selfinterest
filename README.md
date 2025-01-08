@@ -2057,3 +2057,31 @@ the factuality of this text's description, it is the directionality of will
 that has been geared towards that something. However, without the motivation 
 that is responsible for the capability, in addition to the physical requirements, 
 the possibility of attaining or achieving that something can never actualize. 
+Any discussion of metaphysics attempts to define the intangible concept universally 
+recognized by any human being as phenomena they feel or think. Due to experience 
+belonging to the individual, attempts to define metaphysics always fail to 
+reach the specific that can be universally agreed on, but as for a group or a 
+couple of human beings, agreement is more easily reached, due to the simple 
+reason of less minds for less conflict in specified definition on the same 
+concept. With this acknowledgment of the shortfalls of understanding the 
+metaphysical in concrete (ironic, is it not) terms in mind, the conceptualization 
+of the hierarchical structure, of metaphysical existence, with self-interest 
+being on top of the will on top of motivation is correct only because of the 
+definition provided in this section, and correctness is an unanswered question 
+for any detail outside the confines of this section. This here would be an 
+example of the shortfalls of Aristotelian logic: to systematize an understanding, 
+by use of terms independently defined, does indeed suit the purposes of 
+conceptual understanding, but there are specifics of conditions and details 
+in practical settings unacknowledged or incomprehensible due to the limits of 
+a priori reasoning, so that only the anticipation of a reasonable span of 
+possibilities can be correct in moving forward to experiencing the actual. 
+So too is any conceptualization of self-interest. There are accurate abstractions 
+of self-interest that provide some modicum of understanding. However, the 
+details either occur by chance of coincidence, have not occurred yet so there 
+can only be the prejudice of expectation for the particular details to occur, 
+or somehow produce too many possibilities to be of any valuable meaning (meaning 
+is singular or at least a unified body of sorts, by the way). Self-interest 
+acts in uncountable ways for uncountable appearances and effects, and there 
+appears to be no proof, by the default of generality, on the theoretical 
+availabilities for an agent to manipulate another's self-interest for some 
+other alternative in the spectrum/s of uncountable possibilities. 
