@@ -2017,7 +2017,7 @@ predecessor fuel for all actionable decisions made by the self. The will
 may be what is responsible for the self to decide on an option, out of 
 their self-interest. But without the motivation, the will lacks an inherent 
 drive to proceed to executing the decision. Plants, for example, have the 
-will to grow once the seed has sprouted. But the growth of the plant is 
+will to grow once their seed has sprouted. But the growth of the plant is 
 purely physical, the growth of fibers into stems and branches connected to 
 the root. Why would the plant not develop locomotion, or produce the fruits 
 of different species, or naturally merge with other plants instead of competing 
@@ -2052,7 +2052,7 @@ of directionalities, and can be used by the self as a metaphysical propellant
 of a force. But the motivation is very similar, at least, to the deterministic 
 qualities of the corresponding self, hence why the simile of the biological 
 code of RNA and DNA was used to help describe this force. In common usage, 
-when one is said to be "motivated" for something or to do something, in 
+when one is said to be "motivated" for something or to do something, by 
 the factuality of this text's description, it is the directionality of will 
 that has been geared towards that something. However, without the motivation 
 that is responsible for the capability, in addition to the physical requirements, 
@@ -2063,8 +2063,8 @@ belonging to the individual, attempts to define metaphysics always fail to
 reach the specific that can be universally agreed on, but as for a group or a 
 couple of human beings, agreement is more easily reached, due to the simple 
 reason of less minds for less conflict in specified definition on the same 
-concept. With this acknowledgment of the shortfalls of understanding the 
-metaphysical in concrete (ironic, is it not) terms in mind, the conceptualization 
+concept. With this acknowledgment in mind of the shortfalls of understanding the 
+metaphysical in concrete (ironic, is it not) terms, the conceptualization 
 of the hierarchical structure, of metaphysical existence, with self-interest 
 being on top of the will on top of motivation is correct only because of the 
 definition provided in this section, and correctness is an unanswered question 
