@@ -2134,4 +2134,7 @@ artificial axiom is constantly questionable, in turn, has a undeniable truth
 for the default state. Upheld reason for the birth and continuing usage of the 
 axiom is that of belief in cases of more than one causality chain, or where 
 the validity of any causality chain for explanation fails the test of correctness 
-outside of the coincidence for favorable occurrence. 
+outside of the coincidence for favorable occurrence. Belief, of course, is not 
+equivalently truthful reason. But from the cognition of self-interest, the truth 
+is the self prefers and choses how to understand, with the chance for this 
+understanding to overlap with misunderstanding. 
