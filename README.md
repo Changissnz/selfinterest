@@ -2169,5 +2169,6 @@ convolute the original chain/s of reason, if any of validity can
 be found, because it depends on social acceptances in practice. 
 The acceptance is what counts much more in the social realm rather 
 than the reason of truth; it can be argued that any reason of truth 
-is the axiom of natural law, but the advancement of sentient will 
-"above" the axiom, capable of deciding on choice, must proceed.
+can only happen on phenomena entirely causes from the axioms of natural 
+law, but the advancement of sentient will "above" the axiom, capable of 
+deciding on choice, must go on. 
