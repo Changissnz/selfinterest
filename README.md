@@ -2093,7 +2093,15 @@ uncountable possibilities.
 
 The artificial axiom has the weakness of not being in complete alignment 
 with the inevitable of the axioms for natural law. From a geometric perspective, 
-the artificial axiom rest at least one step on top of the axiom. The artificial 
+the artificial axiom rest at least one step on top of the axiom. There can be 
+a parallel in the "positioning" of the artificial axiom on top of the axiom, 
+for there to be a "synergy" between the constancy of nature and the preference 
+of action in the construct of the artificial axiom, albeit this is still an 
+attempt to amplify the fundamental, such amplification resulting in not growing 
+any fundamental but choosing a form to propagate a misconstrued fundamental. 
+In the logic of geometric representation, attempting "positioning" of the 
+artificial axiom towards the perpendicular with respect to the axiom is a 
+counter against unauthorized occurrence of the axiom. The artificial 
 axiom depends on the sentient usage or occurrence of the axiom to exist in material 
 or action. The sole appearance of the artificial axiom in use reasons to be 
 arbitrary. Why, there are many steps in sentient thought and action in order 
