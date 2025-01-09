@@ -2016,10 +2016,10 @@ to the catalytic power of motivation. Motivation is a sort of metaphysical
 predecessor fuel for all actionable decisions made by the self. The will 
 may be what is responsible for the self to decide on an option, out of 
 their self-interest. But without the motivation, the will lacks an inherent 
-drive to proceed to executing the decision. Plants, for example, have the 
-will to grow once their seed has sprouted. But the growth of the plant is 
-purely physical, the growth of fibers into stems and branches connected to 
-the root. Why would the plant not develop locomotion, or produce the fruits 
+drive to proceed with for executing the decision. Plants, for example, have 
+the will to grow once their seed has sprouted. But the growth of the plant 
+is purely physical, the growth of fibers into stems and branches connected 
+to the root. Why would the plant not develop locomotion, or produce the fruits 
 of different species, or naturally merge with other plants instead of competing 
 for resources of soil and water? The plant does not do any of these things 
 in the previous question, because the motivation of the plant propels its 
