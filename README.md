@@ -2111,7 +2111,7 @@ is a part of the decision-making by the sentience surrounding them, the
 knowledge of the corresponding circumstances, in relative temporal spans 
 to the point/s in time of the artificial axiom's usage, and sentient decisions 
 in relation to those corresponding circumstances are pieced together in a 
-fashion that attempts to use purely logic. Due to the many steps above 
+fashion that attempts to use pure logic. Due to the many steps above 
 the axioms of natural law that the artificial axiom presides on, there can 
 be multiple, maybe innumerable, causality chains for why the artificial axiom 
 came into sentient usage. Even if all causality chains are correct by logical 
@@ -2143,4 +2143,31 @@ of correctness outside of the coincidence for favorable occurrence. Belief,
 of course, is not equivalently the reason of truth. But from the cognition 
 of self-interest, the truth is that the self chooses to understand and prefers 
 how to understand, with the chance for this understanding to overlap with 
-misunderstanding. 
+misunderstanding where there is an actual not understood. By frequency of 
+the attributes from transpired events, the artificial axiom came into 
+existence as rationale from sentience on matters such as the "solution" 
+to the "problem", the "help" for the "solution", the "moral utility" of 
+the "problem, et cetera. For instance, thievery is a universal vice 
+recognized by societies. The labeling of thievery is a vice on the 
+default of fairness, justice, and equality. To steal something is to 
+produce a void of loss to at least one other sentient being. If stealing 
+became prevalent, modalities of living that rely on ownership and 
+accountability would be threatened. No average sentient being would 
+prefer to be a victim of theft. So the artificial axiom of prohibiting 
+thievery is one that uses the idea of loss in property as unfairness 
+by breaking of the rule, the artificial axiom. But the artificial axiom 
+cannot be guaranteed to reach a usage more absolute in frequency than 
+not. The artificial axiom, in social settings, many times works by 
+the moral of reciprocity: what one does to another will be returned 
+to that one by the another, in kind. The moral of reciprocity 
+makes up half of the concept of moral relativism because of its 
+equivalency of one action/appearance for another, by the metric of 
+similarity. The other half is contradiction and hypocrisy. Despite 
+the relativity in the moral of reciprocity, this principle that also 
+acts as an artificial axiom for other artificial axioms helps to 
+convolute the original chain/s of reason, if any of validity can 
+be found, because it depends on social acceptances in practice. 
+The acceptance is what counts much more in the social realm rather 
+than the reason of truth; it can be argued that any reason of truth 
+is the axiom of natural law, but the advancement of sentient will 
+"above" the axiom, capable of deciding on choice, must proceed.
