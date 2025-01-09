@@ -2153,7 +2153,7 @@ default of fairness, justice, and equality. To steal something is to
 produce a void of loss to at least one other sentient being. If stealing 
 became prevalent, modalities of living that rely on ownership and 
 accountability would be threatened. No average sentient being would 
-prefer to be a victim of theft. So the artificial axiom of prohibiting 
+desire to be a victim of theft. So the artificial axiom of prohibiting 
 thievery is one that uses the idea of loss in property as unfairness 
 by breaking of the rule, the artificial axiom. But the artificial axiom 
 cannot be guaranteed to reach a usage more absolute in frequency than 
@@ -2167,8 +2167,31 @@ the relativity in the moral of reciprocity, this principle that also
 acts as an artificial axiom for other artificial axioms helps to 
 convolute the original chain/s of reason, if any of validity can 
 be found, because it depends on social acceptances in practice. 
-The acceptance is what counts much more in the social realm rather 
-than the reason of truth; it can be argued that any reason of truth 
-can only happen on phenomena entirely causes from the axioms of natural 
-law, but the advancement of sentient will "above" the axiom, capable of 
-deciding on choice, must go on. 
+The acceptance is what counts much more in the social realm of 
+cooperation rather than the reason of truth; it can be argued that 
+any reason of truth can only happen on phenomena entirely causes from 
+the axioms of natural law, but the advancement of sentient will "above" 
+the axiom, capable of deciding on choice, must go on. For an artificial 
+axiom to be regarded identically as an axiom of natural law, there then 
+must be an understanding between two or more sentient beings to act by 
+that prescription. Only then can the artificial axiom appear to be one 
+of producing effect from the cause without there being discernible, 
+perhaps forced or insincere, effort of at least one sentient being's 
+will, unreliable by inconsistency in availability. The overlap between 
+economics and decision theory also happens to produce questions on how 
+the self, how any self, perceives and upholds the artificial axiom 
+subjected onto them. Economic thought usually veers towards the 
+quantitative in the format of tables that illustrate the gains and 
+losses that occur to a decider, the self in this discussion, if they 
+were to make a decision in the context of specific conditions such 
+as the decisions by other selves. In this focus on the decision 
+that actualizes based on the reason of gains and losses, efforts to 
+rationalize cause and use by decision revolve around these gains and 
+losses, nothing more. Said gains and losses do have reasons for their 
+occurrence, by the way. The artificial axiom that takes precedence over 
+virtually all others, in economic decision theory quantified, is that 
+of leveraging gains for the self and possibly loss for the other, in 
+situations of inevitable loss. Many artificial axioms are violated 
+in such leveraging, the weighing out of choice is a compromise with 
+the potential to fulfill self-interest at the loss of consistent 
+adherence to the artificial axiom. 
