@@ -2126,15 +2126,21 @@ to the artificial axiom. The artificial axiom is arbitrary by judgment
 strictly on the impression of use, the observer's awareness of context being 
 incomplete. Through the events transpired in a relevant span of time, in the 
 space of the artificial axiom's use, these events having an arbitrariness 
-in and of themselves by on the perspectives of non-determinism, such that 
+in and of themselves by the perspectives of non-determinism, such that 
 the alternative perspective of determinism on these events does not include 
 the readily available reason of incontestable standing, the statement that 
 the logical constructs used to rationalize the existence and validity of the 
 artificial axiom is constantly questionable, in turn, has a undeniable truth 
-for the default state. Upheld reason for the birth and continuing usage of the 
-axiom is that of belief in cases of more than one causality chain, or where 
-the validity of any causality chain for explanation fails the test of correctness 
-outside of the coincidence for favorable occurrence. Belief, of course, is not 
-equivalently the reason of truth. But from the cognition of self-interest, the 
-truth is that the self chooses to understand and prefers how to understand, 
-with the chance for this understanding to overlap with misunderstanding. 
+for the default state. In complex cases that deal with plurality, there is 
+no readily available evidence to support any conjectured cause-to-effect. 
+Lack of clarity on the cause of the artificial axiom is due to appearance 
+being the first aspect registered by cognition, then the appearance as the 
+effect from an ascertained cause that may serve or served the dual purpose 
+of an effect from a different cause. Upheld reason for the birth and continuing 
+usage of the axiom is that of belief in cases of more than one causality chain, 
+or where the validity of any causality chain for explanation fails the test 
+of correctness outside of the coincidence for favorable occurrence. Belief, 
+of course, is not equivalently the reason of truth. But from the cognition 
+of self-interest, the truth is that the self chooses to understand and prefers 
+how to understand, with the chance for this understanding to overlap with 
+misunderstanding. 
