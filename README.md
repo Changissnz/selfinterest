@@ -2088,3 +2088,42 @@ appearances and effects, and there appears to be no proof, by the default
 of generality, on the theoretical availabilities for an agent to manipulate 
 another's self-interest for some other alternative in the spectrum/s of 
 uncountable possibilities. 
+
+## More on philosophies of self-interest #40 
+
+The artificial axiom has the weakness of not being in complete alignment 
+with the inevitable of the axioms for natural law. From a geometric perspective, 
+the artificial axiom rest at least one step on top of the axiom. The artificial 
+axiom depends on the sentient usage or occurrence of the axiom to exist in material 
+or action. The sole appearance of the artificial axiom in use reasons to be 
+arbitrary. Why, there are many steps in sentient thought and action in order 
+for the artificial axiom to have come about in not only existence but also 
+acceptance of it as a rule. For one to understand why the artificial axiom 
+is a part of the decision-making by the sentience surrounding them, the 
+knowledge of the corresponding circumstances, in relative temporal spans 
+to the point/s in time of the artificial axiom's usage, and sentient decisions 
+in relation to those corresponding circumstances are pieced together in a 
+fashion that attempts to use purely logic. Due to the many steps above 
+the axioms of natural law that the artificial axiom presides on, there can 
+be multiple, maybe innumerable, causality chains for why the artificial axiom 
+came into sentient usage. Even if all causality chains are correct by logical 
+construct, the preference for a subset of all of these chains excludes 
+certain truths then. But to consider each causality chain as being pertinent 
+as rationales for cause-to-effect, there is the potential for there to be 
+too many chains for the utility of the rationales to be used in any ways 
+other than deterministic or probabilistic preference. This is a mathematical 
+description for the prejudice of accepting and rejecting equal rationales, 
+logical constructs, to explain the chosen style, form, and nature belonging 
+to the artificial axiom. The artificial axiom is arbitrary by judgment 
+strictly on the impression of use, the observer's awareness of context being 
+incomplete. Through the events transpired in a relevant span of time, in the 
+space of the artificial axiom's use, these events having an arbitrariness 
+in and of themselves by on the perspectives of non-determinism, such that 
+the alternative perspective of determinism on these events does not include 
+the readily available reason of incontestable standing, the statement that 
+the logical constructs used to rationalize the existence and validity of the 
+artificial axiom is constantly questionable, in turn, has a undeniable truth 
+for the default state. Upheld reason for the birth and continuing usage of the 
+axiom is that of belief in cases of more than one causality chain, or where 
+the validity of any causality chain for explanation fails the test of correctness 
+outside of the coincidence for favorable occurrence. 
