@@ -1912,7 +1912,7 @@ instance, not be welcomed as a participant to certain organizations since
 although they may practice the manner of those organizations, they do not 
 possess the inherent attributes that position them to benefit from the manner, 
 then the possibility of the self rejecting the mannerism becomes greater. 
-From their self-interest, the mannerism is a legitimacized roadblock 
+From their self-interest, the mannerism is a legitimized roadblock 
 that restricts the wanted actualization of potential from the self. Conformity 
 is the default decision of the mannerist; the mannerist presents themself in 
 the accepted forms of attitudes and appearances, these being the references. 
