@@ -2190,11 +2190,14 @@ that actualizes based on the reason of gains and losses, efforts to
 rationalize cause and use by decision revolve around these gains and 
 losses, nothing more. Said gains and losses do have reasons for their 
 occurrence, by the way. Exclusive consideration of these gains and 
-losses to decide means that their reasons do not have to be known 
-by the decider. The artificial axiom that takes precedence over 
-virtually all others, in economic decision theory quantified, is that 
-of leveraging gains for the self and possibly loss for the other, in 
-situations of inevitable loss. Many artificial axioms are violated 
+losses to decide means that the reasons for their being do not have 
+to be known by the decider. The artificial axiom that takes precedence 
+over virtually all others, in economic decision theory quantified, is 
+that of leveraging gains for the self and possibly loss for the other, 
+in situations of inevitable loss. Many artificial axioms are violated 
 in such leveraging, the weighing out of choice a compromise with 
 the potential to fulfill self-interest at the loss of consistent 
-adherence to the artificial axiom. 
+adherence to these artificial axioms. 
+
+## More on philosophies of self-interest #41 
+
