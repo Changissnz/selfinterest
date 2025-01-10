@@ -2257,12 +2257,12 @@ surrounding sentient beings. The self, being a societal member beholden
 to a social contract of sorts, is predictable at least in their actions, 
 but as to their thoughts of desires and deliberation, questions remain. 
 The artificial axiom influences the self to be a cooperating agent in 
-their surroundings. Morality, etiquette, all decisions made by self-interest 
-yet constantly under the influence in some methodological way by the artificial 
-axiom. Another aspect that makes the artificial axiom so effectively 
-influential on the self, part of a society no longer completely and closely 
-revolving around the axiom of natural law, is that the artificial axiom 
-is usually the default way of thinking and behaving that they are born 
+their surroundings. Morality, etiquette, all turned into decisions made 
+by self-interest yet constantly under the influence in some methodological 
+way by the artificial axiom. Another aspect that makes the artificial axiom 
+so effectively influential on the self, part of a society no longer completely 
+and closely revolving around the axiom of natural law, is that the artificial 
+axiom is usually the default way of thinking and behaving that they are born 
 into. For their own self-interest, downsides great to their relativity 
 in standing by the artificial axiom would logically have to occur for them 
 to reject the artificial axiom while still a member of that society. Social 
@@ -2271,3 +2271,41 @@ occurs when certain artificial axioms are revolted by many selves. As for
 the self, their subscription to the artificial axiom is purely a question 
 for their self-interest. In sociological and cultural terms, this subscription 
 is a disproportionate variable in judgments of their civility. 
+
+## More on philosophies of self-interest #41 
+
+Deficits become present in the use of any artificial axiom. The artificial 
+axiom is one that inadvertently promotes mimicry by certain sentient beings 
+of others in order to demonstrate the corresponding proper practice. Preferably, 
+authentic usage of the artificial axiom, an independent propensity for the 
+artificial axiom, instead of mimicry, where the positive influence for the 
+proper use logically assumes one or more sources of influence that can work 
+effect by the negative influence, a swaying of the will for self-interest 
+to operate for different ends in matters where conclusive effects as endings 
+are necessary, is the ideal. The workings of the economical human being, 
+by the lone self and collective, with a tendency to value efficiency over 
+the expensive rigor frequently labeled unnecessary and thus stupid, rely 
+on mimicry to certain degrees in all forms of thought and labor in the 
+social setting. Language is taught from parent and teacher to child, 
+prototypes of engineered products are copied and refined towards the 
+perfection of an enhanced image derived from an original, and wise sayings 
+are passed from one another through word of mouth and/or writing. Understanding 
+is not a universal formula of a process. Understanding is reached through 
+the spontaneity from the self's cognition of recognizing and expressing the 
+principle from an apparent. This is an ideal for originalism: if one were truly 
+capable in their independence of thought and action, they should be the one 
+responsible for achieving the understanding without the guide of hints and 
+other supplements. Alternatively, understanding can be reached through efforts 
+past the successful imitation. Imitation of the process is heavily reliant 
+on the rote memorization, the experience of the visual to act in appearance 
+for the effect of product material or not, in the likeness of the source used 
+to imitate. If self-interest does not take a keen interest, a "magnetism", 
+towards the axiomatic construct of the imitated process, in the independent 
+language of the self for the exactness of the actual, then self-interest 
+naturally does not understand the entirety, the cause that results in the 
+effects constituting the process they are mimicking. In fact, if the influence 
+of the feedback the self receives on their conduct of the process is of 
+an importance more than their understanding, the self is not motivated by 
+the external, in other words. Their motivation, although possessing the potential 
+to, thereby utilizes the capability of metaphorically shutting the door to 
+the possibility of understanding by effort of self-interest, from the will. 
