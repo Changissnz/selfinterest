@@ -2258,15 +2258,15 @@ to a social contract of sorts, is predictable at least in their actions,
 but as to their thoughts of desires and deliberation questions remain. 
 The artificial axiom influences the self to be a cooperating agent in 
 their surroundings. Morality, etiquette, all decisions made by self-interest 
-yet constantly influenced in some notable way by the artificial axiom. 
-Another aspect that makes the artificial axiom so effectively influential 
-on the self, part of a society no longer completely and closely revolving 
-around the axiom of natural law, is that the artificial axiom is usually 
-the default way of thinking and behaving that they are born into. For 
-their own self-interest, downsides great to their relativity in standing 
-by the artificial axiom would logically have to occur for them to reject 
-the artificial axiom while still a member of that society. Social unrest, 
-social movements, social upheaval. These social phenomena are what occurs 
-when certain artificial axioms are revolted by many selves. As for the 
-self, their subscription to the artificial axiom is purely a question 
+yet constantly under the influence in some methodological way by the artificial 
+axiom. Another aspect that makes the artificial axiom so effectively 
+influential on the self, part of a society no longer completely and closely 
+revolving around the axiom of natural law, is that the artificial axiom 
+is usually the default way of thinking and behaving that they are born 
+into. For their own self-interest, downsides great to their relativity 
+in standing by the artificial axiom would logically have to occur for them 
+to reject the artificial axiom while still a member of that society. Social 
+unrest, social movements, social upheaval. These social phenomena are what 
+occurs when certain artificial axioms are revolted by many selves. As for 
+the self, their subscription to the artificial axiom is purely a question 
 for their self-interest. 
