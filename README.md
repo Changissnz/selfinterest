@@ -2178,7 +2178,7 @@ understanding between two or more sentient beings to act by that
 prescription. Only then can the artificial axiom appear to be one 
 of producing effect from the cause without there being discernible, 
 perhaps forced or insincere, effort of at least one sentient being's 
-will, unreliable by inconsistency in availability. The overlap between 
+will, unreliable, inconsistent in availability. The overlap between 
 economics and decision theory also happens to produce questions on how 
 the self, how any self, perceives and upholds the artificial axiom 
 subjected onto them. Economic thought usually veers towards the 
