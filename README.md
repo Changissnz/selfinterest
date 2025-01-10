@@ -2201,3 +2201,72 @@ adherence to these artificial axioms.
 
 ## More on philosophies of self-interest #41 
 
+Self-interest of the self, in the predominant setting of sociality, 
+should not be interpreted as independent in cause-and-effect, the 
+will to do something possible necessarily meaning that that possibility 
+manifests itself, if only because the will is of "the people", in 
+the rhetoric of fairness by default. Additionally, the hierarchical 
+model written of in this text, self-interest dependent on the will 
+dependent on the motivation, does imply that an arbitrary human 
+being, no matter how accurate the directionality of their will 
+for their want, the motivation is not there for them to move on to
+success. Physically, psychologically, genetically; the items in this 
+list of three are some main categories in rationales on why the will 
+of want does not always manifest the want in the existence of the 
+spatiotemporal context. The artificial axiom is important in analyzing 
+failures to reach the outcomes sought by self-interest. Despite the 
+metaphorically great distance between the artificial axiom and the 
+axiom in processes of actualization, the artificial axiom does become 
+a concern greater in psychological impact to the self of any society 
+developed past the basics of providing food, water, shelter. Even these 
+basics become subject to artificial axioms of fairness and justice. 
+The artificial axiom tames moral ambiguity, gives instruction for 
+virtually any sentient decision, given their knowledge of the artificial 
+axiom, of course, and other benefits to the "social fabric", comprised 
+of the "social creature" that all selves, each connected to an individual 
+human body, and material needed to support their ways of life. The social 
+contract, a concept defined some time ago, is essentially a body of 
+artificial axioms, argued to grant benefit to the individual self if 
+the self were to follow the instructions passed to them through these 
+artificial axioms. Human societies, once in great control of their 
+destiny, free from constant natural disasters, the predation by 
+carnivorous beasts inclined to dominate them if not for their tools 
+forged and evolved over many centuries, develop the liberty to not be 
+so narrowly focused on activity so closely revolving around the axiom 
+of natural law, although the axiom of natural law may be poorly understood 
+and instead accredited to their deities. This is not stating that 
+human societies, once developed past a certain point, regress to 
+unscientific, unmethodological beasts that only desire an incomplete 
+inkling in operational knowledge of the axiom. Instead, the opposite 
+can be what takes place. Human societies, having developed some advancements 
+for their control over what would have been the fate of their demise or 
+other undoings, are driven by the collective interest of self-interest 
+to develop new methodologies that use the axiom and explore phenomena to 
+exact the unknown of other axioms. However the results turn out, the 
+will of want not always coming into fruition, as already stated, the 
+availability of the exact knowledge of the axiom is potential untrapped 
+for self-interest to continue on in directions dependent on that knowledge, 
+that is, scientific discovery and engineering. The artificial axiom 
+can be one of decorum, the rule of conduct and the preferred appearance 
+as the impression of desirably enacting principle, this being "mannerism". 
+An attribute on practices of mannerism, valuable enough to mention, is that 
+the effect that is the appearance of the human being, through their action 
+and speech, is usually without question on the cause of this effect where 
+the mannerist is coincidentally one blindly accepted at face value by 
+surrounding sentient beings. The self, being a societal member beholden 
+to a social contract of sorts, is predictable at least in their actions, 
+but as to their thoughts of desires and deliberation questions remain. 
+The artificial axiom influences the self to be a cooperating agent in 
+their surroundings. Morality, etiquette, all decisions made by self-interest 
+yet constantly influenced in some notable way by the artificial axiom. 
+Another aspect that makes the artificial axiom so effectively influential 
+on the self, part of a society no longer completely and closely revolving 
+around the axiom of natural law, is that the artificial axiom is usually 
+the default way of thinking and behaving that they are born into. For 
+their own self-interest, downsides great to their relativity in standing 
+by the artificial axiom would logically have to occur for them to reject 
+the artificial axiom while still a member of that society. Social unrest, 
+social movements, social upheaval. These social phenomena are what occurs 
+when certain artificial axioms are revolted by many selves. As for the 
+self, their subscription to the artificial axiom is purely a question 
+for their self-interest. 
