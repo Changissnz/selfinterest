@@ -2255,7 +2255,7 @@ and speech, is usually without question on the cause of this effect where
 the mannerist is coincidentally one blindly accepted at face value by 
 surrounding sentient beings. The self, being a societal member beholden 
 to a social contract of sorts, is predictable at least in their actions, 
-but as to their thoughts of desires and deliberation questions remain. 
+but as to their thoughts of desires and deliberation, questions remain. 
 The artificial axiom influences the self to be a cooperating agent in 
 their surroundings. Morality, etiquette, all decisions made by self-interest 
 yet constantly under the influence in some methodological way by the artificial 
@@ -2269,4 +2269,5 @@ to reject the artificial axiom while still a member of that society. Social
 unrest, social movements, social upheaval. These social phenomena are what 
 occurs when certain artificial axioms are revolted by many selves. As for 
 the self, their subscription to the artificial axiom is purely a question 
-for their self-interest. 
+for their self-interest. In sociological and cultural terms, this subscription 
+is a disproportionate variable in judgments of their civility. 
