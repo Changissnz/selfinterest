@@ -2296,16 +2296,17 @@ principle from an apparent. This is an ideal for originalism: if one were truly
 capable in their independence of thought and action, they should be the one 
 responsible for achieving the understanding without the guide of hints and 
 other supplements. Alternatively, understanding can be reached through efforts 
-past the successful imitation. Imitation of the process is heavily reliant 
-on the rote memorization, the experience of the visual to act in appearance 
-for the effect of product material or not, in the likeness of the source used 
-to imitate. If self-interest does not take a keen interest, a "magnetism", 
-towards the axiomatic construct of the imitated process, in the independent 
-language of the self for the exactness of the actual, then self-interest 
-naturally does not understand the entirety, the cause that results in the 
-effects constituting the process they are mimicking. In fact, if the influence 
-of the feedback the self receives on their conduct of the process is of 
-an importance more than their understanding, the self is not motivated by 
-the external, in other words. Their motivation, although possessing the potential 
-to, thereby utilizes the capability of metaphorically shutting the door to 
-the possibility of understanding by effort of self-interest, from the will. 
+past the successful imitation by one initially ignorant on the matter. Imitation 
+of the process is heavily reliant on the rote memorization, the experience of the 
+visual to act in appearance for the effect of product material or not, in the 
+likeness of the source used to imitate. If self-interest does not take a keen 
+interest, a "magnetism", towards the axiomatic construct of the imitated process, 
+in the independent language of the self for the exactness of the actual, 
+then self-interest naturally does not understand the entirety, the cause that 
+results in the effects constituting the process they are mimicking. In fact, 
+if the influence of the feedback the self receives on their conduct of the process 
+is of an importance more than their understanding, the self is not motivated (in 
+the categorization of one or the other) by the external, in other words. Their 
+motivation, although possessing the potential so that the posssibility is there, 
+thereby utilizes the differing capability of metaphorically shutting the door to 
+the possibilities of understanding by effort of self-interest, from the will. 
