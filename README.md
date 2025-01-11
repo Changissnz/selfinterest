@@ -2374,15 +2374,15 @@ of the self's cognition. From context to context, self-interest transforms
 the definition of the artificial axiom, demanded for use, into other forms to 
 fit for acceptance; this is how rationalization of the questionable, required 
 an answer, works. Transformative processes, from the "fundamental" definition 
-of the artificial axiom, for each usage, and an arbitrary usage could demand 
-said definition to be altered in order to fit for the form, the "ideal" and 
-whatnot. Artificial axioms, as being individuals' definitions, are rules 
-collectivist to some particular degrees. The appearance of the collective 
-adhering to the artificial axiom, maybe even so much to be interpreted as religious 
-fervor, is deceptive to the observer fixated on the "total" before their senses. 
-Self-interest, the self, is the unit that constructs the appearance of the 
-collective, maybe successfully even fostering a metaphysical (spiritual) unity 
-more unbreakable than any material construct. And so, the artificial axiom is 
-instantiated in the variable ways of spottiness and totality, with respect to 
-consistency of effect from causes identical in principle to that described by 
-the artificial axiom, by "social creatures", human beings. 
+of the artificial axiom, for arbitrary usage could demand said definition to 
+be altered in order to fit for the form, the "ideal" and whatnot. Artificial 
+axioms, as being individuals' definitions, are rules collectivist to some 
+particular degrees. The appearance of the collective adhering to the artificial 
+axiom, maybe even so much to be interpreted as religious fervor, is deceptive 
+to the observer fixated on the "total" before their senses. Self-interest, the 
+self, is the unit that constructs the appearance of the collective, maybe 
+successfully even fostering a metaphysical (spiritual) unity more unbreakable 
+than any material construct. And so, the artificial axiom is instantiated in 
+the variable ways of spottiness and totality, with respect to consistency of 
+effect from causes identical in principle to that described by the artificial 
+axiom, by "social creatures", human beings. 
