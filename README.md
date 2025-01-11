@@ -2380,7 +2380,7 @@ axioms, as being individuals' definitions, are rules collectivist to some
 particular degrees. The appearance of the collective adhering to the artificial 
 axiom, maybe even so much to be interpreted as religious fervor, is deceptive 
 to the observer fixated on the "total" before their senses. Self-interest, the 
-self, is the unit that constructs the appearance of the collective, maybe 
+self, is the unit for constructing the appearance of the collective, maybe 
 successfully even fostering a metaphysical (spiritual) unity more unbreakable 
 than any material construct. And so, the artificial axiom is instantiated in 
 the variable ways of spottiness and totality, with respect to consistency of 
