@@ -2384,4 +2384,4 @@ collective, maybe successfully even fostering a metaphysical (spiritual) unity
 more unbreakable than any material construct. And so, the artificial axiom is 
 instantiated in the variable ways of spottiness and totality, with respect to 
 consistency of effect from causes identical in principle to that described by 
-the artificial axiom, by the "social creature", the human being. 
+the artificial axiom, by "social creatures", human beings. 
