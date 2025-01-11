@@ -2279,7 +2279,7 @@ axiom is one that inadvertently promotes mimicry by certain sentient beings
 of others in order to demonstrate the corresponding proper practice. Preferably, 
 authentic usage of the artificial axiom, an independent propensity for the 
 artificial axiom, instead of mimicry, where the positive influence for the 
-proper use logically assumes one or more sources of influence that can work 
+proper use logically assumes one or more sources of influence can work 
 effect by the negative influence, a swaying of the will for self-interest 
 to operate for different ends in matters where conclusive effects as endings 
 are necessary, is the ideal. The workings of the economical human being, 
