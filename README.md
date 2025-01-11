@@ -2281,7 +2281,7 @@ authentic usage of the artificial axiom, an independent propensity for the
 artificial axiom, instead of mimicry, where the positive influence for the 
 proper use logically assumes one or more sources of influence can work 
 effect by the negative influence, a swaying of the will for self-interest 
-to operate for different ends in matters where conclusive effects as endings 
+to operate towards different ends in matters where conclusive effects as endings 
 are necessary, is the ideal. The workings of the economical human being, 
 by the lone self and collective, with a tendency to value efficiency over 
 the expensive rigor frequently labeled unnecessary and thus stupid, rely 
@@ -2292,7 +2292,7 @@ perfection of an enhanced image derived from an original, and wise sayings
 are passed from one another through word of mouth and/or writing. Understanding 
 is not a universal formula of a process. Understanding is reached through 
 the spontaneity from the self's cognition of recognizing and expressing the 
-principle from an apparent. This is an originalist ideal: if one were truly 
+principle of an apparent. This is an originalist ideal: if one were truly 
 capable in their independence of thought and action, they should be the one 
 responsible for achieving the understanding without the guide of hints and 
 other supplements. Alternatively, understanding can be reached through efforts 
@@ -2322,7 +2322,7 @@ while without the proper motivation for a specific "motive", there would be none
 so to speak. The "motive", as an aspect of self-interest, encourages the self to 
 strive to succeed for the wanted outcomes in relation, and is equivalently the 
 preferred cause of choice by a human being. The "motive" is one thing, then, and 
-the actual a possibility from the motive, this reasoning identical to the will 
+the actual possibly suiting the motive, this reasoning identical to the will 
 being one thing and the wanted actualization another, simply because both of 
 these statements draw the hard line between the self with their self-interest, 
 their will, their motivation and the actual, the phenomena inevitable and the 
@@ -2358,30 +2358,30 @@ outside of the word's definition, the context by which one synonym is
 used instead of another could have been due to the decision of a play on 
 words or a humorous implication on the situation being discussed. Synonyms 
 are clear indicators of the practice's plurality by human beings, analogously, 
-the variance in attire as the artificial axiom of demand for clothing, 
-the greeting of welcome as the artificial axiom of showing politeness, et 
-cetera. The artificial axiom is but a metaphysical body of meaning, 
+the variance in attire as the artificial axiom of demand for appropriate clothing, 
+the greeting of welcome as the artificial axiom of showing appropriate politeness, 
+et cetera. The artificial axiom is but a metaphysical body of meaning, 
 requiring the use of a shared natural language between two human beings 
 for their conjunctive understanding of similar, ideally identical, bearing. 
-It is then, with confidence, to state that the meaning of the artificial axiom 
+It is then to state, with confidence, that the meaning of the artificial axiom 
 is essentially an individual's definition, a metaphysical construct directly 
 or through influence a product from self-interest. Self-interest modifies 
 the official definition, gives "new life" to the word, to the artificial 
-axiom as a body of meaning frequently expressed in words, perceives the 
+axiom as a body of meaning frequently expressed in words, and perceives the 
 exemplifying image of the artificial axiom according to the constitutents 
 of the self's cognition. From context to context, self-interest transforms 
-the definition of the artificial axiom into other forms to fit for acceptance; 
-this is how rationalization of the questionable, required an answer, works. 
-Transformative processes, from the "fundamental" definition of the artificial 
-axiom, for each usage, and an arbitrary usage could demand said definition to 
-be altered in order to fit for the form, the "ideal" and whatnot. Artificial 
-axioms, as being individuals' definitions, are rules collectivist to some 
-particular degrees. The appearance of the collective adhering to the artificial 
-axiom, maybe even so much to be interpreted as religious fervor, is deceptive 
-to the observer fixated on the "total" before their senses. Self-interest, 
-the self, is the unit that constructs the appearance of the collective, maybe 
-successfully even fostering a metaphysical (spiritual) unity more unbreakable 
-than any material construct. And so, the artificial axiom exists in the variable 
-ways of spottiness and totality when the "social creatures", of human beings, 
-are all members that take the artificial axiom as truth equal to that of the 
-axiom. 
+the definition of the artificial axiom, demanded for use, into other forms to 
+fit for acceptance; this is how rationalization of the questionable, required 
+an answer, works. Transformative processes, from the "fundamental" definition 
+of the artificial axiom, for each usage, and an arbitrary usage could demand 
+said definition to be altered in order to fit for the form, the "ideal" and 
+whatnot. Artificial axioms, as being individuals' definitions, are rules 
+collectivist to some particular degrees. The appearance of the collective 
+adhering to the artificial axiom, maybe even so much to be interpreted as religious 
+fervor, is deceptive to the observer fixated on the "total" before their senses. 
+Self-interest, the self, is the unit that constructs the appearance of the 
+collective, maybe successfully even fostering a metaphysical (spiritual) unity 
+more unbreakable than any material construct. And so, the artificial axiom is 
+instantiated in the variable ways of spottiness and totality, with respect to 
+consistency of effect from causes identical in principle to that described by 
+the artificial axiom, by the "social creature", the human being. 
