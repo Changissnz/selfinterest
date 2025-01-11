@@ -2276,7 +2276,8 @@ is a disproportionate variable in judgments of their civility.
 
 Deficits become present in the use of any artificial axiom. The artificial 
 axiom is one that inadvertently promotes mimicry by certain sentient beings 
-of others in order to demonstrate the corresponding proper practice. Preferably, 
+of others in order to demonstrate the corresponding proper practice; but the 
+artificial axiom of following as virtue is instead direct. Preferably, 
 authentic usage of the artificial axiom, an independent propensity for the 
 artificial axiom, instead of mimicry, where the positive influence for the 
 proper use logically assumes one or more sources of influence can work 
@@ -2319,29 +2320,29 @@ for the "cause" of that someone to do or have done the action. In this text's
 construct that is the dependencies of self-interest, the will, and the motivation, 
 in descending order of dependence, self-interest is responsible for the "motive", 
 while without the proper motivation for a specific "motive", there would be none, 
-so to speak. The "motive", as an aspect of self-interest, encourages the self to 
-strive to succeed for the wanted outcomes in relation, and is equivalently the 
-preferred cause of choice by a human being. The "motive" is one thing, then, and 
-the actual possibly suiting the motive, this reasoning identical to the will 
-being one thing and the wanted actualization another, simply because both of 
-these statements draw the hard line between the self with their self-interest, 
-their will, their motivation and the actual, the phenomena inevitable and the 
-constructs that persist because of the axiom's instantiation and the artificial 
-axiom's use that may include instantiation of the axiom. The specificities of 
-the context and the context's appropriate methodologies for the pertaining 
-problem require solving issues of knowledge and adequately fitting execution by 
-that knowledge. Incompetence and willful failure, two labels for these 
-requirements. Consider the artificial axiom of "reciprocity". The reciprocal, 
-while easy to comprehend in mathematics as the singular process of swapping 
-a fraction's numerator and denumerator for one another's position, becomes 
-subject to interpretation by the self. Is reciprocity simply mimicking, imitating, 
-or mocking as the response that is what is believed to be the appropriate 
-action to another existence or action? This would have an easiness in positive 
-correlation to the complexity of what is to be reciprocated. Reciprocity, 
-as an objective of "equaling" out matters, or perhaps "negating" all of a 
-category, in practice would have to be quantified, so that the practice 
-of "reciprocating" can be analyzed. Would reciprocation mean anything if 
-not for the magnitude quantified, deliberately for a certain mark to send 
+so to speak, limited in existence to the realm of will of unattainable desire. The 
+"motive", as an aspect of self-interest, encourages the self to strive to succeed 
+for the wanted outcomes in relation, and is equivalently the preferred cause of 
+choice by a human being. The "motive" is one thing, then, and the actual possibly 
+suiting the motive, this reasoning identical to the will being one thing and the 
+wanted actualization another, simply because both of these statements draw the hard 
+line between the self with their self-interest, their will, their motivation and 
+the actual, the phenomena inevitable and the constructs that persist because of 
+the axiom's instantiation and the artificial axiom's use that may include instantiation 
+of the axiom. The specificities of the context and the context's appropriate 
+methodologies for the pertaining problem require solving issues of knowledge and 
+adequately fitting execution by that knowledge. Incompetence and willful failure, 
+two labels for these requirements. Consider the artificial axiom of "reciprocity". 
+The reciprocal, while easy to comprehend in mathematics as the singular process of 
+swapping a fraction's numerator and denumerator for one another's position, 
+becomes subject to interpretation by the self. Is reciprocity simply mimicking, 
+imitating, or mocking as the response that is what is believed to be the 
+appropriate action to another existence or action? This would have an easiness 
+in positive correlation to the complexity of what is to be reciprocated. 
+Reciprocity, as an objective of "equaling" out matters, or perhaps "negating" 
+all of a category, in practice would have to be quantified, so that the 
+practice of "reciprocating" can be analyzed. Would reciprocation mean anything 
+if not for the magnitude quantified, deliberately for a certain mark to send 
 a certain message in excess, lack, or equality to the reciprocated reference? 
 Or can reciprocating be something else other than the metaphorical "mirror 
 reflection"? An appropriate response unlike what was to be responded to. 
