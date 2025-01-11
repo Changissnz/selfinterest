@@ -1,4 +1,4 @@
-# Self-interest 
+# Self-Interest 
 
 The uniqueness of all philosophies of self-interest are but 
 a fraction of any other. In more words, that is because this 
@@ -2221,10 +2221,10 @@ a concern greater in psychological impact to the self of any society
 developed past the basics of providing food, water, shelter. Even these 
 basics become subject to artificial axioms of fairness and justice. 
 The artificial axiom tames moral ambiguity, gives instruction for 
-virtually any sentient decision, given their knowledge of the artificial 
-axiom, of course, and other benefits to the "social fabric", comprised 
-of the "social creature" that all selves, each connected to an individual 
-human body, and material needed to support their ways of life. The social 
+virtually any sentient decision, given the being's knowledge of the 
+artificial axiom, of course, and other benefits to the "social fabric", 
+comprised of the "social creature" that all selves, each connected to an individual 
+human body, are and the material needed to support their ways of life. The social 
 contract, a concept defined some time ago, is essentially a body of 
 artificial axioms, argued to grant benefit to the individual self if 
 the self were to follow the instructions passed to them through these 
@@ -2272,7 +2272,7 @@ the self, their subscription to the artificial axiom is purely a question
 for their self-interest. In sociological and cultural terms, this subscription 
 is a disproportionate variable in judgments of their civility. 
 
-## More on philosophies of self-interest #41 
+## More on philosophies of self-interest #42 
 
 Deficits become present in the use of any artificial axiom. The artificial 
 axiom is one that inadvertently promotes mimicry by certain sentient beings 
@@ -2301,8 +2301,8 @@ Imitation of the process is heavily reliant on the rote memorization, the
 experience of the visual to act in appearance for the effect of product material 
 or not, in the likeness of the source used for imitation. If self-interest does 
 not take a keen interest, a "magnetism", towards the axiomatic construct of the 
-imitated process, more comprehensive than that of describing the appearance of 
-this process, in the independent language of the self for the exactness of the 
+imitated process, more comprehensive than that of directly describing the appearance 
+of this process, in the independent language of the self for the exactness of the 
 actual, then self-interest naturally does not understand the entirety, the cause 
 that results in the effects constituting the process they are mimicking. In fact, 
 if the influence of the feedback the self receives on their conduct of the process 
@@ -2310,4 +2310,78 @@ is of an importance more than their understanding, the self is not motivated (in
 the categorization of one or the other) by the external, in other words. Their 
 motivation, although possessing the potential so that the posssibility is there, 
 thereby utilizes the differing capability of metaphorically shutting the door to 
-the possibilities of understanding by effort of self-interest, from the will.
+the possibilities of understanding by effort of self-interest, from the will. 
+The motive of a sentient being is the primal mark, invisible yet evident through 
+exemplifying expression, of their attempted determinism involving themself and 
+possibly others. The term "motive", in the context of a deciding someone and an 
+action they are supposed to do or an action purportedly linked to them, is a word 
+for the "cause" of that someone to do or have done the action. In this text's 
+construct that is the dependencies of self-interest, the will, and the motivation, 
+in descending order of dependence, self-interest is responsible for the "motive", 
+while without the proper motivation for a specific "motive", there would be none, 
+so to speak. The "motive", as an aspect of self-interest, encourages the self to 
+strive to succeed for the wanted outcomes in relation, and is equivalently the 
+preferred cause of choice by a human being. The "motive" is one thing, then, and 
+the actual a possibility from the motive, this reasoning identical to the will 
+being one thing and the wanted actualization another, simply because both of 
+these statements draw the hard line between the self with their self-interest, 
+their will, their motivation and the actual, the phenomena inevitable and the 
+constructs that persist because of the axiom's instantiation and the artificial 
+axiom's use that may include instantiation of the axiom. The specificities of 
+the context and the context's appropriate methodologies for the pertaining 
+problem require solving issues of knowledge and adequately fitting execution by 
+that knowledge. Incompetence and willful failure, two labels for these 
+requirements. Consider the artificial axiom of "reciprocity". The reciprocal, 
+while easy to comprehend in mathematics as the singular process of swapping 
+a fraction's numerator and denumerator for one another's position, becomes 
+subject to interpretation by the self. Is reciprocity simply mimicking, imitating, 
+or mocking as the response that is what is believed to be the appropriate 
+action to another existence or action? This would have an easiness in positive 
+correlation to the complexity of what is to be reciprocated. Reciprocity, 
+as an objective of "equaling" out matters, or perhaps "negating" all of a 
+category, in practice would have to be quantified, so that the practice 
+of "reciprocating" can be analyzed. Would reciprocation mean anything if 
+not for the magnitude quantified, deliberately for a certain mark to send 
+a certain message in excess, lack, or equality to the reciprocated reference? 
+Or can reciprocating be something else other than the metaphorical "mirror 
+reflection"? An appropriate response unlike what was to be responded to. 
+Each of these two ways of reciprocating is an artificial axiom, and then 
+there is the question of magnitude for every need to reciprocate. A few 
+sentences back, the synonyms "mimicking", "imitating", and "mocking" were 
+used in the same sentence to lend way to another observation, that on 
+natural language of human beings. In terms of efficiency, there is no 
+need for any synonym to exist in any language. But language is not entirely 
+focused on the efficiency (similarly, neither does the artificial axiom). 
+Any word adopted into a language takes on nuanced differences in meaning 
+with their synonyms, if there are any. In realms of difference in meaning 
+outside of the word's definition, the context by which one synonym is 
+used instead of another could have been due to the decision of a play on 
+words or a humorous implication on the situation being discussed. Synonyms 
+are clear indicators of the practice's plurality by human beings, analogously, 
+the variance in attire as the artificial axiom of demand for clothing, 
+the greeting of welcome as the artificial axiom of showing politeness, et 
+cetera. The artificial axiom is but a metaphysical body of meaning, 
+requiring the use of a shared natural language between two human beings 
+for their conjunctive understanding of similar, ideally identical, bearing. 
+It is then, with confidence, to state that the meaning of the artificial axiom 
+is essentially an individual's definition, a metaphysical construct directly 
+or through influence a product from self-interest. Self-interest modifies 
+the official definition, gives "new life" to the word, to the artificial 
+axiom as a body of meaning frequently expressed in words, perceives the 
+exemplifying image of the artificial axiom according to the constitutents 
+of the self's cognition. From context to context, self-interest transforms 
+the definition of the artificial axiom into other forms to fit for acceptance; 
+this is how rationalization of the questionable, required an answer, works. 
+Transformative processes, from the "fundamental" definition of the artificial 
+axiom, for each usage, and an arbitrary usage could demand said definition to 
+be altered in order to fit for the form, the "ideal" and whatnot. Artificial 
+axioms, as being individuals' definitions, are rules collectivist to some 
+particular degrees. The appearance of the collective adhering to the artificial 
+axiom, maybe even so much to be interpreted as religious fervor, is deceptive 
+to the observer fixated on the "total" before their senses. Self-interest, 
+the self, is the unit that constructs the appearance of the collective, maybe 
+successfully even fostering a metaphysical (spiritual) unity more unbreakable 
+than any material construct. And so, the artificial axiom exists in the variable 
+ways of spottiness and totality when the "social creatures", of human beings, 
+are all members that take the artificial axiom as truth equal to that of the 
+axiom. 
