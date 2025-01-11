@@ -2369,7 +2369,7 @@ is essentially an individual's definition, a metaphysical construct directly
 or through influence a product from self-interest. Self-interest modifies 
 the official definition, gives "new life" to the word, to the artificial 
 axiom as a body of meaning frequently expressed in words, and perceives the 
-exemplifying image of the artificial axiom according to the constitutents 
+exemplifying image of the artificial axiom according to the constituents 
 of the self's cognition. From context to context, self-interest transforms 
 the definition of the artificial axiom, demanded for use, into other forms to 
 fit for acceptance; this is how rationalization of the questionable, required 
