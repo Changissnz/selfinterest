@@ -2419,21 +2419,21 @@ axiom. For an axiom of natural law to "be subject to" an artificial axiom, a
 capable life form, technically one or more sentient beings have a virtually entire 
 control over the instantiation of the axiom. The corresponding artificial axiom 
 for this axiom of natural law consists of statements on the instantiation of the 
-axiom. For example, only specific causes specified by the artificial axiom can 
-produce the effect of instantiating the axiom. This implies that the mechanisms 
-by which to instantiate the axiom are regulated by one or more sentient beings, 
-whose rule over the mechanism is the artificial axiom. Capably obeying the 
-instruction of the artificial axiom does indeed send deterministic impressions 
-to observers, brought into consequence not from the indiscriminate axiom, 
-instead from the will of accepting the artificial axiom as a rule of behavior 
-to such a degree for there to be no measurable doubt, hesitation, or failure 
-to do the part (the effect from the occurred cause) on the treatment of the 
-artificial axiom. Artificial axioms manifest themselves in many common ways 
-for societies. A person's job salary is fixed within a span of values, so 
-that there is no way for them to afford anything exceeding the possible span 
-of monetary value, without that person having to obtain money from causes 
-not their job. The capability to purchase something, such as a service, 
-allows one to improve their material belongings or their physical state 
+axiom. For example, only specific cases of causes specified by the artificial 
+axiom can produce the effect of instantiating the axiom. This implies that the 
+mechanisms by which to instantiate the artificial axiom are regulated by one or 
+more sentient beings, whose rule over the mechanism is via artificial axiom. 
+Capably obeying the instruction of the artificial axiom does indeed send 
+deterministic impressions to observers, brought into consequence not from the 
+indiscriminate axiom, instead from the will of accepting the artificial axiom 
+as a rule of behavior to such a degree for there to be no measurable doubt, 
+hesitation, or failure to do the part (the effect from the occurred cause) 
+on the treatment of the artificial axiom. Artificial axioms manifest themselves 
+in many common ways for societies. A person's job salary is fixed within a span 
+of values, so that there is no way for them to afford anything exceeding the 
+possible span of monetary value, without that person having to obtain money 
+from causes not their job. The capability to purchase something, such as a 
+service, allows one to improve their material belongings or their physical state 
 of existence, such improvements clearly measurable by applying metrics 
 of axioms. The necessary sustenance of food for the physical well-being 
 of a person, possibly denied to them through the successful implementation 
@@ -2483,7 +2483,7 @@ large datasets, produce misconceptions in calculative analysis to compensate.
 Misconceptions of human biology, on the other hand, predominantly are due to the 
 unknowns, possibly unique to certain individuals. The artificial axiom desired 
 to be implemented in ways to guarantee appropriate effect, in light of these 
-limitations of reasoning, is done so by sentient beings intent on control of 
+limitations of reasoning, is done so by sentient beings intent on control in 
 the instantiation of related axioms. Consequences, in the nature of undesireable 
 effect to violators, take the form of correspondent artificial axioms for the 
 particular artificial axioms specified not to be violated. These correspondents 
@@ -2506,5 +2506,5 @@ ways not entirely knowable into principles by observation, for there is
 preference and undesireable consequence becoming a duality for the plurality 
 in expression by multiple self-interests not in alignment with one another. 
 When the appearance, without veil, of many sentient beings is so consistent 
-in detail alongside artificial axioms, one would state that the beings are 
+in detail regarding artificial axioms, one would state that the beings are 
 in complete agreement on those conditions. 
