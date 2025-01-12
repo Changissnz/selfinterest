@@ -1776,7 +1776,7 @@ devised by an impure combinatorial fusing of socially acceptable views, still
 requiring the voluntary will to be actualized, and the indisputable natural. 
 The artificial axiom does not automatically act, as in autonomous systems that 
 rely on consistency in the makings of their automation as effect from the cause 
-that impacts them. There is will involved in order for the artificial axiom to 
+that moves them. There is will involved in order for the artificial axiom to 
 bear relevance. Without the will of sentience, the artificial axiom fails to 
 remain relevant, forgotten and metaphorically tossed aside into the abysses 
 of the nullified obsolete. Some examples of human practices are necessary to 
@@ -1878,7 +1878,7 @@ behavior. The usage of this term, "mannerism", should not be interpreted
 strictly as the artistic style from 16th century Italy. Truthfully, mannerism 
 is much more than that, and although the 16th century Italians did indeed 
 effectively capture and reproduce many messages, through their artistic 
-depictions, on the concept of mannerism, these successes are culturally relative 
+depictions on the concept of mannerism, these successes are culturally relative 
 in the scope of human societies spanning the globe. The proceeding discussion 
 on mannerism is entirely about the general principles of mannerism in relation 
 to self-interest, and does not make any further mention of this Western European 
@@ -2039,8 +2039,8 @@ confused by the associated self, the self-interest as misguided by the use of
 the will in a directionality improper towards the expected, or the motivation 
 is not there for the will of wants and desires converged into expectation unmet. 
 Then according to this text's description, when the terms "will" and 
-"motivation" are swapped for one another's definition, then the "will" 
-is a dependency for "motivation". One point of confusion on "self-interest", 
+"motivation" are swapped for one another's definition, the "will" is a 
+dependency for "motivation". One point of confusion on "self-interest", 
 "will", and "motivation" is the cognitive awareness by the self of these 
 forces. The self always has a conceptualization of their self-interest, 
 although they might not know the consequences of acting on what they 
@@ -2108,7 +2108,7 @@ arbitrary. Why, there are many steps in sentient thought and action in order
 for the artificial axiom to have come about in not only existence but also 
 acceptance of it as a rule. For one to understand why the artificial axiom 
 is a part of the decision-making by the sentience surrounding them, the 
-knowledge of the corresponding circumstances, in relative temporal spans 
+knowledge of the corresponding circumstances, in temporal spans relative 
 to the point/s in time of the artificial axiom's usage, and sentient decisions 
 in relation to those corresponding circumstances are pieced together in a 
 fashion that attempts to use pure logic. Due to the many steps above 
@@ -2130,25 +2130,25 @@ in and of themselves by the perspectives of non-determinism, such that
 the alternative perspective of determinism on these events does not include 
 the readily available reason of incontestable standing, the statement that 
 the logical constructs used to rationalize the existence and validity of the 
-artificial axiom is constantly questionable, in turn, has a undeniable truth 
-for the default state. In complex cases that deal with plurality, there is 
+artificial axiom is constantly questionable, in turn, advances the default 
+state as an undeniable truth. In complex cases that deal with plurality, there is 
 no readily available evidence to support any conjectured cause-to-effect. 
 Lack of clarity on the cause of the artificial axiom is due to appearance 
 being the first aspect registered by cognition, then the appearance as the 
 effect from an ascertained cause that may serve or served the dual purpose 
 of an effect from a different cause. Upheld reason for the birth and continuing 
-usage of the axiom is that of belief in cases of more than one causality chain, 
-or where the validity of any causality chain for explanation fails the test 
-of correctness outside of the coincidence for favorable occurrence. Belief, 
-of course, is not equivalently the reason of truth. But from the cognition 
-of self-interest, the truth is that the self chooses to understand and prefers 
-how to understand, with the chance for this understanding to overlap with 
-misunderstanding where there is an actual not understood. By frequency of 
+usage of the artificial axiom is that of belief in cases of more than one 
+causality chain, or where the validity of any causality chain for explanation 
+fails the test of correctness outside of the coincidence for favorable occurrence. 
+Belief, of course, is not equivalently the reason of truth. But from the 
+cognition of self-interest, the truth is that the self chooses to understand 
+and prefers how to understand, with the chance for this understanding to overlap 
+with misunderstanding where there is an actual not understood. By frequency of 
 the attributes from transpired events, the artificial axiom came into 
 existence as rationale from sentience on matters such as the "solution" 
 to the "problem", the "help" for the "solution", the "moral utility" of 
 the "problem, et cetera. For instance, thievery is a universal vice 
-recognized by societies. The labeling of thievery is a vice on the 
+recognized by societies. The label of thievery denotes vice on the 
 default of fairness, justice, and equality. To steal something is to 
 produce a void of loss to at least one other sentient being. If stealing 
 became prevalent, modalities of living that rely on ownership and 
@@ -2291,7 +2291,7 @@ axiom is one that inadvertently promotes mimicry by certain sentient beings
 of others in order to demonstrate the corresponding proper practice; but the 
 artificial axiom of following as virtue is instead direct. Preferably, 
 authentic usage of the artificial axiom, an independent propensity for the 
-artificial axiom, instead of mimicry, where the positive influence for the 
+artificial axiom instead of mimicry, where the positive influence for the 
 proper use logically assumes one or more sources of influence can work 
 effect by the negative influence, a swaying of the will for self-interest 
 to operate towards different ends in matters where conclusive effects as endings 
@@ -2473,5 +2473,10 @@ automobile independent from its surroundings changeable through its locomotion.
 The limitation of reasoning on advanced artificial intelligence programs serves 
 as an effective analogy for the limitation of understanding the human being's 
 internalist mechanisms, intangible and not readily measurable through the outward 
-expression of convenience and opportunity, 
-
+expression of convenience and opportunity. And artificial intelligence programs 
+are constructed by human beings well aware of the building blocks for the programs. 
+Artificial intelligence programs lack complexities from unknown constituents; 
+the scale of their structure and the dependencies of their operation, such as 
+large datasets, produce misconceptions in calculative analysis rather. Misconceptions 
+of human biology, on the other hand, predominantly are due to the unknowns, 
+possibly unique to certain individuals.
