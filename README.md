@@ -2209,34 +2209,43 @@ the rhetoric of fairness by default. Additionally, the hierarchical
 model written of in this text, self-interest dependent on the will 
 dependent on the motivation, does imply that an arbitrary human 
 being, no matter how accurate the directionality of their will 
-for their want, if the motivation is not there for them to move on to
-success, there is no chance. Physically, psychologically, genetically; 
+for their want, is required to have the appropriate motivation for them 
+to move on to success. Physically, psychologically, genetically; 
 the items in this list of three are some main categories in rationales 
 on why the will of want does not always manifest the want in the existence 
-of the spatiotemporal context. The artificial axiom is important in 
-analyzing failures to reach the outcomes sought by self-interest. Despite 
-the metaphorically great distance between the artificial axiom and the 
+of the spatiotemporal context. The model raises other questions besides 
+from the one on its semantic correctness. Here is one on the model's 
+definition of motivation, in practice. Suppose that there is the 
+possibility that one human being has the motivation, the innate power, 
+to want something, a want that extends outside of self-contained desire, 
+but another human being does not have the motivation to. Could it be that 
+there is a fundamental difference, possibly concerning that of the physical 
+immeasurable, between these two human beings to have motivations for 
+different wants? If so, the self's honest conceptualization of their 
+identity of wants and self-image can be traced back to motivation as a 
+source. Shifting focus, the artificial axiom is important in analyzing 
+failures to reach the outcomes sought by self-interest. Despite the 
+metaphorically great distance between the artificial axiom and the 
 axiom in processes of actualization, the artificial axiom does become 
 a concern greater in psychological impact to the self of any society 
 developed past the basics of providing food, water, shelter. Even these 
-basics become subject to artificial axioms of fairness and justice. 
-The artificial axiom tames moral ambiguity, gives instruction for 
-virtually any sentient decision, given the being's knowledge of the 
-artificial axiom, of course, and other benefits to the "social fabric", 
-comprised of the "social creature" that all selves, each connected to an individual 
-human body, are and the material needed to support their ways of life. The social 
-contract, a concept defined some time ago, is essentially a body of 
-artificial axioms, argued to grant benefit to the individual self if 
-the self were to follow the instructions passed to them through these 
-artificial axioms. Human societies, once in great control of their 
-destiny, free from constant natural disasters, the predation by 
-carnivorous beasts inclined to dominate them if not for their tools 
-forged and evolved over many centuries, develop the liberty to not be 
-so narrowly focused on activity so closely revolving around the axiom 
-of natural law, although the axiom of natural law may be poorly understood 
-and instead accredited to their deities. This is not stating that 
-human societies, once developed past a certain point, regress to 
-unscientific, unmethodological beasts that only desire an incomplete 
+basics become subject to artificial axioms of fairness and justice. The 
+artificial axiom tames moral ambiguity, gives instruction for virtually 
+any sentient decision, given the being's knowledge of the artificial axiom, 
+of course, and other benefits to the "social fabric", comprised of the 
+"social creature" that all selves, each connected to an individual human 
+body, are and the material needed to support their ways of life. The social 
+contract, a concept defined some time ago, is essentially a body of artificial 
+axioms, argued to grant benefit to the individual self if the self were to 
+follow the instructions passed to them through these artificial axioms. 
+Human societies, once in great control of their destiny, free from constant 
+natural disasters, the predation by carnivorous beasts inclined to 
+dominate them if not for their tools forged and evolved over many centuries, 
+develop the liberty to not be so narrowly focused on activity so closely 
+revolving around the axiom of natural law, although the axiom of natural 
+law may be poorly understood and instead accredited to their deities. This 
+is not stating that human societies, once developed past a certain point, 
+regress to unscientific, unmethodological beasts that only desire an incomplete 
 inkling in operational knowledge of the axiom. Instead, the opposite 
 can be what takes place. Human societies, having developed some advancements 
 for their control over what would have been the fate of their demise or 
@@ -2462,3 +2471,4 @@ The limitation of reasoning on advanced artificial intelligence programs serves
 as an effective analogy for the limitation of understanding the human being's 
 internalist mechanisms, intangible and not readily measurable through the outward 
 expression of convenience and opportunity, 
+
