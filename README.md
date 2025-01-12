@@ -2223,10 +2223,13 @@ there is a fundamental difference, possibly concerning that of the physical
 immeasurable, between these two human beings to have motivations for 
 different wants? If so, the self's honest conceptualization of their 
 identity of wants and self-image can be traced back to motivation as a 
-source. Shifting focus, the artificial axiom is important in analyzing 
-failures to reach the outcomes sought by self-interest. Despite the 
-metaphorically great distance between the artificial axiom and the 
-axiom in processes of actualization, the artificial axiom does become 
+source. Sexuality, for instance, is believed by many to be due to 
+genetic (innate) factors, the motivation (by the model's definition of its 
+hierarchy) instead of the self-interest responsible for expression and 
+suppression of sexuality. Shifting focus, the artificial axiom is important 
+in analyzing failures to reach the outcomes sought by self-interest. 
+Despite the metaphorically great distance between the artificial axiom 
+and the axiom in processes of actualization, the artificial axiom does become 
 a concern greater in psychological impact to the self of any society 
 developed past the basics of providing food, water, shelter. Even these 
 basics become subject to artificial axioms of fairness and justice. The 
