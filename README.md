@@ -2484,7 +2484,7 @@ Misconceptions of human biology, on the other hand, predominantly are due to the
 unknowns, possibly unique to certain individuals. The artificial axiom desired 
 to be implemented in ways to guarantee appropriate effect, in light of these 
 limitations of reasoning, is done so by sentient beings intent on control of 
-the related instantiation of axioms. Consequences, in the nature of undesireable 
+the instantiation of related axioms. Consequences, in the nature of undesireable 
 effect to violators, take the form of correspondent artificial axioms for the 
 particular artificial axioms specified not to be violated. These correspondents 
 could be instantiated in forms painful, mentally and/or physically, to 
