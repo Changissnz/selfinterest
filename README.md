@@ -2492,7 +2492,7 @@ axiom. By designs such as these, in practice widely enforced, human beings
 of societies that have passing proficiency in control of the axiom's 
 occurrence, then find themselves to be regulated by artificial axioms 
 and thus mainly obey these instructions as if it were nature itself, 
-but to be accurate, this would be second-nature becoming habit. The 
+but to be accurate, this would be habit becoming second-nature. The 
 human being somehow stabilizes and improves their behavior where will 
 works to act for that behavior, and the result is the artificial axiom 
 takes on a naturalness much deeper than the appearance, such that the 
