@@ -2449,34 +2449,60 @@ and visual. Due to this understanding of the machine made by human beings,
 the machine used that breaks could be logically analyzed according to the 
 direction of reversing the construction, the breakdown of the machine 
 into relevant constituents interconnected for the functioning of the machine, 
-with the interconnections themselves being culprits for the machine's failure. 
-The human being, capable of logical reasoning appropriate for this machine, 
-would have no deterrents in their way of correctly detailing the machine's 
-issues. But on the matter of the human being accurately relaying the machine's 
-issues to others, that is something that can be answered only with the knowledge 
-of that human being's self-interest in relation to the machine and its issues, 
-such as financial and political motives. Distribution of reasoning on the 
-logical, thus arriving at answers unquestionable without deception or ignorance 
-at play, to others is at the mercy of the self-interests of those with knowledge 
-of that reasoning. But the knowledge of the cause for a machine's failure is not 
-always able to be known, and this does spell limits on that of reasoning where 
-information is missing or distorted; the causality is not just one causality 
-chain but many, or the causality is conceptually a network of convoluted, 
-changeable, and unpredictable layout in effects. One can see the limitations 
-of reasoning on artificial intelligence programs, if capable of decisions 
-past the monitoring in path-like and arithmetic-like patterns by a human 
-being. The common automobile, on the other hand, being constructed for the 
+with the interconnections themselves being additional culprits for the machine's 
+failure. The human being, capable of logical reasoning appropriate for this 
+machine, would have no deterrents in their way of correctly detailing the 
+machine's issues. But on the matter of the human being accurately relaying the 
+machine's issues to others, that is something that can be answered only with 
+the knowledge of that human being's self-interest in relation to the machine 
+and its issues, such as financial and political motives. Distribution of reasoning 
+on the logical, thus arriving at answers unquestionable without deception or 
+ignorance at play, to others is at the mercy of the self-interests of those 
+with knowledge of that reasoning. But the knowledge of the cause for a machine's 
+failure is not always able to be known, and this does spell limits on that of 
+reasoning where information is missing or distorted; the causality is not just 
+one causality chain but many, or the causality is conceptually a network of 
+convoluted, changeable, and unpredictable layout in effects. One can see the 
+limitations of reasoning on artificial intelligence programs, if capable of 
+decisions past the monitoring in path-like and arithmetic-like patterns by a 
+human being. The common automobile, on the other hand, being constructed for the 
 predominant purpose of efficient spatial locomotion, with additional amenities 
 coming later past the inventions that birthed it, is much simpler to analyze 
 for fault: there are less causality chains, less possible outputs from the 
 automobile independent from its surroundings changeable through its locomotion. 
-The limitation of reasoning on advanced artificial intelligence programs serves 
+The limitation of reasoning about advanced artificial intelligence programs serves 
 as an effective analogy for the limitation of understanding the human being's 
 internalist mechanisms, intangible and not readily measurable through the outward 
 expression of convenience and opportunity. And artificial intelligence programs 
 are constructed by human beings well aware of the building blocks for the programs. 
 Artificial intelligence programs lack complexities from unknown constituents; 
 the scale of their structure and the dependencies of their operation, such as 
-large datasets, produce misconceptions in calculative analysis rather. Misconceptions 
-of human biology, on the other hand, predominantly are due to the unknowns, 
-possibly unique to certain individuals.
+large datasets, produce misconceptions in calculative analysis to compensate. 
+Misconceptions of human biology, on the other hand, predominantly are due to the 
+unknowns, possibly unique to certain individuals. The artificial axiom desired 
+to be implemented in ways to guarantee appropriate effect, in light of these 
+limitations of reasoning, is done so by sentient beings intent on control of 
+the instantiation of axioms. Consequences, in the nature of undesireable effect 
+to violators, take the form of correspondent artificial axioms for the 
+particular artificial axioms specified not to be violated. The axiom could 
+be instantiated in forms painful, mentally and/or physically, to those that 
+dare ignore the intruction of the artificial axiom. Deprivation and 
+incarceration are two designs for the consequential anti-violator artificial 
+axiom. By designs such as these, in practice widely enforced, human beings 
+of societies that have passing proficiency in control of the axiom's 
+occurrence, then find themselves to be regulated by artificial axioms 
+and thus mainly obey these instructions as if it were nature itself, 
+but to be accurate, this would be second-nature becoming habit. The 
+human being somehow stabilizes and improves their behavior where will 
+works to act for that behavior, and the result is the artificial axiom 
+takes on a naturalness much deeper than the appearance, such that the 
+will required to actualize the artificial axiom's effect from the 
+occurrence of a cause does so like a machine, unquestioning, without 
+consideration for the specifics of variables possible candidates to 
+pose exception. Self-interest works in ways not entirely knowable 
+by observation, for there is preference and undesireable consequence 
+becoming a duality for the plurality in expression of multiple 
+self-interests not in alignment with one another. When the appearance, 
+without veil, of many sentient beings is so consistent in detail 
+alongside artificial axioms, one could state that the beings are 
+in complete agreement on those conditions. 
