@@ -2502,9 +2502,9 @@ will required to actualize the artificial axiom's effect from the
 occurrence of a cause is placed into action by self-interest similar to 
 machine work, unquestioning, without consideration for the specifics of 
 variables possibly candidates to pose exception. Self-interest works in 
-ways not entirely knowable by observation, for there is preference and 
-undesireable consequence becoming a duality for the plurality in expression 
-by multiple self-interests not in alignment with one another. When the 
-appearance, without veil, of many sentient beings is so consistent in 
-detail alongside artificial axioms, one would state that the beings are 
+ways not entirely knowable into principles by observation, for there is 
+preference and undesireable consequence becoming a duality for the plurality 
+in expression by multiple self-interests not in alignment with one another. 
+When the appearance, without veil, of many sentient beings is so consistent 
+in detail alongside artificial axioms, one would state that the beings are 
 in complete agreement on those conditions. 
