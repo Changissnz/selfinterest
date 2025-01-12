@@ -2452,7 +2452,9 @@ into relevant constituents interconnected for the functioning of the machine,
 with the interconnections themselves being additional culprits for the machine's 
 failure. The human being, capable of logical reasoning appropriate for this 
 machine, would have no deterrents in their way of correctly detailing the 
-machine's issues. But on the matter of the human being accurately relaying the 
+machine's issues, given the condition that the machine's breaking does not 
+result in other breakings since this would be a potentially unascertainble 
+chain of breaking. But on the matter of the human being accurately relaying the 
 machine's issues to others, that is something that can be answered only with 
 the knowledge of that human being's self-interest in relation to the machine 
 and its issues, such as financial and political motives. Distribution of reasoning 
