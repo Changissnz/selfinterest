@@ -2484,8 +2484,8 @@ Misconceptions of human biology, on the other hand, predominantly are due to the
 unknowns, possibly unique to certain individuals. The artificial axiom desired 
 to be implemented in ways to guarantee appropriate effect, in light of these 
 limitations of reasoning, is done so by sentient beings intent on control of 
-the instantiation of axioms. Consequences, in the nature of undesireable effect 
-to violators, take the form of correspondent artificial axioms for the 
+the related instantiation of axioms. Consequences, in the nature of undesireable 
+effect to violators, take the form of correspondent artificial axioms for the 
 particular artificial axioms specified not to be violated. These correspondents 
 could be instantiated in forms painful, mentally and/or physically, to 
 those that dare ignore the intruction of the artificial axiom. Deprivation and 
@@ -2494,9 +2494,9 @@ axiom. By designs such as these, in practice widely enforced, human beings
 of societies that have passing proficiency in control of the axiom's 
 occurrence, then find themselves to be regulated by artificial axioms 
 and thus mainly obey these instructions as if it were nature itself, 
-but to be accurate, this would be habit becoming second-nature. The 
-human being somehow stabilizes and improves their behavior where will 
-works to act for that behavior, and the result is the artificial axiom 
+but to be accurate, this is habit becoming second-nature. The human 
+being somehow stabilizes and improves their behavior where will works 
+to act for that behavior, and the result is the artificial axiom 
 takes on a naturalness much deeper than the appearance, such that the 
 will required to actualize the artificial axiom's effect from the 
 occurrence of a cause is placed into action by self-interest similar to 
