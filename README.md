@@ -2209,13 +2209,13 @@ the rhetoric of fairness by default. Additionally, the hierarchical
 model written of in this text, self-interest dependent on the will 
 dependent on the motivation, does imply that an arbitrary human 
 being, no matter how accurate the directionality of their will 
-for their want, the motivation is not there for them to move on to
-success. Physically, psychologically, genetically; the items in this 
-list of three are some main categories in rationales on why the will 
-of want does not always manifest the want in the existence of the 
-spatiotemporal context. The artificial axiom is important in analyzing 
-failures to reach the outcomes sought by self-interest. Despite the 
-metaphorically great distance between the artificial axiom and the 
+for their want, if the motivation is not there for them to move on to
+success, there is no chance. Physically, psychologically, genetically; 
+the items in this list of three are some main categories in rationales 
+on why the will of want does not always manifest the want in the existence 
+of the spatiotemporal context. The artificial axiom is important in 
+analyzing failures to reach the outcomes sought by self-interest. Despite 
+the metaphorically great distance between the artificial axiom and the 
 axiom in processes of actualization, the artificial axiom does become 
 a concern greater in psychological impact to the self of any society 
 developed past the basics of providing food, water, shelter. Even these 
@@ -2386,3 +2386,79 @@ than any material construct. And so, the artificial axiom is instantiated in
 the variable ways of spottiness and totality, with respect to consistency of 
 effect from causes identical in principle to that described by the artificial 
 axiom, by "social creatures", human beings. 
+
+## More on philosophies of self-interest #43 
+
+The artificial axiom is not always probabilistic in effect. For the clarity 
+of distinction between what is inevitable as is, and what can become a consistency 
+very much identical to the inevitable by the will for action fitting to the 
+effect from the cause specified by the artificial axiom, the artificial axiom 
+is identified as "artificial", natural so much as there is consistency in 
+the use. The artificial axiom, in its lone existence, is clearly a disconnected 
+metaphysical body of meaning. But the artificial axiom in practice, in constructs 
+built using many artificial axioms in specific arrangements, how the instantiation 
+of one axiom naturally leads way to the instantiation of another axiom in aspects 
+such as conditional defense and necessary amplification, becomes ever more 
+important in situations where the relevant axioms of natural law become subject 
+to the ruling construct comprised of artificial axioms. These particular situations, 
+tighty controlled by certain sentient beings, make the appearance and additionally 
+the effect very convincing demonstration of the determinism by use of artificial 
+axiom. For an axiom of natural law to "be subject to" an artificial axiom, a 
+capable life form, technically one or more sentient beings have a virtually entire 
+control over the instantiation of the axiom. The corresponding artificial axiom 
+for this axiom of natural law consists of statements on the instantiation of the 
+axiom. For example, only specific causes specified by the artificial axiom can 
+produce the effect of instantiating the axiom. This implies that the mechanisms 
+by which to instantiate the axiom are regulated by one or more sentient beings, 
+whose rule over the mechanism is the artificial axiom. Capably obeying the 
+instruction of the artificial axiom does indeed send deterministic impressions 
+to observers, brought into consequence not from the indiscriminate axiom, 
+instead from the will of accepting the artificial axiom as a rule of behavior 
+to such a degree for there to be no measurable doubt, hesitation, or failure 
+to do the part (the effect from the occurred cause) on the treatment of the 
+artificial axiom. Artificial axioms manifest themselves in many common ways 
+for societies. A person's job salary is fixed within a span of values, so 
+that there is no way for them to afford anything exceeding the possible span 
+of monetary value, without that person having to obtain money from causes 
+not their job. The capability to purchase something, such as a service, 
+allows one to improve their material belongings or their physical state 
+of existence, such improvements clearly measurable by applying metrics 
+of axioms. The necessary sustenance of food for the physical well-being 
+of a person, possibly denied to them through the successful implementation 
+of the artificial axiom connected to a regulated axiom, under the reign 
+of particular sentient beings capable of instantiating the axiom at their 
+own command. The notion of control is purely logical with respect to machines 
+invented and produced by human beings. The machines can be analyzed to a 
+relative completeness in understanding by the physical attributes, thus 
+measurable by one or more of the basic five senses or through a device that 
+can relay precise measures back to the five senses, predominantly taking 
+the form of the sentient being's vision capturing the information of quantity 
+and visual. Due to this understanding of the machine made by human beings, 
+the machine used that breaks could be logically analyzed according to the 
+direction of reversing the construction, the breakdown of the machine 
+into relevant constituents interconnected for the functioning of the machine, 
+with the interconnections themselves being culprits for the machine's failure. 
+The human being, capable of logical reasoning appropriate for this machine, 
+would have no deterrents in their way of correctly detailing the machine's 
+issues. But on the matter of the human being accurately relaying the machine's 
+issues to others, that is something that can be answered only with the knowledge 
+of that human being's self-interest in relation to the machine and its issues, 
+such as financial and political motives. Distribution of reasoning on the 
+logical, thus arriving at answers unquestionable without deception or ignorance 
+at play, to others is at the mercy of the self-interests of those with knowledge 
+of that reasoning. But the knowledge of the cause for a machine's failure is not 
+always able to be known, and this does spell limits on that of reasoning where 
+information is missing or distorted; the causality is not just one causality 
+chain but many, or the causality is conceptually a network of convoluted, 
+changeable, and unpredictable layout in effects. One can see the limitations 
+of reasoning on artificial intelligence programs, if capable of decisions 
+past the monitoring in path-like and arithmetic-like patterns by a human 
+being. The common automobile, on the other hand, being constructed for the 
+predominant purpose of efficient spatial locomotion, with additional amenities 
+coming later past the inventions that birthed it, is much simpler to analyze 
+for fault: there are less causality chains, less possible outputs from the 
+automobile independent from its surroundings changeable through its locomotion. 
+The limitation of reasoning on advanced artificial intelligence programs serves 
+as an effective analogy for the limitation of understanding the human being's 
+internalist mechanisms, intangible and not readily measurable through the outward 
+expression of convenience and opportunity, 
