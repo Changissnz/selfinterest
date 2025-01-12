@@ -2484,9 +2484,9 @@ to be implemented in ways to guarantee appropriate effect, in light of these
 limitations of reasoning, is done so by sentient beings intent on control of 
 the instantiation of axioms. Consequences, in the nature of undesireable effect 
 to violators, take the form of correspondent artificial axioms for the 
-particular artificial axioms specified not to be violated. The axiom could 
-be instantiated in forms painful, mentally and/or physically, to those that 
-dare ignore the intruction of the artificial axiom. Deprivation and 
+particular artificial axioms specified not to be violated. These correspondents 
+could be instantiated in forms painful, mentally and/or physically, to 
+those that dare ignore the intruction of the artificial axiom. Deprivation and 
 incarceration are two designs for the consequential anti-violator artificial 
 axiom. By designs such as these, in practice widely enforced, human beings 
 of societies that have passing proficiency in control of the axiom's 
