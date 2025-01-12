@@ -2453,7 +2453,7 @@ with the interconnections themselves being additional culprits for the machine's
 failure. The human being, capable of logical reasoning appropriate for this 
 machine, would have no deterrents in their way of correctly detailing the 
 machine's issues, given the condition that the machine's breaking does not 
-result in other breakings since this would be a potentially unascertainble 
+result in other breakings since this would be a potentially unascertainable 
 chain of breaking. But on the matter of the human being accurately relaying the 
 machine's issues to others, that is something that can be answered only with 
 the knowledge of that human being's self-interest in relation to the machine 
@@ -2499,12 +2499,12 @@ human being somehow stabilizes and improves their behavior where will
 works to act for that behavior, and the result is the artificial axiom 
 takes on a naturalness much deeper than the appearance, such that the 
 will required to actualize the artificial axiom's effect from the 
-occurrence of a cause does so like a machine, unquestioning, without 
-consideration for the specifics of variables possibly candidates to 
-pose exception. Self-interest works in ways not entirely knowable 
-by observation, for there is preference and undesireable consequence 
-becoming a duality for the plurality in expression by multiple 
-self-interests not in alignment with one another. When the appearance, 
-without veil, of many sentient beings is so consistent in detail 
-alongside artificial axioms, one would state that the beings are 
+occurrence of a cause is placed into action by self-interest similar to 
+machine work, unquestioning, without consideration for the specifics of 
+variables possibly candidates to pose exception. Self-interest works in 
+ways not entirely knowable by observation, for there is preference and 
+undesireable consequence becoming a duality for the plurality in expression 
+by multiple self-interests not in alignment with one another. When the 
+appearance, without veil, of many sentient beings is so consistent in 
+detail alongside artificial axioms, one would state that the beings are 
 in complete agreement on those conditions. 
