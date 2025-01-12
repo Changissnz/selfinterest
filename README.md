@@ -2411,7 +2411,7 @@ metaphysical body of meaning. But the artificial axiom in practice, in construct
 built using many artificial axioms in specific arrangements, how the instantiation 
 of one axiom naturally leads way to the instantiation of another axiom in aspects 
 such as conditional defense and necessary amplification, becomes ever more 
-important in situations where the relevant axioms of natural law become subject 
+important in situations where the relevant axioms of natural law are subject 
 to the ruling construct comprised of artificial axioms. These particular situations, 
 tighty controlled by certain sentient beings, make the appearance and additionally 
 the effect very convincing demonstration of the determinism by use of artificial 
