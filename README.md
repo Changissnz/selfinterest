@@ -2503,7 +2503,7 @@ occurrence of a cause does so like a machine, unquestioning, without
 consideration for the specifics of variables possibly candidates to 
 pose exception. Self-interest works in ways not entirely knowable 
 by observation, for there is preference and undesireable consequence 
-becoming a duality for the plurality in expression of multiple 
+becoming a duality for the plurality in expression by multiple 
 self-interests not in alignment with one another. When the appearance, 
 without veil, of many sentient beings is so consistent in detail 
 alongside artificial axioms, one would state that the beings are 
