@@ -2504,5 +2504,5 @@ by observation, for there is preference and undesireable consequence
 becoming a duality for the plurality in expression of multiple 
 self-interests not in alignment with one another. When the appearance, 
 without veil, of many sentient beings is so consistent in detail 
-alongside artificial axioms, one could state that the beings are 
+alongside artificial axioms, one would state that the beings are 
 in complete agreement on those conditions. 
