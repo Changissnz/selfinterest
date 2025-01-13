@@ -2534,26 +2534,26 @@ artificial axioms, in relation to one another, can not only be on a spectrum
 of pedantic detail to accepting broadness, they can also be greatly contrary 
 to one another by structuring decision-making into one or the other. A lack 
 of commonality is the defining trait of this specific matter's effects from 
-these sentient beings, due to the differing causes between each artificial 
-axiom's statement. Scant use of the artificial axiom, correspondingly a 
-scant economy of sentient will for this use, makes the artificial axiom 
-a minority rule, perhaps lesser than that, an individual's rule. 
-Complication on definitively generalizing an artificial axiom, by the 
-practices that stem from it, is due to another aspect: the individual 
-whose actions (the evidence through expression) are rationalized can occur 
-only by attributing their actions to artificial axioms. The recognition of 
-the artificial axiom, though, for a group of sentient beings relies on a 
-passing frequency in the accurate attribution of the group's particular 
-independent actions, manifested as appearance, physical movement, or 
-speech, to the artificial axiom (the cause). The artificial axiom as a 
-rule connected to the decision-making faculty of an individual, for their 
-self-interest above their profits of finance, social influence, or political 
-power in the cases of idealistic individuals, has vulnerabilities 
-in its actualization. The poetry that narrates tragedy according to the 
-reason of rhythm often takes a microscopic interest in the specifics of 
-only a few human beings, and translates the actual events that occurred 
-into the interpretation for the expression of the sentimentality, the 
-universal concepts each and every human being knows and cares about but 
+these sentient beings, due to at least one of the two, the differing causes 
+and differing effects, between each artificial axiom's statement. Scant use 
+of the artificial axiom, correspondingly a scant economy of sentient will 
+for this use, makes the artificial axiom a minority rule, perhaps lesser 
+than that, an individual's rule. Complication on definitively generalizing 
+an artificial axiom, by the practices that stem from it, is due to another 
+aspect: the individual whose actions (the evidence through expression) 
+are rationalized can occur only by attributing their actions to artificial 
+axioms. The recognition of the artificial axiom, though, for a group of 
+sentient beings relies on a passing frequency in the accurate attribution 
+of the group's particular independent actions, manifested as appearance, 
+physical movement, or speech, to the artificial axiom (the cause). The 
+artificial axiom as a rule connected to the decision-making faculty of 
+an individual, for their self-interest above their profits of finance, 
+social influence, or political power in the cases of idealistic individuals, 
+has vulnerabilities in its actualization. The poetry that narrates tragedy 
+according to the reason of rhythm often takes a microscopic interest in 
+the specifics of only a few human beings, and translates the actual events 
+that occurred into the interpretation for the expression of the sentimentality, 
+the universal concepts each and every human being knows and cares about but 
 in their own way, the ephemeral existence, the injustices of default and 
 throughout that span, amongst other topics. What makes poetry susceptible 
 to inaccuracy is not the fiction disjoint from the fact. The directions 
@@ -2598,8 +2598,8 @@ of financial loss or defamation of reputation. And these penalties do not
 even directly invoke the axiom of natural law, instead somewhere along the 
 way after facing these penalties, the lucky coincidences from the axiom's 
 occurrence are not there, quite the contrary to be honest. The nearness to 
-or a possession of a physical resource deprived, perception of the public 
-encouraged to take up means by instantiating select axioms for physical 
+or a possession of a physical resource deprived, perception by the public 
+encouraged to take up means through instantiating select axioms for physical 
 impact, et cetera. A terse translation of transcendentalism's spirit is that the 
 artificial axiom really has no meaning if not accepted, and why should the 
 artificial axiom be accepted if its agents only produce pain through meaning, 
@@ -2612,7 +2612,7 @@ on basic premises such as the artificial axioms being deterrents to the
 pursuit of happiness, destroyers of the paradise, when there is the apparently 
 better choice of "transcending" the system comprised of artificial axioms, 
 run by those uncaring and selfish themselves, to meet the universal ideal 
-through experience. The concept of liberated freedom, this being labeled 
-words such as "autonomy" and "independence", is one component in a 
+through personal experience. The concept of liberated freedom, this being 
+labeled words such as "autonomy" and "independence", is one component in a 
 comprehensive illumination of self-interest, and does speak to the selfishness 
 capable by the self. 
