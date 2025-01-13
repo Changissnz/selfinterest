@@ -2611,7 +2611,7 @@ on basic premises such as the artificial axioms being deterrents to the
 pursuit of happiness, destroyers of the paradise, when there is the apparently 
 better choice of "transcending" the system comprised of artificial axioms, 
 run by those uncaring and selfish themselves, to meet the universal ideal 
-through experience. The concept of lone freedom, this being labeled words 
-such as "autonomy" and "independence", is one component in a comprehensive 
-illumination of self-interest, and does speak to the selfishness capable by 
-the self. 
+through experience. The concept of a liberated freedom, this being labeled 
+words such as "autonomy" and "independence", is one component in a 
+comprehensive illumination of self-interest, and does speak to the selfishness 
+capable by the self. 
