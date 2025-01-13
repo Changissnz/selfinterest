@@ -2508,3 +2508,101 @@ in expression by multiple self-interests not in alignment with one another.
 When the appearance, without veil, of many sentient beings is so consistent 
 in detail regarding artificial axioms, one would state that the beings are 
 in complete agreement on those conditions. 
+
+## More on philosophies of self-interest #44 
+
+Sentient beings, without the artificial axiom, go mad at one another out 
+of the individuals' preferences, not judged to be fitting. There is no 
+objectivity, no metric to prove the mark of the practice (circularly, the 
+proof would be by the metric), albeit the practice may not be subject to 
+the mortalities and consequences of the axiom independently invoked without 
+a sentient being's intentional action, allowing for dispute to go on, as 
+ceaselessly as the material energy and feudal spirit allows. When the 
+artificial axiom comes into existence by perceivable representation of 
+its metaphysical meaning, there is still chance for disagreement. But the 
+basis of such disagreement is different: in the first context, no rule 
+exists and the contenders are so to one another so that they can establish 
+the rule, and the second context is that of the question of agreement on 
+the established rule (the artificial axiom). It is a difference that is 
+nuanced in comparison to marked polarity, but its mention stresses the 
+importance of the existence of the predominant or the official rule and 
+the alternative, that of relative resistance. The artificial axiom, in 
+this description's use, has the meaning of a rule greatly accepted, not 
+one held by exactly one specific sentient being. Suppose that any sentient 
+being can declare an artificial axiom for a specific matter. And these 
+artificial axioms, in relation to one another, can not only be on a spectrum 
+of pedantic detail to accepting broadness, they can also be greatly contrary 
+to one another by structuring decision-making into one or the other. A lack 
+of commonality is the defining trait of this specific matter's effects, due 
+to the differing causes between each artificial axiom's statement. Scant 
+use of the artificial axiom, correspondingly a scant economy of sentient 
+will for this use, makes the artificial axiom a minority rule, perhaps lesser 
+than that, an individual's rule. Complication on definitively generalizing 
+an artificial axiom, by the practices that stem from it, is due to another 
+aspect: the individual whose actions (the evidence through expression) are 
+rationalized can occur only by attributing their actions to artificial axioms. 
+The recognition of the artificial axiom, though, for a group of sentient 
+beings relies on a passing frequency in the attribution of the group's 
+particular independent actions, manifested as appearance, physical 
+movement, or speech, to the artificial axiom (the cause). The artificial 
+axiom as a rule connected to the decision-making faculty of an individual, 
+for their self-interest above their profits of finance, social influence, 
+or political power in the cases of idealistic individuals, has vulnerabilities 
+in its actualization. The poetry that narrates tragedy according to the 
+reason of rhythm often takes a microscopic interest in the specifics of 
+only a few human beings, and translates the actual events that occurred 
+into the interpretation for the expression of the sentimentality, the 
+universal concepts each and every human being knows and cares about but 
+in their own way, the ephemeral existence, the injustices of default and 
+throughout that span, amongst other topics. What makes poetry susceptible 
+to inaccuracy is not the fiction disjoint from the fact. The directions 
+of the messages, the directionality of the basis for the poem as a holistic 
+structure, the craft of persuasion at work, and the arrangement of communication 
+to elicit sentiment from the consumer are all culprits for this inaccuracy, 
+in both interpretation by the consumer and the intended motives for the 
+work. On a related note, the fact that is mentioned for an agenda in conflict 
+to or reinforcing of a situation is also not without the bias of motive, 
+hence why there is at this note as a justifying reason for one preferring 
+fiction or nonfiction, but this point does mislead, through parallelism, 
+for advocacy of a completely free consumer market, where the consumer can 
+buy anything because of an inherent justification according to the justice 
+of fiction or nonfiction being free to prefer. Rewinding focus back to the 
+matter of poetics of tragedy, to state that there are artificial axioms at 
+play, believed by some, is accurate. Another accuracy, for matters where 
+tragedy is achieved not by the loss through inanimate phenomenon so that 
+the work of one or more sentient beings is responsible for the grimness, is 
+that these artificial axioms' use, and additionally their existence, is 
+challenged on the premise of a wanted purity in use of these same artificial 
+axioms, the practice being wrongful, or due to contrasting artificial axioms. 
+If matters of literary tragedy were explained not via the application of 
+artificial axiom, then a roughly equal understanding can be achieved by noting 
+the whims of certain individuals running contrary to those designated as 
+antagonists, by the basis of a goodness assigned to those favored in narration 
+but not by fate, and these antagonists characteristic of idiocy, lunacy, and 
+conventional sin. But this roughly equal understanding is not comprised of 
+the rule, equivalently the principle, of reason, but of judgment on what 
+is good and bad, thus being at least one layer above the description via 
+artificial axiom; there can be no judgment without the experience of perception 
+or a blind choice. Tragedy is one category of suffering, and suffering is 
+a topic very widely discussed because, for the human being, it is a universal 
+concept. Transcendentalism is one broad field of thought that has attempted 
+to alleviate suffering by sentient beings who, upon finding stability in 
+certain environments and labors, become disgruntled with the metaphysical 
+maze of artificial axioms, alleged by them to dictate their decisions, 
+restricting their freedoms to actualize on objectives of their self-interests. 
+For the metaphorical fact though, the "metaphysical maze of artificial axioms" 
+does grow a symbiotic binding to the motives of self-interest, how self-interest 
+becomes a force not to reach potential or to freely express, on the penalty 
+of financial loss or defamation of reputation. And these penalties do not 
+even directly invoke the axiom of natural law, instead somewhere along the 
+way after facing these penalties, the lucky coincidences from the axiom's 
+occurrence are not there, quite the contrary to be honest. The nearness to 
+or a possession of a physical resource, perception of the public encouraged 
+to take up means by instantiation of select axioms for physical impact, 
+et cetera. A terse translation of transcendentalism's spirit is that the 
+artificial axiom really has no meaning if not accepted, and why should the 
+artificial axiom be accepted if it only produces pain through meaning, 
+if it only encourages unwanted physical violence (yes, this would be 
+instantiations of axioms of natural law) or cognitive distress, in which 
+the loss in control of decision-making leads to negative effects from 
+the axiom. 
