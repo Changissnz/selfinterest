@@ -2606,12 +2606,11 @@ if it only encourages unwanted physical violence (yes, this would be
 instantiations of axioms of natural law) or cognitive distress, in which 
 the loss in control of decision-making leads to negative effects from 
 the axiom. The transcendentalist can also be called a utilitarian that 
-has chosen not to be a utility for certain artificial axioms or to 
-utilize certain artificial axioms, on basic premises that the artificial 
-axioms are deterrents to the pursuit of happiness, destroyers of the 
-paradise, when there is the apparently better choice of "transcending" 
-the system comprised of artificial axioms to meet the universal ideal 
-through experience. The concept of lone freedom, this being labeled 
-such words as "autonomy" and "independence", is one component in a 
-comprehensive illumination of self-interest, and does speak to the 
-selfishness capable by the self. 
+has chosen not to be a utility for or to utilize certain artificial axioms, 
+on basic premises such as the artificial axioms being deterrents to the 
+pursuit of happiness, destroyers of the paradise, when there is the apparently 
+better choice of "transcending" the system comprised of artificial axioms 
+to meet the universal ideal through experience. The concept of lone 
+freedom, this being labeled such words as "autonomy" and "independence", 
+is one component in a comprehensive illumination of self-interest, and 
+does speak to the selfishness capable by the self. 
