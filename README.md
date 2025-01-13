@@ -2542,12 +2542,12 @@ than that, an individual's rule. Complication on definitively generalizing
 an artificial axiom, by the practices that stem from it, is due to another 
 aspect: the individual whose actions (the evidence through expression) 
 are rationalized only by attributing their actions to artificial 
-axioms. The recognition of the artificial axiom, though, for a group of 
-sentient beings relies on a passing frequency in the accurate attribution 
-of the group's particular independent actions, manifested as appearance, 
-physical movement, or speech, to the artificial axiom (the cause). The 
-artificial axiom as a rule connected to the decision-making faculty of 
-an individual, for their self-interest above their profits of finance, 
+axioms. The recognition of a prevailing artificial axiom, though, for a 
+group of sentient beings relies on a passing frequency in the accurate 
+attribution of the group's particular independent actions, manifested 
+as appearance, physical movement, or speech, to the artificial axiom 
+(the cause). The artificial axiom as a rule connected to the decision-making 
+faculty of an individual, for their self-interest above their profits of finance, 
 social influence, or political power in the cases of idealistic individuals, 
 has vulnerabilities in its actualization. The poetry that narrates tragedy 
 according to the reason of rhythm often takes a microscopic interest in 
