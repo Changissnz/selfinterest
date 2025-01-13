@@ -2549,8 +2549,8 @@ as appearance, physical movement, or speech, to the artificial axiom
 (the cause). The artificial axiom as a rule connected to the decision-making 
 faculty of an individual, for their self-interest above their profits of finance, 
 social influence, or political power in the cases of idealistic individuals, 
-has vulnerabilities in its actualization. The poetry that narrates tragedy 
-according to the reason of rhythm often takes a microscopic interest in 
+has vulnerabilities in its actualization. The poetry that narrates tragedy, 
+according to the reason of rhythm, often takes a microscopic interest in 
 the specifics of only a few human beings, and translates the actual events 
 that occurred into the interpretation for the expression of the sentimentality, 
 the universal concepts each and every human being knows and cares about but 
