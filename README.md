@@ -2582,16 +2582,17 @@ antagonists, by the basis of a goodness assigned to those favored in narration
 but not by narrative fate, and these antagonists characteristic of idiocy, 
 lunacy, and conventional sin. But this roughly equal understanding is not 
 comprised of the rule, equivalently the principle, of reason, but of judgment 
-on what is good and bad, thus being at least one layer above the description via 
-artificial axiom; there can be no judgment without the experience of perception 
-or a blind choice. Tragedy is one category of suffering, and suffering is 
-a topic very widely discussed because, for the human being, it is a universal 
-concept. Transcendentalism is one broad field of thought that has attempted 
-to alleviate suffering by sentient beings who, upon finding stability in 
-certain environments and labors, become disgruntled with the metaphysical 
-maze of artificial axioms, alleged by them to dictate their decisions, 
-restricting their freedoms to actualize on objectives of their self-interests. 
-For the metaphorical fact though, the "metaphysical maze of artificial axioms" 
+on what is good or bad and other labeling schematics, thus being at least one 
+layer above the description via artificial axiom; there can be no judgment 
+without the experience of perception or a blind choice. Tragedy is one 
+category of suffering, and suffering is a topic very widely discussed 
+because, for the human being, it is a universal concept. Transcendentalism 
+is one broad field of thought that has attempted to alleviate suffering 
+by sentient beings who, upon finding stability in certain environments 
+and labors, become disgruntled with the metaphysical maze of artificial 
+axioms, alleged by them to dictate their decisions, restricting their 
+freedoms to actualize on objectives of their self-interests. For the 
+metaphorical fact though, the "metaphysical maze of artificial axioms" 
 does grow a symbiotic binding to the motives of self-interest, how self-interest 
 becomes a force not to reach potential or to freely express, on the penalty 
 of financial loss or defamation of reputation. And these penalties do not 
