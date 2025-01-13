@@ -2570,7 +2570,7 @@ buy anything because of an inherent justification according to the justice
 of fiction or nonfiction being free to prefer. Rewinding focus back to the 
 matter of poetics of tragedy, to state that there are artificial axioms at 
 play, believed by some, is accurate. Another accuracy, for matters where 
-tragedy is achieved not by the loss through inanimate phenomena so that 
+tragedy is achieved not by the loss through inanimate phenomena but by  
 the work of one or more sentient beings is responsible for the grimness, is 
 that these artificial axioms' use, and additionally their existence, is 
 challenged on the premise of a wanted purity in use of these same artificial 
