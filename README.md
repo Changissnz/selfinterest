@@ -2525,7 +2525,7 @@ exists and the contenders are so to one another so that they can establish
 the rule, and the second context is that of the question of agreement on 
 the established rule (the artificial axiom). It is a difference that is 
 nuanced in comparison to marked polarity, but its mention stresses the 
-importance of the existence of the predominant or the official rule and 
+importance of the existence of the predominant or the official rule with 
 the alternative, that of relative resistance. The artificial axiom, in 
 this description's use, has the meaning of a rule greatly accepted, not 
 one held by exactly one specific sentient being. Suppose that any sentient 
