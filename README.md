@@ -2533,21 +2533,22 @@ being can declare an artificial axiom for a specific matter. And these
 artificial axioms, in relation to one another, can not only be on a spectrum 
 of pedantic detail to accepting broadness, they can also be greatly contrary 
 to one another by structuring decision-making into one or the other. A lack 
-of commonality is the defining trait of this specific matter's effects, due 
-to the differing causes between each artificial axiom's statement. Scant 
-use of the artificial axiom, correspondingly a scant economy of sentient 
-will for this use, makes the artificial axiom a minority rule, perhaps lesser 
-than that, an individual's rule. Complication on definitively generalizing 
-an artificial axiom, by the practices that stem from it, is due to another 
-aspect: the individual whose actions (the evidence through expression) are 
-rationalized can occur only by attributing their actions to artificial axioms. 
-The recognition of the artificial axiom, though, for a group of sentient 
-beings relies on a passing frequency in the accurate attribution of the 
-group's particular independent actions, manifested as appearance, physical 
-movement, or speech, to the artificial axiom (the cause). The artificial 
-axiom as a rule connected to the decision-making faculty of an individual, 
-for their self-interest above their profits of finance, social influence, 
-or political power in the cases of idealistic individuals, has vulnerabilities 
+of commonality is the defining trait of this specific matter's effects from 
+these sentient beings, due to the differing causes between each artificial 
+axiom's statement. Scant use of the artificial axiom, correspondingly a 
+scant economy of sentient will for this use, makes the artificial axiom 
+a minority rule, perhaps lesser than that, an individual's rule. 
+Complication on definitively generalizing an artificial axiom, by the 
+practices that stem from it, is due to another aspect: the individual 
+whose actions (the evidence through expression) are rationalized can occur 
+only by attributing their actions to artificial axioms. The recognition of 
+the artificial axiom, though, for a group of sentient beings relies on a 
+passing frequency in the accurate attribution of the group's particular 
+independent actions, manifested as appearance, physical movement, or 
+speech, to the artificial axiom (the cause). The artificial axiom as a 
+rule connected to the decision-making faculty of an individual, for their 
+self-interest above their profits of finance, social influence, or political 
+power in the cases of idealistic individuals, has vulnerabilities 
 in its actualization. The poetry that narrates tragedy according to the 
 reason of rhythm often takes a microscopic interest in the specifics of 
 only a few human beings, and translates the actual events that occurred 
