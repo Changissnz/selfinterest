@@ -2532,9 +2532,9 @@ one held by exactly one specific sentient being. Suppose that any sentient
 being can declare an artificial axiom for a specific matter. And these 
 artificial axioms, in relation to one another, can not only be on a spectrum 
 of pedantic detail to accepting broadness, they can also be greatly contrary 
-to one another by structuring decision-making into one or the other. A lack 
-of commonality is the defining trait of this specific matter's effects from 
-these sentient beings, due to at least one of the two, the differing causes 
+to one another by structuring decision-making into exactly one or the other. 
+A lack of commonality is the defining trait of this specific matter's effects 
+from these sentient beings, due to at least one of the two, the differing causes 
 and differing effects, between each artificial axiom's statement. Scant use 
 of the artificial axiom, correspondingly a scant economy of sentient will 
 for this use, makes the artificial axiom a minority rule, perhaps lesser 
