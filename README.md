@@ -2597,9 +2597,9 @@ of financial loss or defamation of reputation. And these penalties do not
 even directly invoke the axiom of natural law, instead somewhere along the 
 way after facing these penalties, the lucky coincidences from the axiom's 
 occurrence are not there, quite the contrary to be honest. The nearness to 
-or a possession of a physical resource, perception of the public encouraged 
-to take up means by instantiation of select axioms for physical impact, 
-et cetera. A terse translation of transcendentalism's spirit is that the 
+or a possession of a physical resource deprived, perception of the public 
+encouraged to take up means by instantiating select axioms for physical 
+impact, et cetera. A terse translation of transcendentalism's spirit is that the 
 artificial axiom really has no meaning if not accepted, and why should the 
 artificial axiom be accepted if its agents only produce pain through meaning, 
 if it only encourages unwanted physical violence (yes, this would be 
