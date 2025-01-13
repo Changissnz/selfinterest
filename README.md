@@ -2538,11 +2538,11 @@ from these sentient beings, due to at least one of the two, the differing causes
 and differing effects, between each artificial axiom's statement. Scant use 
 of the artificial axiom, correspondingly a scant economy of sentient will 
 for this use, makes the artificial axiom a minority rule, perhaps lesser 
-than that, an individual's rule. Complication on definitively generalizing 
+than that, an individual's rule. Complication on conclusively generalizing 
 an artificial axiom, by the practices that stem from it, is due to another 
-aspect: the individual whose actions (the evidence through expression) 
+aspect, the individual whose actions (the evidence through expression) 
 are rationalized only by attributing their actions to artificial 
-axioms. The recognition of a prevailing artificial axiom, though, for a 
+axioms. And the recognition of a prevailing artificial axiom for a 
 group of sentient beings relies on a passing frequency in the accurate 
 attribution of the group's particular independent actions, manifested 
 as appearance, physical movement, or speech, to the artificial axiom 
