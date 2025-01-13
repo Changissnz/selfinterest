@@ -2542,8 +2542,8 @@ an artificial axiom, by the practices that stem from it, is due to another
 aspect: the individual whose actions (the evidence through expression) are 
 rationalized can occur only by attributing their actions to artificial axioms. 
 The recognition of the artificial axiom, though, for a group of sentient 
-beings relies on a passing frequency in the attribution of the group's 
-particular independent actions, manifested as appearance, physical 
+beings relies on a passing frequency in the accurate attribution of the 
+group's particular independent actions, manifested as appearance, physical 
 movement, or speech, to the artificial axiom (the cause). The artificial 
 axiom as a rule connected to the decision-making faculty of an individual, 
 for their self-interest above their profits of finance, social influence, 
@@ -2562,14 +2562,14 @@ to elicit sentiment from the consumer are all culprits for this inaccuracy,
 in both interpretation by the consumer and the intended motives for the 
 work. On a related note, the fact that is mentioned for an agenda in conflict 
 to or reinforcing of a situation is also not without the bias of motive, 
-hence why there is at this note as a justifying reason for one preferring 
+hence there is this note as a justifying reason for one preferring 
 fiction or nonfiction, but this point does mislead, through parallelism, 
 for advocacy of a completely free consumer market, where the consumer can 
 buy anything because of an inherent justification according to the justice 
 of fiction or nonfiction being free to prefer. Rewinding focus back to the 
 matter of poetics of tragedy, to state that there are artificial axioms at 
 play, believed by some, is accurate. Another accuracy, for matters where 
-tragedy is achieved not by the loss through inanimate phenomenon so that 
+tragedy is achieved not by the loss through inanimate phenomena so that 
 the work of one or more sentient beings is responsible for the grimness, is 
 that these artificial axioms' use, and additionally their existence, is 
 challenged on the premise of a wanted purity in use of these same artificial 
@@ -2578,10 +2578,10 @@ If matters of literary tragedy were explained not via the application of
 artificial axiom, then a roughly equal understanding can be achieved by noting 
 the whims of certain individuals running contrary to those designated as 
 antagonists, by the basis of a goodness assigned to those favored in narration 
-but not by fate, and these antagonists characteristic of idiocy, lunacy, and 
-conventional sin. But this roughly equal understanding is not comprised of 
-the rule, equivalently the principle, of reason, but of judgment on what 
-is good and bad, thus being at least one layer above the description via 
+but not by narrative fate, and these antagonists characteristic of idiocy, 
+lunacy, and conventional sin. But this roughly equal understanding is not 
+comprised of the rule, equivalently the principle, of reason, but of judgment 
+on what is good and bad, thus being at least one layer above the description via 
 artificial axiom; there can be no judgment without the experience of perception 
 or a blind choice. Tragedy is one category of suffering, and suffering is 
 a topic very widely discussed because, for the human being, it is a universal 
@@ -2601,7 +2601,7 @@ or a possession of a physical resource, perception of the public encouraged
 to take up means by instantiation of select axioms for physical impact, 
 et cetera. A terse translation of transcendentalism's spirit is that the 
 artificial axiom really has no meaning if not accepted, and why should the 
-artificial axiom be accepted if it only produces pain through meaning, 
+artificial axiom be accepted if its agents only produce pain through meaning, 
 if it only encourages unwanted physical violence (yes, this would be 
 instantiations of axioms of natural law) or cognitive distress, in which 
 the loss in control of decision-making leads to negative effects from 
@@ -2609,8 +2609,9 @@ the axiom. The transcendentalist can also be called a utilitarian that
 has chosen not to be a utility for or to utilize certain artificial axioms, 
 on basic premises such as the artificial axioms being deterrents to the 
 pursuit of happiness, destroyers of the paradise, when there is the apparently 
-better choice of "transcending" the system comprised of artificial axioms 
-to meet the universal ideal through experience. The concept of lone 
-freedom, this being labeled such words as "autonomy" and "independence", 
-is one component in a comprehensive illumination of self-interest, and 
-does speak to the selfishness capable by the self. 
+better choice of "transcending" the system comprised of artificial axioms, 
+run by those uncaring and selfish themselves, to meet the universal ideal 
+through experience. The concept of lone freedom, this being labeled such 
+words as "autonomy" and "independence", is one component in a comprehensive 
+illumination of self-interest, and does speak to the selfishness capable by 
+the self. 
