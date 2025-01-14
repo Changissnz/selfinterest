@@ -2570,7 +2570,7 @@ buy anything because of an inherent justification according to the justice
 of fiction or nonfiction being free to prefer. Rewinding focus back to the 
 matter of poetics of tragedy, to state that there are artificial axioms at 
 play, believed by some, is accurate. Another accuracy, for matters where 
-tragedy is achieved not by the loss through inanimate phenomena but by  
+tragedy is achieved not by the loss through inanimate phenomena but by 
 the work of one or more sentient beings is responsible for the grimness, is 
 that these artificial axioms' use, and additionally their existence, is 
 challenged on the premise of a wanted purity in use of these same artificial 
@@ -2646,4 +2646,18 @@ expressed but kept and guarded like a "spiritual gold" until given
 the opportunity to be expressed as gift to the "one true love". The 
 quotes were used for the reason of expressing ambiguity on the 
 specifics of passion as expression, and this ambiguity in understanding 
-is the great factor for the unpredictability of the other.  
+is the great factor for the unpredictability of the other. The human 
+being is similar to the numerical span of zero to one, as off-putting 
+as quantification of the human being may appear to those adamant 
+against quantification of their life, although in contemporary practice, 
+a person's net worth and their national identification continue to be 
+conventional quantifiers on their existence. In the spatiotemporal sense, 
+a human being not at the right time cannot act out of passion, due to 
+the reason of one or more artificial axioms said human being chose to 
+satisfy. So passion unfulfilled must make a slave out of the reason 
+followed, according to Hume, or? Maybe the passion was not of a magnitude 
+that passes a threshold. A human being not at the right place cannot 
+fulfill the specific objectives borne from their passion. For the time 
+and the space, there is a lot of science, many methodologies, to ensure 
+that passion has the greatest or lowest possibility of actualizing on 
+the specific objective. 
