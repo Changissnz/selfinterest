@@ -2640,7 +2640,7 @@ tests for the degree of understanding this human being. The famous
 philosopher David Hume, in his Treatise on Human Nature, argues that 
 "reason is the slave to the passions". And the thinker did use 
 truths convincing in support of this tenet, and in doing so, was one 
-that encouraged the conception of the human being as one of 
+that encouraged the conceptualization of the human being as one of 
 fundamental unpredictability, for the passions cannot always be 
 expressed but kept and guarded like a "spiritual gold" until given 
 the opportunity to be expressed as gift to the "one true love". The 
