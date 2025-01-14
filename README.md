@@ -2674,13 +2674,15 @@ the limits of time and space placed on these possibilities, there are
 innumerable possible courses of thought and action for the human being, 
 despite their being so similar to the numerical span of zero to one, a 
 span that has an infinite number of numbers that can be reflected onto 
-the numerical line of infinite length by proportional mapping. The shared 
-quality of having infinite numbers between the numerical range of length one 
-and any range of any length besides one, all the way up to infinity, allows 
-opportunity for some societal happenings. For example, the human being is 
-not one that exists by great scale, but through great image and the appropriate 
-standing, can cause changes in mind and action of many humans, these changes 
-so great as to be viewed quantitatively as astronomical, infinite-like. The 
-passion of the human being, likewise, can be regarded as infinite by the 
-beholder and maybe others, yet constrained by spatiotemporality, thus 
-worthy of the metaphor, the numerical span zero to one. 
+the numerical line of infinite length by proportional mapping, and also 
+despite how little difference in outward impact or influence these innumerable 
+possibilities result in. The shared quality of having infinite numbers 
+between the numerical range of length one and any range of any length besides 
+one, all the way up to infinity, allows opportunity for some societal happenings. 
+For example, the human being is not one that exists by great scale, but 
+through great image and the appropriate standing, can cause changes in mind 
+and action of many humans, these changes so great as to be viewed quantitatively 
+as astronomical, infinite-like. The passion of the human being, likewise, can 
+be regarded as infinite by the beholder and maybe others, yet constrained 
+by spatiotemporality, thus worthy of the metaphor, the numerical span zero 
+to one. 
