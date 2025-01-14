@@ -2730,12 +2730,12 @@ socially fit than any love for the woman that did not actualize,
 might as well be a lie? The woman, too stupid, conceited to sense 
 the love, an admirer of her own self-image, that of an inanimate 
 statue, therefore a narcissist? Going back to the man, would his 
-decision to have taken the opportunity to make both ends meet 
+decision to have taken the opportunity to cause both ends to meet 
 make him some kind of "brute", a shame to his "people", an "outcast" 
 to his "society"? And to end discussion on this man and woman with 
 details that could very well be for a dark comedy or a light-hearted 
 laugh on the futilities of life, the man marries someone "of his kind" 
-to fulfill a ethno-cultural mannerism, the woman likewise, and both 
+to fulfill an ethno-cultural mannerism, the woman likewise, and both 
 become so terribly unhappy about what love and marriage is from their 
 experience. Passion is a personal matter for self-interest to act on. 
 Temptation, fixation on the purpose, and obsessions of the most 
@@ -2749,4 +2749,4 @@ breakage or being turned against is posed. This here is where the
 mention of the concept of "self-control" is important for the pragmatics 
 of self-interest economical in decision-making. Lastly, practicing of 
 passion can be partly understood by use of the categorization of 
-impulsive (pseudo-controllable) and deliberate habit. 
+impulse (pseudo-controllable) and deliberate habit. 
