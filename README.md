@@ -2685,4 +2685,13 @@ and action of many humans, these changes so great as to be viewed quantitatively
 as astronomical, infinite-like. The passion of the human being, likewise, can 
 be regarded as infinite by their self and maybe others, yet constrained 
 by spatiotemporality, thus worthy of the metaphor, the numerical span zero 
-to one. 
+to one. Passion perhaps cannot be regulatable, and this is demonstrated in 
+matters of genuine love from an individual, out of their self-interest that 
+is not entirely for their independent self, for a subject of study, a person, 
+an entire group of people. A few implications of Hume's tenet, mentioned, are 
+that passion is a factor in the want and the work by adherence to a reason 
+being at harmony with one another, and passion allows one to forfeit the 
+fear of consequences, many of which would be due to the fellow human being's 
+need to satisfy specific artificial axioms, these the reasons, at the loss of 
+the passionate, to look ahead to focus entirely on satisfying the passion 
+through incident and/or dedicated practice. 
