@@ -2784,4 +2784,10 @@ note again. However, since the title of this text is Self-Interest, and
 due to the lack of self-containment that is self-interest, detailed in 
 both expression and the internalist mechanisms responsible for forces such 
 as passion and the will, forces that tend to exhibit a magnetization for 
-that which is external to the container, the human body. 
+that which is external to the container, the human body, everything written 
+so far in this text is not focused on the artificial axiom. A focus entirely 
+on the artificial axiom would mean nothing more than a complete and thorough 
+definition of the concept. Instead, this writing sought and continue to seeks 
+the artificial axiom as utility in what branches out of self-interest, oh but 
+if only self-interest were a simple plant seed to grow into a tree, incapable 
+of locomotion, then the writing would be on botany.
