@@ -2726,8 +2726,8 @@ is also not forward in his want and does not approach the woman in the
 manner that signifies a love proportional to that from his passion. 
 The two ends never meet. Cowardice from the man, via fear of the 
 consequences, one in actuality more desiring of the position of 
-socially fit than any love for the woman that did not actualize, 
-might as well be a lie? The woman, too stupid, conceited to sense 
+socially fit than any love for the woman, might as well be a lie, 
+that did not actualize? The woman, too stupid, conceited to sense 
 the love, an admirer of her own self-image, that of an inanimate 
 statue, therefore a narcissist? Going back to the man, would his 
 decision to have taken the opportunity to cause both ends to meet 
