@@ -2596,10 +2596,11 @@ metaphorical fact though, the "metaphysical maze of artificial axioms"
 does grow a symbiotic binding to the motives of self-interest, how self-interest 
 becomes a force not to reach potential or to freely express, on the penalty 
 of financial loss or defamation of reputation. And these penalties do not 
-even directly invoke the axiom of natural law, instead somewhere along the 
-way after facing these penalties, the lucky coincidences from the axiom's 
-occurrence are not there, quite the contrary to be honest. The nearness to 
-or a possession of a physical resource deprived, perception by the public 
+even directly invoke the axiom of natural law greater than the immediate 
+single consequence of the penalty, instead somewhere along the way after 
+facing these penalties, the lucky coincidences from the axiom's occurrence 
+are not there, quite the contrary to be honest. The nearness to or a 
+possession of a physical resource deprived, perception by the public 
 encouraged to take up means through instantiating select axioms for physical 
 impact, et cetera. A terse translation of transcendentalism's spirit is that the 
 artificial axiom really has no meaning if not accepted, and why should the 
@@ -2617,3 +2618,22 @@ through personal experience. The concept of liberated freedom, this being
 labeled words such as "autonomy" and "independence", is one component in a 
 comprehensive illumination of self-interest, and does speak to the selfishness 
 capable by the self. 
+
+## More on philosophies of self-interest #45 
+
+How can the self be thought of in ways that cannot be captured by 
+conceiving understanding of the individual, from their self, in formats 
+of artificial axioms? There is an undeniable emotive body in any typical 
+human being; the straight-faced stoic is not spared from this condition, 
+and is praised only for maintaining an air of resolute and tempered 
+expression in conditions that would make an emotionalist berserk or 
+tearfully insane. The human being, a "social creature", and by this 
+label predictable in aspects concerning their sociality and social 
+network, such as the spatiotemporal event of interaction and the 
+resources possible to be exchanged through the social connection, 
+and also a "creature of habit", whose habits of patterns become 
+observable and quantitatively measurable in some ways, like 
+clockwork, can be understood by artificial axioms defined for 
+these traits and the spatiotemporal matches of the actual with 
+the expected, by use of these artificial axioms, serve as confirmation 
+tests of the degree of understanding this human being. 
