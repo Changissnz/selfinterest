@@ -2743,9 +2743,9 @@ a container if not a utilizer of passion, and the self being one
 that can process feeling as reason of personal truth, also as reason 
 for, must take care to treat passion as a double-edged sword, constantly 
 remade by a different swordsmith at every chance opportunity that calls 
-for its expression, not subject to control of quality for the risk of 
-breakage or being turned against. This here is where the mention of the 
-concept of "self-control" is important for the pragmatics of 
-self-interest economical in decision-making. Lastly, practicing of 
+for its expression, not subject to control of quality so that risk of 
+breakage or being turned against is posed. This here is where the 
+mention of the concept of "self-control" is important for the pragmatics 
+of self-interest economical in decision-making. Lastly, practicing of 
 passion can be partly understood by use of the categorization of 
 impulsive (pseudo-controllable) and deliberate habit. 
