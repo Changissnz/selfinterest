@@ -2683,6 +2683,6 @@ For example, the human being is not one that exists by great scale, but
 through great image and the appropriate standing, can cause changes in mind 
 and action of many humans, these changes so great as to be viewed quantitatively 
 as astronomical, infinite-like. The passion of the human being, likewise, can 
-be regarded as infinite by the beholder and maybe others, yet constrained 
+be regarded as infinite by their self and maybe others, yet constrained 
 by spatiotemporality, thus worthy of the metaphor, the numerical span zero 
 to one. 
