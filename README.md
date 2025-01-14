@@ -2625,7 +2625,7 @@ How can the self be thought of in ways that cannot be captured by
 conceiving understanding of the individual, from their self, in formats 
 of artificial axioms? There is an undeniable emotive body in any typical 
 human being; the straight-faced stoic is not spared from this condition, 
-and is praised only for maintaining an air of resolute and tempered 
+and is praised for maintaining an air of resolute and tempered 
 expression in conditions that would make an emotionalist berserk or 
 tearfully insane. The human being, a "social creature", and by this 
 label predictable in aspects concerning their sociality and social 
@@ -2634,7 +2634,7 @@ resources possible to be exchanged through the social connection,
 and also a "creature of habit", whose habits of patterns become 
 observable and quantitatively measurable in some ways, like 
 clockwork, can be understood by artificial axioms defined for 
-these traits and the spatiotemporal matches of the actual with 
+these traits, and the spatiotemporal matches of the actual with 
 the expected, by use of these artificial axioms, serve as confirmation 
 tests for the degree of understanding this human being. The famous 
 philosopher David Hume, in his Treatise on Human Nature, argues that 
@@ -2689,23 +2689,23 @@ by spatiotemporality, thus worthy of the metaphor, the numerical span zero
 to one. Passion perhaps cannot be regulatable, and this is demonstrated in 
 matters of genuine love from an individual, out of their self-interest that 
 is not entirely for their independent self, for a subject of study, a person, 
-an entire group of people. A few implications of Hume's tenet, mentioned, are 
+an entire group of people. A couple implications of Hume's tenet, mentioned, are 
 that passion is a factor in the want and the work by adherence to a reason 
 being at harmony with one another, and passion allows one to forfeit the 
-fear of consequences, many of which would be due to the fellow human being's 
+fear of consequences, many of which would be due to their fellow human being's 
 need to satisfy specific artificial axioms, these the reasons, at the loss of 
 the passionate, to look ahead to focus entirely on satisfying the passion 
 through incident and/or dedicated practice. The passion unsatisfied in favor 
 for the reason is passion that does not necessarily die. And the lack of 
 an axiom of natural law for passion to die if unsatisfied does pose 
 issues to consistency in satisfying a reason. Passion could somehow 
-manifest itself, even after the deprivation, the deception, exaggeratingly 
+manifest itself, even after the deprivation, the deception, and exaggeratingly 
 all the pains the world has to offer, could it not? Passion is somehow 
 connected to self-interest, in the scope of idealism first, but if the 
 practice of the passion is the skill most admirable of the individual, 
 then the passion in practice is pragmatic, if and only if the relevant 
 artificial axioms practiced by one or more sentient beings do not present 
-much interference costly in resources renewable or not. As for the 
+much interference costly in their resources renewable or not. As for the 
 objectives the self wants to succeed in, due to passion, and fails, 
 there is still passion, and the objective replaced for another or 
 nullified because of the failure being the one solution unreached. 
@@ -2715,7 +2715,7 @@ passion in the face of failure, after the sad fact of failure.
 Here is a situation on gender roles and questions on the male. 
 There is a man and a woman. The woman, in her belief that it is 
 the man's responsibility to approach and connect with her, in other 
-words, of the orthodoxy of the feminine passivity and masculine 
+words, of the orthodoxy of feminine passivity and masculine 
 aggression, is not forward in her desire for him. She believes it 
 is his responsibility, while she is supposed to take a role natural 
 according to her mannerism, like a statue representative of heavenly 
