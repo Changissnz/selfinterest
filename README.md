@@ -2647,7 +2647,7 @@ the opportunity to be expressed as gift to the "one true love". The
 quotes were used for the reason of expressing ambiguity on the 
 specifics of passion as expression, and this ambiguity in understanding 
 is the great factor for the unpredictability of the other. The human 
-being is similar to the numerical span of zero to one, as off-putting 
+being is similar to the numerical span of zero through one, as off-putting 
 as quantification of the human being may appear to those adamant 
 against quantification of their life, although in contemporary practice, 
 a person's net worth and their national identification continue to be 
@@ -2661,18 +2661,18 @@ fulfill the specific objectives borne from their passion. For the time
 and the space, there is a lot of science, many methodologies, to ensure 
 that passion has the greatest or lowest possibility of actualizing on 
 the specific objective. A human being, like the numerical span of zero 
-to one, is subject to birth (one) and death (zero), and in the spatial 
+through one, is subject to birth (one) and death (zero), and in the spatial 
 constraints placed on them, the opportunities and wastes that time can 
 present, has the capability to think however and to act by their physical 
 abilities; the constraints of space and time for a human being's existence 
-are another exemplar of the numerical span zero to one. Thinking on a 
+are another exemplar of the numerical span zero through one. Thinking on a 
 past memory, making conjectures on the causes behind some of their experiences, 
 imagining an alternative world, and devising a procedure for a quantitative 
 problem. The items in this list are much more feasible to accomplish than 
 say, somehow changing the course of fate for an entire nation. And despite 
 the limits of time and space placed on these possibilities, there are 
 innumerable possible courses of thought and action for the human being, 
-despite their being so similar to the numerical span of zero to one, a 
+despite their being so similar to the numerical span of zero through one, a 
 span that has an infinite number of numbers that can be reflected onto 
 the numerical line of infinite length by proportional mapping, the reflection 
 having a passing appearance for the infinite cannot ever be reached, and 
@@ -2686,7 +2686,7 @@ and action of many humans, these changes so great as to be viewed quantitatively
 as astronomical, infinite-like. The passion of the human being, likewise, can 
 be regarded as infinite by their self and maybe others, yet constrained 
 by spatiotemporality, thus worthy of the metaphor, the numerical span zero 
-to one. Passion perhaps cannot be regulatable, and this is demonstrated in 
+through one. Passion perhaps cannot be regulatable, and this is demonstrated in 
 matters of genuine love from an individual, out of their self-interest that 
 is not entirely for their independent self, for a subject of study, a person, 
 an entire group of people. A couple implications of Hume's tenet, mentioned, are 
