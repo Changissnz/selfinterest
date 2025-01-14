@@ -2656,7 +2656,7 @@ a human being not at the right time cannot act out of passion, due to
 the reason of one or more artificial axioms said human being chose to 
 satisfy. So passion unfulfilled must make a slave out of the reason 
 followed, according to Hume, or? Maybe the passion was not of a magnitude 
-that passes a threshold. A human being not at the right place cannot 
+that passed a threshold. A human being not at the right place cannot 
 fulfill the specific objectives borne from their passion. For the time 
 and the space, there is a lot of science, many methodologies, to ensure 
 that passion has the greatest or lowest possibility of actualizing on 
@@ -2674,13 +2674,14 @@ the limits of time and space placed on these possibilities, there are
 innumerable possible courses of thought and action for the human being, 
 despite their being so similar to the numerical span of zero to one, a 
 span that has an infinite number of numbers that can be reflected onto 
-the numerical line of infinite length by proportional mapping, and also 
-despite how little difference in outward impact or influence these innumerable 
-possibilities result in. The shared quality of having infinite numbers 
-between the numerical range of length one and any range of any length besides 
-one, all the way up to infinity, allows opportunity for some societal happenings. 
-For example, the human being is not one that exists by great scale, but 
-through great image and the appropriate standing, can cause changes in mind 
+the numerical line of infinite length by proportional mapping, the reflection 
+having a passing appearance for the infinite cannot ever be reached, and 
+also despite how little difference in outward impact or influence these 
+innumerable possibilities result in. The shared quality of having infinite 
+numbers between the numerical range of length one and any range of any length 
+besides one, towards infinity, allows opportunity for some societal 
+happenings. For example, the human being is not one that exists by great scale, 
+but through great image and the appropriate standing, can cause changes in mind 
 and action of many humans, these changes so great as to be viewed quantitatively 
 as astronomical, infinite-like. The passion of the human being, likewise, can 
 be regarded as infinite by their self and maybe others, yet constrained 
@@ -2736,7 +2737,7 @@ details that could very well be for a dark comedy or a light-hearted
 laugh on the futilities of life, the man marries someone "of his kind" 
 to fulfill a ethno-cultural mannerism, the woman likewise, and both 
 become so terribly unhappy about what love and marriage is from their 
-experience. Passion is a personal matter for self-interest to use. 
+experience. Passion is a personal matter for self-interest to act on. 
 Temptation, fixation on the purpose, and obsessions of the most 
 unhealthy kind are how passion drives the self. Self-interest is 
 a container if not a utilizer of passion, and the self being one 
