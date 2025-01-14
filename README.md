@@ -2721,7 +2721,7 @@ is his responsibility, while she is supposed to take a role natural
 according to her mannerism, like a statue representative of heavenly 
 beauty. The man, as a "social creature" that desires her, considers 
 his identity, perhaps due to his classism of career and socio-economics, 
-maybe because of a identity that is minority in comparison with the woman, 
+maybe because of an identity that is minority in comparison with the woman, 
 is also not forward in his want and does not approach the woman in the 
 manner that signifies a love proportional to that from his passion. 
 The two ends never meet. Cowardice from the man, via fear of the 
