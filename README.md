@@ -2694,4 +2694,56 @@ being at harmony with one another, and passion allows one to forfeit the
 fear of consequences, many of which would be due to the fellow human being's 
 need to satisfy specific artificial axioms, these the reasons, at the loss of 
 the passionate, to look ahead to focus entirely on satisfying the passion 
-through incident and/or dedicated practice. 
+through incident and/or dedicated practice. The passion unsatisfied in favor 
+for the reason is passion that does not necessarily die. And the lack of 
+an axiom of natural law for passion to die if unsatisfied does pose 
+issues to consistency in satisfying a reason. Passion could somehow 
+manifest itself, even after the deprivation, the deception, exaggeratingly 
+all the pains the world has to offer, could it not? Passion is somehow 
+connected to self-interest, in the scope of idealism first, but if the 
+practice of the passion is the skill most admirable of the individual, 
+then the passion in practice is pragmatic, if and only if the relevant 
+artificial axioms practiced by one or more sentient beings do not present 
+much interference costly in resources renewable or not. As for the 
+objectives the self wants to succeed in, due to passion, and fails, 
+there is still passion, and the objective replaced for another or 
+nullified because of the failure being the one solution unreached. 
+The follies found in love and marriage, as statistics not entirely 
+captured for the record, offer terrific discussion to proceed about 
+passion in the face of failure, after the sad fact of failure. 
+Here is a situation on gender roles and questions on the male. 
+There is a man and a woman. The woman, in her belief that it is 
+the man's responsibility to approach and connect with her, in other 
+words, of the orthodoxy of the feminine passivity and masculine 
+aggression, is not forward in her desire for him. She believes it 
+is his responsibility, while she is supposed to take a role natural 
+according to her mannerism, like a statue representative of heavenly 
+beauty. The man, as a "social creature" that desires her, considers 
+his identity, perhaps due to his classism of career and socio-economics, 
+maybe because of a identity that is minority in comparison with the woman, 
+is also not forward in his want and does not approach the woman in the 
+manner that signifies a love proportional to that from his passion. 
+The two ends never meet. Cowardice from the man, via fear of the 
+consequences, one in actuality more desiring of the position of 
+socially fit than any love for the woman that did not actualize, 
+might as well be a lie? The woman, too stupid, conceited to sense 
+the love, an admirer of her own self-image, that of an inanimate 
+statue, therefore a narcissist? Going back to the man, would his 
+decision to have taken the opportunity to make both ends meet 
+make him some kind of "brute", a shame to his "people", an "outcast" 
+to his "society"? And to end discussion on this man and woman with 
+details that could very well be for a dark comedy or a light-hearted 
+laugh on the futilities of life, the man marries someone "of his kind" 
+to fulfill a ethno-cultural mannerism, the woman likewise, and both 
+become so terribly unhappy about what love and marriage is from their 
+experience. Passion is a personal matter for self-interest to use. 
+Temptation, fixation on the purpose, and obsessions of the most 
+unhealthy kind are how passion drives the self. Self-interest is 
+a container if not a utilizer of passion, and the self being one 
+that can process feeling as reason of personal truth, also as reason 
+for, must take care to treat passion as a double-edged sword, constantly 
+remade by a different swordsmith at every chance opportunity that calls 
+its expression, not subject to control of quality for the risk of 
+breakage or being turned. This here is where the mention of the 
+concept of "self-control" is important for the pragmatics of 
+self-interest economical in decision-making. 
