@@ -2750,3 +2750,34 @@ mention of the concept of "self-control" is important for the pragmatics
 of self-interest economical in decision-making. Lastly, practicing of 
 passion can be partly understood by use of the categorization of 
 impulse (pseudo-controllable) and deliberate habit. 
+
+## More on philosophies of self-interest #46 
+
+The reason for this writing's use of the term "artificial axiom", instead 
+of rule (political system, social order), is because of an awareness of 
+the connotations. The "rule" and the "artificial axiom" are similar, but 
+the rule as a legal tenet for a political system, the ruling of a political 
+system, the rule to promote social bonds would send messages to the reader 
+that are different from the ideas expressed using the concept of the 
+"artificial axiom", as well as the explanation on the concept by way of 
+definition, of the core and projecting forms. The artificial axiom is a design, 
+of mathematical connotation. The design is fluid, inspired by a creativity, yet 
+operates in virtually the same way. Furthermore, any design is done so for the 
+sake of specific construction. Constructionist thinking is encouraged by the 
+phrase, "artificial axiom". The rule is static to satisfy the political ego, 
+the business tied to the economics of power instituted through government and 
+enterprise. The rule is to bring order to human beings, the "social creatures" 
+that they are. Through the rule effective in and of itself, and also persisting 
+through changes, improvements and reforms to rule can be made. There is the 
+"human factor" in the rule. Invoking the rule brings to mind a social interaction 
+between at least one and their utility of the rule, or at least one to others 
+responsible for upholding the rule. The artificial axiom, with its mathematical 
+connotation, is a tool of rationalism, and although reason fails, there is 
+the attempt for the rationale. Systematization in understanding any phenomena, 
+or of implementation into system for phenomena is by axiomatic understanding, 
+comprised of axioms. Recall that this text's usage of the term "axiom", 
+redefined for this text's purposes, is to denote the axiom of natural law, 
+not for any arbitrary rule, guideline, consequence for violation, especially 
+by the sentient being, very especially by the sentient being from a cynical 
+perspective on humankind. This is an attribute that is important enough to 
+note again. 
