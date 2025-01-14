@@ -2790,9 +2790,9 @@ human body, everything written so far in this text is not focused on the
 artificial axiom. A focus entirely on the artificial axiom would mean 
 nothing more than a complete and thorough definition of the concept. 
 Instead, this writing sought and continue to seeks the artificial axiom 
-as utility in what branches out of self-interest, oh but if only self-interest 
-were a simple plant seed to grow into a tree, incapable of locomotion, 
-then the writing would be on botany. 
+as attribution in what branches out of self-interest, oh but if only 
+self-interest were a simple plant seed to grow into a tree, incapable of 
+locomotion, then the writing would be on botany. 
 
 ## More on philosophies of self-interest #47 
 
@@ -2825,11 +2825,12 @@ capable of more habits and of removal from habit. The appearance of
 their efficiency for tasks of pattern and creativity are the habits 
 and the innate capability. The will of total does not belong to 
 any one or any thing, and the idea of a noun as being automatic 
-in quality likens the noun to a tool. It is control over their 
-self and furthermore, over the understanding of their self-interest, 
-the human being desires for their belief that their will is their 
-own. "Autonomy" is the term of choice for the human being of 
-independence, and their being made "automatic" in thought and action 
-forfeits opportunity for other opportunity, at least in the theory, 
-but for the practice, coincidence by chance is very much something; 
-some people even claim the idea of luck as a nontheistic religion. 
+in quality likens the noun to a tool. It is because of wanting 
+control over their self and furthermore, over the understanding of 
+their self-interest, that the human being desires for their belief 
+in their will being their own. "Autonomy" is the term of choice for 
+the human being of independence, and their being made "automatic" in 
+thought and action forfeits opportunity for other opportunity, at least 
+in the theory, but for the practice, coincidence by chance is very 
+much something; some people even claim the idea of luck as a nontheistic 
+religion. 
