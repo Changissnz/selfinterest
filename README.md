@@ -2677,7 +2677,7 @@ span that has an infinite number of numbers that can be reflected onto
 the numerical line of infinite length by proportional mapping, the reflection 
 having a passing appearance for the infinite cannot ever be reached, and 
 also despite how little difference in outward impact or influence these 
-innumerable possibilities result in. The shared quality of having infinite 
+innumerable possibilities may result in. The shared quality of having infinite 
 numbers between the numerical range of length one and any range of any length 
 besides one, towards infinity, allows opportunity for some societal 
 happenings. For example, the human being is not one that exists by great scale, 
