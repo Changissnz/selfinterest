@@ -2660,4 +2660,27 @@ that passes a threshold. A human being not at the right place cannot
 fulfill the specific objectives borne from their passion. For the time 
 and the space, there is a lot of science, many methodologies, to ensure 
 that passion has the greatest or lowest possibility of actualizing on 
-the specific objective. 
+the specific objective. A human being, like the numerical span of zero 
+to one, is subject to birth (one) and death (zero), and in the spatial 
+constraints placed on them, the opportunities and wastes that time can 
+present, has the capability to think however and to act by their physical 
+abilities; the constraints of space and time for a human being's existence 
+are another exemplar of the numerical span zero to one. Thinking on a 
+past memory, making conjectures on the causes behind some of their experiences, 
+imagining an alternative world, and devising a procedure for a quantitative 
+problem. The items in this list are much more feasible to accomplish than 
+say, somehow changing the course of fate for an entire nation. And despite 
+the limits of time and space placed on these possibilities, there are 
+innumerable possible courses of thought and action for the human being, 
+despite their being so similar to the numerical span of zero to one, a 
+span that has an infinite number of numbers that can be reflected onto 
+the numerical line of infinite length by proportional mapping. The shared 
+quality of having infinite numbers between the numerical range of length one 
+and any range of any length besides one, all the way up to infinity, allows 
+opportunity for some societal happenings. For example, the human being is 
+not one that exists by great scale, but through great image and the appropriate 
+standing, can cause changes in mind and action of many humans, these changes 
+so great as to be viewed quantitatively as astronomical, infinite-like. The 
+passion of the human being, likewise, can be regarded as infinite by the 
+beholder and maybe others, yet constrained by spatiotemporality, thus 
+worthy of the metaphor, the numerical span zero to one. 
