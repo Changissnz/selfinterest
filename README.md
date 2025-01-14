@@ -2746,4 +2746,6 @@ remade by a different swordsmith at every chance opportunity that calls
 its expression, not subject to control of quality for the risk of 
 breakage or being turned against. This here is where the mention of the 
 concept of "self-control" is important for the pragmatics of 
-self-interest economical in decision-making. 
+self-interest economical in decision-making. Lastly, practicing of 
+passion can be partly understood by use of the categorization of 
+impulsive (pseudo-controllable) and deliberate habit. 
