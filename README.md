@@ -2744,6 +2744,6 @@ that can process feeling as reason of personal truth, also as reason
 for, must take care to treat passion as a double-edged sword, constantly 
 remade by a different swordsmith at every chance opportunity that calls 
 its expression, not subject to control of quality for the risk of 
-breakage or being turned. This here is where the mention of the 
+breakage or being turned against. This here is where the mention of the 
 concept of "self-control" is important for the pragmatics of 
 self-interest economical in decision-making. 
