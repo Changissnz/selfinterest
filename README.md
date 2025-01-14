@@ -2692,7 +2692,7 @@ is not entirely for their independent self, for a subject of study, a person,
 an entire group of people. A couple implications of Hume's tenet, mentioned, are 
 that passion is a factor in the want and the work by adherence to a reason 
 being at harmony with one another, and passion allows one to forfeit the 
-fear of consequences, many of which would be due to their fellow human being's 
+fear of unwanted consequences, many of which would be due to their fellow human being's 
 need to satisfy specific artificial axioms, these the reasons, at the loss of 
 the passionate, to look ahead to focus entirely on satisfying the passion 
 through incident and/or dedicated practice. The passion unsatisfied in favor 
