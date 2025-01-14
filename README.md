@@ -2780,4 +2780,8 @@ redefined for this text's purposes, is to denote the axiom of natural law,
 not for any arbitrary rule, guideline, consequence for violation, especially 
 by the sentient being, very especially by the sentient being from a cynical 
 perspective on humankind. This is an attribute that is important enough to 
-note again. 
+note again. However, since the title of this text is Self-Interest, and 
+due to the lack of self-containment that is self-interest, detailed in 
+both expression and the internalist mechanisms responsible for forces such 
+as passion and the will, forces that tend to exhibit a magnetization for 
+that which is external to the container, the human body. 
