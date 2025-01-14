@@ -2796,3 +2796,40 @@ then the writing would be on botany.
 
 ## More on philosophies of self-interest #47 
 
+The artificial axiom cannot be thought of as an autocorrecting tool. 
+Autocorrection is an example of automation, and to say that a sentient 
+being, in the context of other sentient beings, can be automated is 
+dehumanizing. And just because dehumanization exists, in scale marked 
+enough for the phenomena to have a word for it in English, does not 
+result in the sentient being having the quality of being automated. 
+The sentient being can work in patterns efficient, like clockwork to 
+appear automated, but they are not, proven by the occurrences of 
+their contemplation and change-of-heart. The two points used as 
+proof of the sentient being not being automated constitute a stance 
+strong in the bias for humanity. Artificial intelligence can "contemplate", 
+that is, re-learn differing ideas and tenets to reach different 
+conclusions based on the same material data. Artificial intelligence 
+can also have a "change-of-heart" through updates that change the 
+constitutional making of the program or hardware swaps. This is 
+insulting to the uniqueness of the human being, of course. Their 
+contemplation spurred by callings from their moral compass should 
+not be equivalent to re-learning done by artificial intelligence. 
+The human being loves one another, according to what many say; the 
+argument that the human being is fundamentally good is a frequent 
+argument. Artificial intelligence, on the other hand, operates by 
+electricity, the inanimate material, and the computer code. Quantities, 
+materials. The steadfast humanist of orthodoxy is sure to ask: "How 
+can these things ever reach the innermost essence of my life, my 
+spirit?" The sentient being is better thought of as one of habit, 
+capable of more habits and of removal from habit. The appearance of 
+their efficiency for tasks of pattern and creativity are the habits 
+and the innate capability. The will of total does not belong to 
+any one or any thing, and the idea of a noun as being automatic 
+in quality likens the noun to a tool. It is control over their 
+self and furthermore, over the understanding of their self-interest, 
+the human being desires for their belief that their will is their 
+own. "Autonomy" is the term of choice for the human being of 
+independence, and their being made "automatic" in thought and action 
+forfeits opportunity for other opportunity, at least in the theory, 
+but for the practice, coincidence by chance is very much something; 
+some people even claim the idea of luck as a nontheistic religion. 
