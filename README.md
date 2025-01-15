@@ -2848,7 +2848,9 @@ mention morality. The preference for the course of action, from the
 preference, of course, is on the premise of knowing the lone and 
 immediate context for which the artificial axiom is to be used. The 
 artificial axiom is not for sentient beings' autocorrection, noted 
-in this next statement. Some desire the consequences, usually for 
-others, when the cause can be wrongly identified. The cause did not 
-have to occur if the cause is one of action. The cause does not have 
-to be the truth of attribute if the cause is one of attribute label. 
+in this next statement. Some desire the consequences for others, 
+when the cause can be wrongly identified. The effects from an 
+arbitrarily selected artificial axiom is what the some desire. 
+The cause did not have to occur. Or the cause did not have to 
+occur by the means mentioned that would have made the instantiation 
+of the cause be viewed as wrong. This is deception. 
