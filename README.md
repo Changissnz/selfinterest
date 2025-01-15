@@ -2840,7 +2840,7 @@ The artificial axiom originates from self-interest. There is nothing
 innately wrong with self-interest. But every artificial axiom is susceptible 
 to being ignored on condition. Every artificial axiom, before instances 
 attributed to it, can be split into at least two alternatives: of 
-accepting or rejecting the envisioned practice of the artificial axiom. 
+accepting or rejecting the envisioned practice of it. 
 Both of these traits of the artificial axiom give leeway to the notion 
 of "right" and "wrong", and this notion does not require the need of 
 mentioning morality. The preference for the course of action, from the 
