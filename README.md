@@ -2893,7 +2893,7 @@ easily challenged on the other. When the statement, "human beings are
 principled beings", is supposed to be taken as the truth, there is the 
 expression still to be made. For example, ponder on how economies of 
 great scale in production are, in aspects closer to their source/s than 
-to their products. The factory does not require a human being to contemplate 
+to their products. The factory does not require a human being to think 
 on matters unrelated to their immediate spatiotemporal surroundings 
 and the factory's regulatory guidelines for their employees. Time is 
 critical, so sacrifices in independent thinking have to be made. 
