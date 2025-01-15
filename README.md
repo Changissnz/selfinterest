@@ -2854,4 +2854,5 @@ arbitrarily selected artificial axiom is what the some desire.
 The cause did not have to occur. Or the cause did not have to 
 occur by the means mentioned that would have made the instantiation 
 of the cause be viewed as wrong. Some deceive for the ends, and 
-this cannot be auto-corrected. 
+remain specifically principled nevertheless, and this cannot be 
+autocorrected. 
