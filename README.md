@@ -2914,18 +2914,18 @@ that their impulses have been detached from their self and re-engineered
 back into their self for the automatic action, and additionally for 
 the automatic thought, versus the local scale of individual 
 independence. This is a classic example of the question on what 
-the definitive traits for humanity are, when there practices such 
+the definitive traits for humanity are when there are practices such 
 as these, officially documented ever since the Second Industrial 
-Revolution. The matter of scale cannot really be able the individual 
-in entirety. The individual has to value their differing self-interest 
-more. Not only that, but the individual has to break free from all 
-of these artificial axioms placed onto them, to "transcend" the system 
-that they may feel so despicable of. The individual must manifest 
-a growth in their doubt of the humility typically ascribed to 
-taking part in the shared cause of being one with the masses, 
-and one for the mass cause of production or ideology, to value the 
-cause that make them faceless and ruins their time for lofty thoughts. 
-Uniformity over the personal expression. Recitation instead of 
-independent and forthright interpretation. These are some ways in 
-which self-interest clearly works as a force for the striving 
-of the human to be an automatic agent. 
+Revolution. The matter of scale cannot fully enable individual 
+divergence as the representative cause. The individual has to value 
+their differing self-interest more. Not only that, but the individual 
+has to break free from all of those artificial axioms placed onto them, 
+to "transcend" the system that they may so despise. The individual must 
+manifest a growth in their doubt of the humility typically ascribed to 
+taking part in the shared cause of being one with the masses, and one 
+for the mass cause of production or ideology, and to devalue those causes 
+that make them faceless and ruins their time for lofty thoughts. 
+Uniformity over the personal expression. Recitation instead of independent 
+and forthright interpretation. These are some ways in which self-interest 
+clearly works as a force for the striving of the human to be an automatic 
+agent. 
