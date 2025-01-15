@@ -2757,15 +2757,15 @@ The reason for this writing's use of the term "artificial axiom", instead
 of rule (political system, social order), is because of an awareness of 
 the connotations. The "rule" and the "artificial axiom" are similar, but 
 the rule as a legal tenet for a political system, the ruling of a political 
-system, the rule to promote social bonds would send messages to the reader 
-that are different from the ideas expressed using the concept of the 
-"artificial axiom", as well as the explanation on the concept by way of 
+system, and the rule to promote social bonds would send messages to the 
+reader different in resonance from the ideas expressed using the concept of 
+the "artificial axiom", as well as the explanation on this concept by way of 
 definition, of the core and projecting forms. The artificial axiom is a design, 
 of mathematical connotation. The design is fluid, inspired by a creativity, yet 
-operates in virtually the same way. Furthermore, any design is done so for the 
-sake of specific construction. Constructionist thinking is encouraged by the 
-phrase, "artificial axiom". The rule is static to satisfy the political ego, 
-for the business tied to the economics of power instituted through government 
+operates for virtually the same product. Furthermore, any design is done so 
+for the sake of specific construction. Constructionist thinking is encouraged 
+by the phrase, "artificial axiom". The rule is static to satisfy the political 
+ego, for the business tied to the economics of power instituted through government 
 and enterprise to operate on an axis of stability; this is the objective of the rule. 
 The rule is to bring order to human beings, the "social creatures" that they 
 are. Through the rule effective in and of itself, and also persisting through 
@@ -2778,7 +2778,7 @@ the rationale greatly preferred over the control by rule. Systematization
 in understanding any phenomena, or of implementation into system for phenomena 
 is by axiomatic understanding, comprised of axioms. Recall that this text's 
 usage of the term "axiom", redefined for this text's purposes, is to denote 
-the axiom of natural law, not for any arbitrary rule, guideline, consequence 
+the axiom of natural law, not for any arbitrary rule, guideline, or consequence 
 for violation, especially by the sentient being, very especially by the 
 sentient being from a cynical perspective on humankind. This is an attribute 
 that is important enough to note again. However, since the title of this 
