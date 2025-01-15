@@ -2837,7 +2837,7 @@ the idea of luck as a nontheistic religion. After this point made on
 sentience being non-automatic, there is still the matter of "correction" 
 to argue for the artificial axiom not being capable of auto-correction. 
 The artificial axiom originates from self-interest. There is nothing 
-innately wrong with self-interest. Every artificial axiom is susceptible 
+innately wrong with self-interest. But every artificial axiom is susceptible 
 to being ignored on condition. Every artificial axiom, before instances 
 attributed to it, can be split into at least two alternatives: of 
 accepting or rejecting the envisioned practice of the artificial axiom. 
@@ -2872,7 +2872,7 @@ Having a knowledge of the principle allows explanation for the
 forms from that principle; this reasoning suffices for more complex 
 cases of multiple principles definitely responsible for the form. 
 The "principle" explains the structure of what is. One notion, 
-of the category of correspondence theory, is the human being that 
+in the category of correspondence theory, is the human being that 
 is bound to a right principle must not forsake the principle, 
 lest they also forsake their ethical composition, that from the 
 kernel of goodness. This, in turn, leads to the predictability 
@@ -2881,7 +2881,7 @@ principle. This specific human being has an aversion to deliberating
 on the principle, acting in line for the principle, such that the 
 principle is the true metaphorical light at the end of the tunnel, 
 not the gains, promised possibly with an underlying deception, 
-obtained by acting on contradiction to the principle. The preferred 
+obtained by acting in contradiction to the principle. The preferred 
 usage of "artificial axiom", in this text, over that of "principle" 
 is due to the liberalities ascribed to the "artificial axiom", by 
 the written definition and reasoning on and for. To clarify by noting 
@@ -2891,16 +2891,16 @@ trial-and-error, the "principle" has matured from its conception into
 something acceptable on the one hand, also something that cannot be so 
 easily challenged on the other. When the statement, "human beings are 
 principled beings", is supposed to be taken as the truth, there is the 
-expression still. For example, ponder on how economies of great scale 
-in production are, in aspects closer to their source/s than to their 
-products. The factory does not require a human being to contemplate 
+expression still to be made. For example, ponder on how economies of 
+great scale in production are, in aspects closer to their source/s than 
+to their products. The factory does not require a human being to contemplate 
 on matters unrelated to their immediate spatiotemporal surroundings 
 and the factory's regulatory guidelines for their employees. Time is 
 critical, so sacrifices in independent thinking have to be made. 
 This is an artificial axiom for some human beings, and recognized 
 by other human beings as a principle by their interpreting of the 
 statement as something firmly rooted for the correctness of achieving 
-the objective, greater production. How would the human being that 
+the objective, greater production. How would the human being, one that 
 finds it in themself to be a worker for greater production and have 
 obedience that signifies loyalty to their organization, think about 
 themself if they perceived their self as an automatic agent? Surveying 
@@ -2922,10 +2922,10 @@ value their differing self-interest more. Not only that, but the unwilling
 individual has to break free from all of those artificial axioms placed 
 onto them, to "transcend" the system that they may so despise. The 
 individual must manifest a growth in their doubt of the humility typically 
-ascribed to taking part in the shared cause of being one with the masses, 
+ascribed to taking part in the shared cause of being one with the masses 
 and one for the mass cause of production or ideology, and to devalue 
 those causes that made them faceless and ruined their time for lofty thoughts. 
-Uniformity over the personal expression. Recitation instead of independent 
+Uniformity over the personal expression. Recitation instead of original 
 and forthright interpretation. These are some ways in which self-interest 
 clearly works as a force for the striving of the human to be an automatic 
 agent. 
