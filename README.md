@@ -2762,16 +2762,16 @@ reader different in resonance from the ideas expressed using the concept of
 the "artificial axiom", as well as the explanation on this concept by way of 
 definition, of the core and projecting forms. The artificial axiom is a design, 
 of mathematical connotation. The design is fluid, inspired by a creativity, yet 
-operates for virtually the same product. Furthermore, any design is done so 
-for the sake of specific construction. Constructionist thinking is encouraged 
-by the phrase, "artificial axiom". The rule is static to satisfy the political 
-ego, for the business tied to the economics of power instituted through government 
-and enterprise to operate on an axis of stability; this is the objective of the rule. 
-The rule is to bring order to human beings, the "social creatures" that they 
-are. Through the rule effective in and of itself, and also persisting through 
-changes, improvements and reforms to rule can be made. There is the "human factor" 
-in the rule. Invoking the rule brings to mind social interactions such as at 
-least one and their utility of the rule, or at least one to others responsible 
+operates for virtually the same conceptual product. Furthermore, any design is 
+done so for the sake of specific construction. Constructionist thinking is 
+encouraged by the phrase, "artificial axiom". The rule is static to satisfy the 
+political ego, for the business tied to the economics of power instituted through 
+government and enterprise to operate on an axis of stability; this is the objective 
+of the rule. The rule is to bring order to human beings, the "social creatures" 
+that they are. Through the rule effective in and of itself, and also persisting 
+through changes, improvements and reforms to rule can be made. There is the "human 
+factor" in the rule. Invoking the rule brings to mind social interactions such 
+as at least one and their utility of the rule, and at least one to others responsible 
 for upholding the rule. The artificial axiom, with its mathematical connotation, 
 is a tool of rationalism, and although reason fails, there is the attempt for 
 the rationale greatly preferred over the control by rule. Systematization 
@@ -2828,23 +2828,27 @@ any one or any thing, and the idea of a noun as being automatic
 in quality likens the noun to a tool. It is because of wanting 
 control over their self and furthermore, over the understanding of 
 their self-interest, that the human being desires for their will 
-being for their own. "Autonomy" is the term of choice for the human 
-being of independence, and their being made "automatic" in thought 
-and action forfeits an autonomy for other opportunity, at least 
-in the theory, but for the practice, unanticipated coincidence by 
-chance is very much something; some people even claim the idea of 
-luck as a nontheistic religion. After this point made on sentience 
-being non-automatic, there is still the matter of "correction" to 
-argue for the artificial axiom not being capable of auto-correction. 
+being for their own. "Autonomy" is the term expressing the ideal of 
+choice for the human being of independence, and their being made 
+"automatic" in thought and action forfeits an autonomy for other 
+opportunity, at least in the theory, but for the practice, unanticipated 
+coincidence by chance is very much something; some people even claim 
+the idea of luck as a nontheistic religion. After this point made on 
+sentience being non-automatic, there is still the matter of "correction" 
+to argue for the artificial axiom not being capable of auto-correction. 
 The artificial axiom originates from self-interest. There is nothing 
 innately wrong with self-interest. Every artificial axiom is susceptible 
 to being ignored on condition. Every artificial axiom, before instances 
 attributed to it, can be split into at least two alternatives: of 
-accepting or rejecting the envisioned practice artificial axiom. 
+accepting or rejecting the envisioned practice of the artificial axiom. 
 Both of these traits of the artificial axiom give leeway to the notion 
 of "right" and "wrong", and this notion does not require the need to 
 mention morality. The preference for the course of action, from the 
 "right", is supposed to be better than what is from the "wrong". This 
-preference, of course, is on the premise of the lone and immediate 
-knowledge of the context for which the artificial axiom is to be 
-used. 
+preference, of course, is on the premise of knowing the lone and 
+immediate context for which the artificial axiom is to be used. The 
+artificial axiom is not for sentient beings' autocorrection, noted 
+in this next statement. Some desire the consequences, usually for 
+others, when the cause can be wrongly identified. The cause did not 
+have to occur if the cause is one of action. The cause does not have 
+to be the truth of attribute if the cause is one of attribute label. 
