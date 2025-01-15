@@ -2765,29 +2765,34 @@ of mathematical connotation. The design is fluid, inspired by a creativity, yet
 operates in virtually the same way. Furthermore, any design is done so for the 
 sake of specific construction. Constructionist thinking is encouraged by the 
 phrase, "artificial axiom". The rule is static to satisfy the political ego, 
-the business tied to the economics of power instituted through government and 
-enterprise. The rule is to bring order to human beings, the "social creatures" 
-that they are. Through the rule effective in and of itself, and also persisting 
-through changes, improvements and reforms to rule can be made. There is the 
-"human factor" in the rule. Invoking the rule brings to mind a social interaction 
-between at least one and their utility of the rule, or at least one to others 
-responsible for upholding the rule. The artificial axiom, with its mathematical 
-connotation, is a tool of rationalism, and although reason fails, there is 
-the attempt for the rationale. Systematization in understanding any phenomena, 
-or of implementation into system for phenomena is by axiomatic understanding, 
-comprised of axioms. Recall that this text's usage of the term "axiom", 
-redefined for this text's purposes, is to denote the axiom of natural law, 
-not for any arbitrary rule, guideline, consequence for violation, especially 
-by the sentient being, very especially by the sentient being from a cynical 
-perspective on humankind. This is an attribute that is important enough to 
-note again. However, since the title of this text is Self-Interest, and 
-due to the lack of self-containment that is self-interest, detailed in 
-both expression and the internalist mechanisms responsible for forces such 
-as passion and the will, forces that tend to exhibit a magnetization for 
-that which is external to the container, the human body, everything written 
-so far in this text is not focused on the artificial axiom. A focus entirely 
-on the artificial axiom would mean nothing more than a complete and thorough 
-definition of the concept. Instead, this writing sought and continue to seeks 
-the artificial axiom as utility in what branches out of self-interest, oh but 
-if only self-interest were a simple plant seed to grow into a tree, incapable 
-of locomotion, then the writing would be on botany.
+for the business tied to the economics of power instituted through government 
+and enterprise to operate on an axis of stability; this is the objective of the rule. 
+The rule is to bring order to human beings, the "social creatures" that they 
+are. Through the rule effective in and of itself, and also persisting through 
+changes, improvements and reforms to rule can be made. There is the "human factor" 
+in the rule. Invoking the rule brings to mind a social interaction between at 
+least one and their utility of the rule, or at least one to others responsible 
+for upholding the rule. The artificial axiom, with its mathematical connotation, 
+is a tool of rationalism, and although reason fails, there is the attempt for 
+the rationale greatly preferred over the control by rule. Systematization 
+in understanding any phenomena, or of implementation into system for phenomena 
+is by axiomatic understanding, comprised of axioms. Recall that this text's 
+usage of the term "axiom", redefined for this text's purposes, is to denote 
+the axiom of natural law, not for any arbitrary rule, guideline, consequence 
+for violation, especially by the sentient being, very especially by the 
+sentient being from a cynical perspective on humankind. This is an attribute 
+that is important enough to note again. However, since the title of this 
+text is Self-Interest, and due to the lack of self-containment that is 
+self-interest, detailed in both expression and the internalist mechanisms 
+responsible for forces such as passion and the will, forces that tend to 
+exhibit a magnetization for that which is external to the container, the 
+human body, everything written so far in this text is not focused on the 
+artificial axiom. A focus entirely on the artificial axiom would mean 
+nothing more than a complete and thorough definition of the concept. 
+Instead, this writing sought and continue to seeks the artificial axiom 
+as utility in what branches out of self-interest, oh but if only self-interest 
+were a simple plant seed to grow into a tree, incapable of locomotion, 
+then the writing would be on botany. 
+
+## More on philosophies of self-interest #47 
+
