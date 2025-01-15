@@ -2900,7 +2900,7 @@ critical, so sacrifices in independent thinking have to be made.
 This is an artificial axiom for some human beings, and recognized 
 by other human beings as a principle by their interpreting of the 
 statement as something firmly rooted for the correctness of achieving 
-the objective, greater production. How would the human being, one that 
+the objective, greater production. How should the human being, one that 
 finds it in themself to be a worker for greater production and have 
 obedience that signifies loyalty to their organization, think about 
 themself if they perceived their self as an automatic agent? Surveying 
