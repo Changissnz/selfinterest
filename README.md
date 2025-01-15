@@ -2921,9 +2921,9 @@ divergence to be the representative cause. The unwilling individual has to
 value their differing self-interest more. Not only that, but the unwilling 
 individual has to break free from all of those artificial axioms placed 
 onto them, to "transcend" the system that they may so despise. The 
-individual must manifest a growth in their doubt of the humility typically 
-ascribed to taking part in the shared cause of being one with the masses 
-and one for the mass cause of production or ideology, and to devalue 
+unwilling individual must manifest a growth in their doubt of the humility 
+typically ascribed to taking part in the shared cause of being one with the 
+masses and one for the mass cause of production or ideology, and to devalue 
 those causes that made them faceless and ruined their time for lofty thoughts. 
 Uniformity over the personal expression. Recitation instead of original 
 and forthright interpretation. These are some ways in which self-interest 
