@@ -2941,4 +2941,18 @@ human biology. Attempts to not fall prey to this loop of suffering rely
 on the full execution of methodologies, those with the objectives of detachment 
 and a derivation from what-was to what-can-be, in turn establishing new 
 satisfying equilibriums that lessen the effects of volatility from oscillating 
-between needy dichotomies. 
+between needy dichotomies. Resignation, resolution, acceptance of what-is and 
+what-was, for equilibrium. When the force of self-interest is comprehended as 
+something intricately connected to the outward expression, in this sense, there 
+is demand and thus the drive to actualize for accomplishing satisfactory ends 
+for that demand. Self-interest, through expression from the as-is of being, 
+that is, the self, is constantly confronted. These confrontations take forms 
+such as the reflection by the cognitive self of their expression; the self 
+metaphorically hears their own echoes, and every echo caused by them is 
+comprehended by them with chance for their re-evaluations. Another form of 
+confrontation consists of those in social contexts, phrased differently, 
+under the rule of combinatrics of implicit and explicit commandment in spheres 
+of influence. But there are no dynamics of dichotomy required to be a part 
+of the self. An unwavering faith, for instance, from the self is somehow not 
+compromised by their expression, through their self-interest, into the outward 
+context subject to partitioning of favor and multi-labeled feedback. 
