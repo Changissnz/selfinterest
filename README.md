@@ -2880,7 +2880,7 @@ of a human being that belongs to a social order, bound by that
 principle. An aversion to deliberating on the principle, acting 
 in line for the principle, such that the principle is the true 
 metaphorical light at the end of the tunnel, not the gains, promised 
-possibly with an underlying deception, by acting on contradiction 
+possibly with an underlying deception, obtained by acting on contradiction 
 to the principle. The preferred usage of "artificial axiom", in 
 this text, over that of "principle" is due to the liberalities 
 ascribed to the "artificial axiom", by the written definition and 
@@ -2889,10 +2889,10 @@ the "principle" from certain perspectives is something that is
 firmly rooted in its respective field/s; through trial-and-error, 
 the "principle" has matured from its conception into something 
 acceptable on the one hand, also something that cannot be so easily 
-challenged on the other. When "human beings are principled beings" 
-are supposed to be taken as the truth, there is the expression still. 
-For example, ponder on how economies of great scale in production 
-are, in aspects closer to the source than to their products. The 
+challenged on the other. When the statement, "human beings are principled 
+beings", is supposed to be taken as the truth, there is the expression 
+still. For example, ponder on how economies of great scale in production 
+are, in aspects closer to their source/s than to their products. The 
 factory does not require a human being to contemplate on matters 
 unrelated to their immediate spatiotemporal surroundings and the 
 factory's regulatory guidelines for their employees. Time is 
@@ -2900,16 +2900,32 @@ critical, so sacrifices in independent thinking have to be made.
 This is an artificial axiom for some human beings, and recognized 
 by other human beings as a principle by their interpreting of the 
 statement as something firmly rooted for the correctness of achieving 
-the objective of greater production. How would the human being that 
-finds it in themself to be a worker for greater production and an 
+the objective, greater production. How would the human being that 
+finds it in themself to be a worker for greater production and have 
 obedience that signifies loyalty to their organization, think about 
 themself if they perceived their self as an automatic agent? Surveying 
 of opinion would yield answers on this question. To issue a statement 
-as a principle to follow, however, is sure to promote questions on 
-what dehumanization is when there are aspects in competition with 
-each other, namely the human being's willingness to submit their 
-arbitrary potential for the forms that push them towards at least 
-acting, if not also thinking, like an automatic agent, such that 
-their impulses have been detached from their self and re-engineered 
-back into their self for the automatic action, additionally for the 
-automatic thought. 
+as a principle to follow on this question, however, is sure to promote 
+questions on what dehumanization is when there are preferences in 
+competition with each other, namely the human being's willingness to 
+submit their arbitrary potential for the forms that push them towards 
+at least acting, if not also thinking, like an automatic agent, such 
+that their impulses have been detached from their self and re-engineered 
+back into their self for the automatic action, and additionally for 
+the automatic thought, versus the local scale of individual 
+independence. This is a classic example of the question on what 
+the definitive traits for humanity are, when there practices such 
+as these, officially documented ever since the Second Industrial 
+Revolution. The matter of scale cannot really be able the individual 
+in entirety. The individual has to value their differing self-interest 
+more. Not only that, but the individual has to break free from all 
+of these artificial axioms placed onto them, to "transcend" the system 
+that they may feel so despicable of. The individual must manifest 
+a growth in their doubt of the humility typically ascribed to 
+taking part in the shared cause of being one with the masses, 
+and one for the mass cause of production or ideology, to value the 
+cause that make them faceless and ruins their time for lofty thoughts. 
+Uniformity over the personal expression. Recitation instead of 
+independent and forthright interpretation. These are some ways in 
+which self-interest clearly works as a force for the striving 
+of the human to be an automatic agent. 
