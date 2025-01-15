@@ -2913,11 +2913,11 @@ at least acting, if not also thinking, like an automatic agent, such
 that their impulses have been detached from their self and re-engineered 
 back into their self for the automatic action and additionally for 
 the automatic thought, versus the local scale of individual 
-independence. This is a classic example of the question on what 
-the definitive traits for humanity are when there are practices such 
-as these, officially documented ever since the Second Industrial 
+independence. This is a classic example for the question on what 
+the definitive traits for humanity are, when there are practices such 
+as these officially documented ever since the Second Industrial 
 Revolution. The matter of scale cannot fully enable individual 
-divergence as the representative cause. The unwilling individual has to 
+divergence to be the representative cause. The unwilling individual has to 
 value their differing self-interest more. Not only that, but the unwilling 
 individual has to break free from all of those artificial axioms placed 
 onto them, to "transcend" the system that they may so despise. The 
