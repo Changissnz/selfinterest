@@ -2853,4 +2853,5 @@ when the cause can be wrongly identified. The effects from an
 arbitrarily selected artificial axiom is what the some desire. 
 The cause did not have to occur. Or the cause did not have to 
 occur by the means mentioned that would have made the instantiation 
-of the cause be viewed as wrong. This is deception. 
+of the cause be viewed as wrong. Some deceive for the ends, and 
+this cannot be auto-corrected. 
