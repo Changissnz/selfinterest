@@ -2878,7 +2878,7 @@ lest they also forsake their ethical composition, that from the
 kernel of goodness. This, in turn, leads to some predictability 
 of a human being that belongs to a social order, bound by that 
 principle. This specific human being has an aversion to deliberating 
-on the principle, and act in line for the principle, such that the 
+on the principle, and acts in line for the principle, such that the 
 principle is the true metaphorical light at the end of the tunnel, 
 not the gains, promised possibly with an underlying deception, 
 obtained by acting in contradiction to the principle. The preferred 
