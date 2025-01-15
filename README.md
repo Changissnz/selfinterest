@@ -2786,7 +2786,7 @@ text is Self-Interest, and due to the lack of self-containment that is
 self-interest, detailed in both expression and the internalist mechanisms 
 responsible for forces such as passion and the will, forces that tend to 
 exhibit a magnetization for that which is external to the container, the 
-human body, everything written so far in this text is not focused on the 
+human body, everything written so far in this text is not solely on the 
 artificial axiom. A focus entirely on the artificial axiom would mean 
 nothing more than a complete and thorough definition of the concept. 
 Instead, this writing sought and continue to seeks the artificial axiom 
@@ -2914,7 +2914,7 @@ that their impulses have been detached from their self and re-engineered
 back into their self for the automatic action and additionally for 
 the automatic thought, versus the local scale of individual 
 independence. This is a classic example for the question on what 
-the definitive traits for humanity are, when there are practices such 
+the definitive traits of humanity are, when there are practices such 
 as these officially documented ever since the Second Industrial 
 Revolution. The matter of scale cannot fully enable individual 
 divergence to be the representative cause. The unwilling individual has to 
