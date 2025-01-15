@@ -2953,6 +2953,13 @@ comprehended by them with chance for their re-evaluations. Another form of
 confrontation consists of those in social contexts, phrased differently, 
 under the rule of combinatrics of implicit and explicit commandment in spheres 
 of influence. But there are no dynamics of dichotomy required to be a part 
-of the self. An unwavering faith, for instance, from the self is somehow not 
+of the self. An unwavering faith, for instance, of the self is somehow not 
 compromised by their expression, through their self-interest, into the outward 
-context subject to partitioning of favor and multi-labeled feedback. 
+context subject to partitioning of favor and multi-labeled feedback. There is 
+a need to continue life for whatever purpose, according to the self's understanding 
+of their self-interest. The self, through their experiential existence of 
+differences such as the dualities of strength with weakness and satisfaction 
+with suffering, arrives at the conclusion of dichotomies possibly detrimental 
+to them; this conclusion would be dismissed for their intents and purposes if 
+not for their self-interest's acceptance of the validity of the separatist 
+representation of what-is and what-was. 
