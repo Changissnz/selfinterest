@@ -2911,5 +2911,5 @@ each other, namely the human being's willingness to submit their
 arbitrary potential for the forms that push them towards at least 
 acting, if not also thinking, like an automatic agent, such that 
 their impulses have been detached from their self and re-engineered 
-back into their self for the automatic action, going so far as the 
+back into their self for the automatic action, additionally for the 
 automatic thought. 
