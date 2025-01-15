@@ -2877,25 +2877,25 @@ is bound to a right principle must not forsake the principle,
 lest they also forsake their ethical composition, that from the 
 kernel of goodness. This, in turn, leads to the predictability 
 of a human being that belongs to a social order, bound by that 
-principle. An aversion to deliberating on the principle, acting 
-in line for the principle, such that the principle is the true 
-metaphorical light at the end of the tunnel, not the gains, promised 
-possibly with an underlying deception, obtained by acting on contradiction 
-to the principle. The preferred usage of "artificial axiom", in 
-this text, over that of "principle" is due to the liberalities 
-ascribed to the "artificial axiom", by the written definition and 
-reasoning on and for. To clarify by noting a contrasting quality, 
-the "principle" from certain perspectives is something that is 
-firmly rooted in its respective field/s; through trial-and-error, 
-the "principle" has matured from its conception into something 
-acceptable on the one hand, also something that cannot be so easily 
-challenged on the other. When the statement, "human beings are principled 
-beings", is supposed to be taken as the truth, there is the expression 
-still. For example, ponder on how economies of great scale in production 
-are, in aspects closer to their source/s than to their products. The 
-factory does not require a human being to contemplate on matters 
-unrelated to their immediate spatiotemporal surroundings and the 
-factory's regulatory guidelines for their employees. Time is 
+principle. This specific human being has an aversion to deliberating 
+on the principle, acting in line for the principle, such that the 
+principle is the true metaphorical light at the end of the tunnel, 
+not the gains, promised possibly with an underlying deception, 
+obtained by acting on contradiction to the principle. The preferred 
+usage of "artificial axiom", in this text, over that of "principle" 
+is due to the liberalities ascribed to the "artificial axiom", by 
+the written definition and reasoning on and for. To clarify by noting 
+a contrasting quality, the "principle" from certain perspectives is 
+something that is firmly rooted in its respective field/s; through 
+trial-and-error, the "principle" has matured from its conception into 
+something acceptable on the one hand, also something that cannot be so 
+easily challenged on the other. When the statement, "human beings are 
+principled beings", is supposed to be taken as the truth, there is the 
+expression still. For example, ponder on how economies of great scale 
+in production are, in aspects closer to their source/s than to their 
+products. The factory does not require a human being to contemplate 
+on matters unrelated to their immediate spatiotemporal surroundings 
+and the factory's regulatory guidelines for their employees. Time is 
 critical, so sacrifices in independent thinking have to be made. 
 This is an artificial axiom for some human beings, and recognized 
 by other human beings as a principle by their interpreting of the 
@@ -2911,20 +2911,20 @@ competition with each other, namely the human being's willingness to
 submit their arbitrary potential for the forms that push them towards 
 at least acting, if not also thinking, like an automatic agent, such 
 that their impulses have been detached from their self and re-engineered 
-back into their self for the automatic action, and additionally for 
+back into their self for the automatic action and additionally for 
 the automatic thought, versus the local scale of individual 
 independence. This is a classic example of the question on what 
 the definitive traits for humanity are when there are practices such 
 as these, officially documented ever since the Second Industrial 
 Revolution. The matter of scale cannot fully enable individual 
-divergence as the representative cause. The individual has to value 
-their differing self-interest more. Not only that, but the individual 
-has to break free from all of those artificial axioms placed onto them, 
-to "transcend" the system that they may so despise. The individual must 
-manifest a growth in their doubt of the humility typically ascribed to 
-taking part in the shared cause of being one with the masses, and one 
-for the mass cause of production or ideology, and to devalue those causes 
-that make them faceless and ruins their time for lofty thoughts. 
+divergence as the representative cause. The unwilling individual has to 
+value their differing self-interest more. Not only that, but the unwilling 
+individual has to break free from all of those artificial axioms placed 
+onto them, to "transcend" the system that they may so despise. The 
+individual must manifest a growth in their doubt of the humility typically 
+ascribed to taking part in the shared cause of being one with the masses, 
+and one for the mass cause of production or ideology, and to devalue 
+those causes that made them faceless and ruined their time for lofty thoughts. 
 Uniformity over the personal expression. Recitation instead of independent 
 and forthright interpretation. These are some ways in which self-interest 
 clearly works as a force for the striving of the human to be an automatic 
