@@ -2770,7 +2770,7 @@ and enterprise to operate on an axis of stability; this is the objective of the 
 The rule is to bring order to human beings, the "social creatures" that they 
 are. Through the rule effective in and of itself, and also persisting through 
 changes, improvements and reforms to rule can be made. There is the "human factor" 
-in the rule. Invoking the rule brings to mind a social interaction between at 
+in the rule. Invoking the rule brings to mind social interactions such as at 
 least one and their utility of the rule, or at least one to others responsible 
 for upholding the rule. The artificial axiom, with its mathematical connotation, 
 is a tool of rationalism, and although reason fails, there is the attempt for 
@@ -2828,9 +2828,11 @@ any one or any thing, and the idea of a noun as being automatic
 in quality likens the noun to a tool. It is because of wanting 
 control over their self and furthermore, over the understanding of 
 their self-interest, that the human being desires for their will 
-being their own. "Autonomy" is the term of choice for the human 
+being for their own. "Autonomy" is the term of choice for the human 
 being of independence, and their being made "automatic" in thought 
 and action forfeits an autonomy for other opportunity, at least 
 in the theory, but for the practice, coincidence by chance is very 
 much something; some people even claim the idea of luck as a 
-nontheistic religion. 
+nontheistic religion. After this point made on sentience being 
+non-automatic, there is still the matter of "correction" to argue 
+for the artificial axiom not being capable of auto-correction. 
