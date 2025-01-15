@@ -2926,6 +2926,6 @@ typically ascribed to taking part in the shared cause of being one with the
 masses and one for the mass cause of production or ideology, and to devalue 
 those causes that made them faceless and ruined their time for lofty thoughts. 
 Uniformity over the personal expression. Recitation instead of original 
-and forthright interpretation. These are some ways in which self-interest 
+and forthright interpretation. These are a couple ways in which self-interest 
 clearly works as a force for the striving of the human to be an automatic 
 agent. 
