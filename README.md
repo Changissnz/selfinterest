@@ -2827,10 +2827,10 @@ and the innate capability. The will of total does not belong to
 any one or any thing, and the idea of a noun as being automatic 
 in quality likens the noun to a tool. It is because of wanting 
 control over their self and furthermore, over the understanding of 
-their self-interest, that the human being desires for their belief 
-in their will being their own. "Autonomy" is the term of choice for 
-the human being of independence, and their being made "automatic" in 
-thought and action forfeits opportunity for other opportunity, at least 
+their self-interest, that the human being desires for their will 
+being their own. "Autonomy" is the term of choice for the human 
+being of independence, and their being made "automatic" in thought 
+and action forfeits an autonomy for other opportunity, at least 
 in the theory, but for the practice, coincidence by chance is very 
-much something; some people even claim the idea of luck as a nontheistic 
-religion. 
+much something; some people even claim the idea of luck as a 
+nontheistic religion. 
