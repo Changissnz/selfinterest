@@ -2823,7 +2823,7 @@ can these things ever reach the innermost essence of my life, my
 spirit?" The sentient being is better thought of as one of habit, 
 capable of more habits and of removal from habit. The appearance of 
 their efficiency for tasks of pattern and creativity are the habits 
-and the innate capability. The will of total does not belong to 
+with the innate capability. The will of total does not belong to 
 any one or any thing, and the idea of a noun as being automatic 
 in quality likens the noun to a tool. It is because of wanting 
 control over their self and furthermore, over the understanding of 
@@ -2836,3 +2836,15 @@ chance is very much something; some people even claim the idea of
 luck as a nontheistic religion. After this point made on sentience 
 being non-automatic, there is still the matter of "correction" to 
 argue for the artificial axiom not being capable of auto-correction. 
+The artificial axiom originates from self-interest. There is nothing 
+innately wrong with self-interest. Every artificial axiom is susceptible 
+to being ignored on condition. Every artificial axiom, before instances 
+attributed to it, can be split into at least two alternatives: of 
+accepting or rejecting the envisioned practice artificial axiom. 
+Both of these traits of the artificial axiom give leeway to the notion 
+of "right" and "wrong", and this notion does not require the need to 
+mention morality. The preference for the course of action, from the 
+"right", is supposed to be better than what is from the "wrong". This 
+preference, of course, is on the premise of the lone and immediate 
+knowledge of the context for which the artificial axiom is to be 
+used. 
