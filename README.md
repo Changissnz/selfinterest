@@ -2957,9 +2957,28 @@ of the self. An unwavering faith, for instance, of the self is somehow not
 compromised by their expression, through their self-interest, into the outward 
 context subject to partitioning of favor and multi-labeled feedback. There is 
 a need to continue life for whatever purpose, according to the self's understanding 
-of their self-interest. The self, through their experiential existence of 
+of their self-interest. The self, through their experiential existence in 
 differences such as the dualities of strength with weakness and satisfaction 
 with suffering, arrives at the conclusion of dichotomies possibly detrimental 
 to them; this conclusion would be dismissed for their intents and purposes if 
-not for their self-interest's acceptance of the validity of the separatist 
-representation of what-is and what-was. 
+not for their self-interest's acceptance of the validity behind separatist 
+representations of what-is and what-was. The phenomena that involves the interaction 
+between the internalist mechanisms of the self and their external implies that 
+self-interest is not a self-contained force, even when the self has a natural-like 
+repulsion to their outward expression. Some particular categories of sentient 
+practices, due to self-interest, exemplify economical mindfulness. During the 
+time of colonial India, for example, there are anecdotes that stated the British 
+were cold, distanced, and humorless to likewise unfunny Indians (however, 
+the author of this writing recalls these anecdotes from memory and cannot 
+find the specific source to cite, as of the time of this writing). The 
+archetype of the British as being witty and entertaining was not found in these 
+anecdotes, and this archetype is from that of their media. The British 
+in colonial India were not professional entertainers. Their roles were 
+predominantly soldier, diplomat, and businessman. Every single one of 
+these roles requires appropriate acts in behavior, fitting for the context. 
+Out of the many accomplishments from India, humor and comedy are not at 
+the top of their list. This statement is one of perspective. The Britons 
+had to "mirror" Indians of colonial India, to certain extents. Colonial 
+Indian and Britons provide one example of economical human beings. Instead 
+of expressing from the basis of their national origin, synergy for 
+equilibriums connected to cooperation was done out for the self-interests. 
