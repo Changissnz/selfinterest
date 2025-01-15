@@ -2842,8 +2842,8 @@ to being ignored on condition. Every artificial axiom, before instances
 attributed to it, can be split into at least two alternatives: of 
 accepting or rejecting the envisioned practice of the artificial axiom. 
 Both of these traits of the artificial axiom give leeway to the notion 
-of "right" and "wrong", and this notion does not require the need to 
-mention morality. The preference for the course of action, from the 
+of "right" and "wrong", and this notion does not require the need of 
+mentioning morality. The preference for the course of action, from the 
 "right", is supposed to be better than what is from the "wrong". This 
 preference, of course, is on the premise of knowing the lone and 
 immediate context for which the artificial axiom is to be used. The 
@@ -2856,3 +2856,5 @@ occur by the means mentioned that would have made the instantiation
 of the cause be viewed as wrong. Some deceive for the ends, and 
 remain specifically principled nevertheless, and this cannot be 
 autocorrected. 
+
+## More on philosophies of self-interest #48 
