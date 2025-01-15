@@ -2760,13 +2760,13 @@ the rule as a legal tenet for a political system, the ruling of a political
 system, and the rule to promote social bonds would send messages to the 
 reader different in resonance from the ideas expressed using the concept of 
 the "artificial axiom", as well as the explanation on this concept by way of 
-definition, of the core and projecting forms. The artificial axiom is a design, 
+definition of the core and projecting forms. The artificial axiom is a design, 
 of mathematical connotation. The design is fluid, inspired by a creativity, yet 
 operates for virtually the same conceptual product. Furthermore, any design is 
 done so for the sake of specific construction. Constructionist thinking is 
 encouraged by the phrase, "artificial axiom". The rule is static to satisfy the 
 political ego, for the business tied to the economics of power instituted through 
-government and enterprise to operate on an axis of stability; this is the objective 
+governmental and enterprising operation on an axis of stability; this is the objective 
 of the rule. The rule is to bring order to human beings, the "social creatures" 
 that they are. Through the rule effective in and of itself, and also persisting 
 through changes, improvements and reforms to rule can be made. There is the "human 
@@ -2818,7 +2818,7 @@ intelligence. The human being loves one another, according to what
 many say; the argument that the human being is fundamentally good is 
 a frequent argument. Artificial intelligence, on the other hand, operates 
 by electricity, the inanimate material, and the computer code. Quantities, 
-materials. The steadfast humanist of orthodoxy is sure to ask: "How 
+materials. The steadfast humanist of orthodoxy is sure to ask: "how 
 can these things ever reach the innermost essence of my life, my 
 spirit?" The sentient being is better thought of as one of habit, 
 capable of more habits and of removal from habit. The appearance of 
@@ -2884,7 +2884,7 @@ not the gains, promised possibly with an underlying deception,
 obtained by acting in contradiction to the principle. The preferred 
 usage of "artificial axiom", in this text, over that of "principle" 
 is due to the liberalities ascribed to the "artificial axiom", by 
-the written definition and reasoning on and for. To clarify by noting 
+the written definition and reasoning on and with it. To clarify by noting 
 a contrasting quality, the "principle" from certain perspectives is 
 something that is firmly rooted in its respective field/s; through 
 trial-and-error, the "principle" has matured from its conception into 
@@ -2898,7 +2898,7 @@ on matters unrelated to their immediate spatiotemporal surroundings
 and the factory's regulatory guidelines for their employees. Time is 
 critical, so sacrifices in independent thinking have to be made. 
 This is an artificial axiom for some human beings, and recognized 
-by other human beings as a principle by their interpreting of the 
+by other human beings as a principle after their interpreting of the 
 statement as something firmly rooted for the correctness of achieving 
 the objective, greater production. How should the human being, one that 
 finds it in themself to be a worker for greater production and have 
@@ -2929,3 +2929,16 @@ Uniformity over the personal expression. Recitation instead of original
 and forthright interpretation. These are a couple ways in which self-interest 
 clearly works as a force for the striving of the human to be an automatic 
 agent. 
+
+## More on philosophies of self-interest #48 
+
+Self-interest is an operationally incomplete force. The feedback loop of 
+oscillation between satisfaction, through matching achievement, and 
+dissatisfaction, through not matching for an unmet achievement, is a source 
+of great suffering, according to many paradigms of thought, such as those 
+of Eastern religiosity and the Western scientific model of dopamine on 
+human biology. Attempts to not fall prey to this loop of suffering rely 
+on methodologies, for the objectives of detachment and a derivation from 
+what-was to what-can-be, in turn establishing new satisfying equilibriums 
+that lessen the effects of volatility from oscillating between needy 
+dichotomies. 
