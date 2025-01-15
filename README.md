@@ -2775,7 +2775,7 @@ least one and their utility of the rule, or at least one to others responsible
 for upholding the rule. The artificial axiom, with its mathematical connotation, 
 is a tool of rationalism, and although reason fails, there is the attempt for 
 the rationale greatly preferred over the control by rule. Systematization 
-in understanding any phenomena, or of implementation into system for phenomena 
+in comprehending any phenomena, or of implementation into system for phenomena 
 is by axiomatic understanding, comprised of axioms. Recall that this text's 
 usage of the term "axiom", redefined for this text's purposes, is to denote 
 the axiom of natural law, not for any arbitrary rule, guideline, or consequence 
@@ -2831,8 +2831,8 @@ their self-interest, that the human being desires for their will
 being for their own. "Autonomy" is the term of choice for the human 
 being of independence, and their being made "automatic" in thought 
 and action forfeits an autonomy for other opportunity, at least 
-in the theory, but for the practice, coincidence by chance is very 
-much something; some people even claim the idea of luck as a 
-nontheistic religion. After this point made on sentience being 
-non-automatic, there is still the matter of "correction" to argue 
-for the artificial axiom not being capable of auto-correction. 
+in the theory, but for the practice, unanticipated coincidence by 
+chance is very much something; some people even claim the idea of 
+luck as a nontheistic religion. After this point made on sentience 
+being non-automatic, there is still the matter of "correction" to 
+argue for the artificial axiom not being capable of auto-correction. 
