@@ -2938,7 +2938,7 @@ dissatisfaction, through not matching for an unmet achievement, is a source
 of great suffering, according to many paradigms of thought, such as those 
 of Eastern religiosity and the Western scientific model of dopamine on 
 human biology. Attempts to not fall prey to this loop of suffering rely 
-on methodologies, for the objectives of detachment and a derivation from 
-what-was to what-can-be, in turn establishing new satisfying equilibriums 
-that lessen the effects of volatility from oscillating between needy 
-dichotomies. 
+on the full execution of methodologies, those with the objectives of detachment 
+and a derivation from what-was to what-can-be, in turn establishing new 
+satisfying equilibriums that lessen the effects of volatility from oscillating 
+between needy dichotomies. 
