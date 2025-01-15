@@ -2807,17 +2807,17 @@ appear automated, but they are not, proven by the occurrences of
 their contemplation and change-of-heart. The two points used as 
 proof of the sentient being not being automated constitute a stance 
 strong in the bias for humanity. Artificial intelligence can "contemplate", 
-that is, re-learn differing ideas and tenets to reach different 
+that is, re-learn for differing ideas and tenets to reach different 
 conclusions based on the same material data. Artificial intelligence 
 can also have a "change-of-heart" through updates that change the 
 constitutional making of the program or hardware swaps. This is 
-insulting to the uniqueness of the human being, of course. Their 
-contemplation spurred by callings from their moral compass should 
-not be equivalent to re-learning done by artificial intelligence. 
-The human being loves one another, according to what many say; the 
-argument that the human being is fundamentally good is a frequent 
-argument. Artificial intelligence, on the other hand, operates by 
-electricity, the inanimate material, and the computer code. Quantities, 
+insulting to the uncapturable essence (their will) of the human being, 
+of course. Their contemplation spurred by callings from their moral 
+compass should not be equivalent to re-learning done by artificial 
+intelligence. The human being loves one another, according to what 
+many say; the argument that the human being is fundamentally good is 
+a frequent argument. Artificial intelligence, on the other hand, operates 
+by electricity, the inanimate material, and the computer code. Quantities, 
 materials. The steadfast humanist of orthodoxy is sure to ask: "How 
 can these things ever reach the innermost essence of my life, my 
 spirit?" The sentient being is better thought of as one of habit, 
