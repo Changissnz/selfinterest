@@ -2828,7 +2828,7 @@ any one or any thing, and the idea of a noun as being automatic
 in quality likens the noun to a tool. It is because of wanting 
 control over their self and furthermore, over the understanding of 
 their self-interest, that the human being desires for their will 
-being for their own. "Autonomy" is the term expressing the ideal of 
+being for their own. "Autonomy" is the term denoting the ideal of 
 choice for the human being of independence, and their being made 
 "automatic" in thought and action forfeits an autonomy for other 
 opportunity, at least in the theory, but for the practice, unanticipated 
@@ -2855,6 +2855,61 @@ The cause did not have to occur. Or the cause did not have to
 occur by the means mentioned that would have made the instantiation 
 of the cause be viewed as wrong. Some deceive for the ends, and 
 remain specifically principled nevertheless, and this cannot be 
-autocorrected. 
-
-## More on philosophies of self-interest #48 
+autocorrected. The statement, "human beings are principled beings", 
+maximalizes the idea of the innate goodness of human beings into 
+their outward activities: the human being's outward expression, 
+from a kernel of goodness, can be and should be according to 
+principles in alignment with that goodness. The principle, 
+contemplated on when it is appropriate to act on it, without 
+question, is a principle forsaken by a human being, out of an 
+interaction between their self-interest, not of the uni-directionality 
+to not question out of a recognized uncertainty, and their will. 
+And the term "principle" is found across fields ranging from 
+mathematics to ethics. The "principle" is a part of the kernel 
+that is the innermost essence of operation into forms, varying 
+in appearance but having a shared commonality by the "principle". 
+Having a knowledge of the principle allows explanation for the 
+forms from that principle; this reasoning suffices for more complex 
+cases of multiple principles definitely responsible for the form. 
+The "principle" explains the structure of what is. One notion, 
+of the category of correspondence theory, is the human being that 
+is bound to a right principle must not forsake the principle, 
+lest they also forsake their ethical composition, that from the 
+kernel of goodness. This, in turn, leads to the predictability 
+of a human being that belongs to a social order, bound by that 
+principle. An aversion to deliberating on the principle, acting 
+in line for the principle, such that the principle is the true 
+metaphorical light at the end of the tunnel, not the gains, promised 
+possibly with an underlying deception, by acting on contradiction 
+to the principle. The preferred usage of "artificial axiom", in 
+this text, over that of "principle" is due to the liberalities 
+ascribed to the "artificial axiom", by the written definition and 
+reasoning on and for. To clarify by noting a contrasting quality, 
+the "principle" from certain perspectives is something that is 
+firmly rooted in its respective field/s; through trial-and-error, 
+the "principle" has matured from its conception into something 
+acceptable on the one hand, also something that cannot be so easily 
+challenged on the other. When "human beings are principled beings" 
+are supposed to be taken as the truth, there is the expression still. 
+For example, ponder on how economies of great scale in production 
+are, in aspects closer to the source than to their products. The 
+factory does not require a human being to contemplate on matters 
+unrelated to their immediate spatiotemporal surroundings and the 
+factory's regulatory guidelines for their employees. Time is 
+critical, so sacrifices in independent thinking have to be made. 
+This is an artificial axiom for some human beings, and recognized 
+by other human beings as a principle by their interpreting of the 
+statement as something firmly rooted for the correctness of achieving 
+the objective of greater production. How would the human being that 
+finds it in themself to be a worker for greater production and an 
+obedience that signifies loyalty to their organization, think about 
+themself if they perceived their self as an automatic agent? Surveying 
+of opinion would yield answers on this question. To issue a statement 
+as a principle to follow, however, is sure to promote questions on 
+what dehumanization is when there are aspects in competition with 
+each other, namely the human being's willingness to submit their 
+arbitrary potential for the forms that push them towards at least 
+acting, if not also thinking, like an automatic agent, such that 
+their impulses have been detached from their self and re-engineered 
+back into their self for the automatic action, going so far as the 
+automatic thought. 
