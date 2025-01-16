@@ -2223,7 +2223,7 @@ there is a fundamental difference, possibly concerning that of the physical
 immeasurable, between these two human beings to have motivations for 
 different wants? If so, the self's honest conceptualization of their 
 identity of wants and self-image can be traced back to motivation as a 
-source. Sexuality, for instance, is believed by many to be due to 
+source. Sexual orientation, for instance, is believed by many to be due to 
 genetic (innate) factors, the motivation (by the model's definition of its 
 hierarchy) instead of the self-interest responsible for expression and 
 suppression of sexuality. Shifting focus, the artificial axiom is important 
