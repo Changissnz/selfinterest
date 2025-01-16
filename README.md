@@ -2995,7 +2995,7 @@ of individuation from having to stand in line, there are also systems of
 alliances at work. Married men are inarguably somewhat subject to their significant 
 other. Men from different backgrounds use the commonality of a shared attraction 
 to specific women, as points of contention for feudal grounds. The self and 
-their self-interest restrain and temper lust, what is not necessarily 
+their self-interest restrain and temper lust, what is not thoroughly 
 irrational cognition in and of itself, but because of their surroundings 
 such that they must act according to their role in the economy, so that 
 their self-interest believes that they themself at least is an economical 
