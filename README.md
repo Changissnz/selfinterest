@@ -2987,17 +2987,36 @@ context that Britons of colonial India were in. Obviously, they were in
 another region of the world, predominated in numbers by natives there, and 
 for them to act as if they were back in Britain would make them out of 
 touch with their surroundings. Promiscuity offers another example of 
-economical mindfulness. Promiscuous women are appealing to only particular 
-types of men. And some of these men do have attraction for them, but due 
-to having to stand in the metaphorical line in order to "get some", these 
-men instead refuse and reassert their rejection. Besides from the minimizing 
-of individuation from having to stand in line, there are also systems of 
-alliances at work. Married men are inarguably somewhat subject to their significant 
-other. Men from different backgrounds use the commonality of a shared attraction 
-to specific women as points of contention for feudal grounds. The self and 
-their self-interest restrain and temper lust, what is not thoroughly 
-irrational cognition in and of itself, but because of their surroundings 
-such that they must act according to their role in the economy, so that 
-their self-interest believes that they themself at least is an economical 
-being, something that can be considered moral by appeal to pragmatics, not 
-necessarily the purity of thought for action. 
+economical mindfulness. Promiscuous women are appealing enough for 
+"chasing" to only particular types of men. And some of the other men do 
+have attraction for them, but due to having to stand in the metaphorical line 
+in order to "get some", these men instead refuse and reassert their rejection. 
+Besides from the minimizing of individuation from having to stand in line, 
+there are also systems of alliances at work. Married men are inarguably somewhat 
+subject to their significant other. Men from different backgrounds use the 
+commonality of a shared attraction to specific women as points of contention 
+for feudal grounds. The self and their self-interest restrain and temper lust, 
+what is not thoroughly irrational cognition in and of itself, but because of 
+their surroundings such that they must act according to their role in the 
+economy, so that their self-interest believes that they themself at least 
+is an economical being, something that can be considered moral by appeal to 
+pragmatics, not necessarily the purity of thought for action. Moving on to 
+contexts greater in the number of human beings, each with their self-interest, 
+the locational design of an arbitrary supply chain has the probability of being 
+prone to the dreaded "sprawl" of distance from one corner of the globe to another. 
+The production, protected in one region and in another either incapable of or 
+prohibited in, becomes concentrated in one corner. Transportion from one 
+corner to another, possibly for continual construction of the incomplete 
+product, to a final destination is a spatial logistics issue, through to this 
+day due to the need for maximalizing on efficiency by way of what-is. Some 
+nations then become prosperous, as individual human beings, and service-oriented 
+in their collective economy. And despite the weaknesses of the "sprawl", a 
+move that in the physical context favors denial, specifically to those not a 
+part of the variably-shaped and elongated connected body of sprawl, instead 
+of a concentrated source that is metaphorically more exclusive to those outside 
+of the concentrated center, the "sprawl" enables capabilities agnostic to the 
+spatial context to thrive because of the linked benefits from the operational 
+supply chain. And in many cases, the concentrated source, a statist nation by 
+similar comparison, despite its executive efficiency, is able to gain any more 
+than it loses when it attempts to enter competition by breaking into the other's 
+"sprawl". 
