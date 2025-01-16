@@ -3003,9 +3003,9 @@ is an economical being, something that can be considered moral by appeal to
 pragmatics, not necessarily the purity of thought for action. Moving on to 
 contexts greater in the number of human beings, each with their self-interest, 
 the locational design of an arbitrary supply chain has the probability of being 
-prone to the dreaded "sprawl" of distance from one corner of the globe to another. 
-The production, protected in one region and in another either incapable of or 
-prohibited from, becomes concentrated in one corner. Transportion from one 
+prone, due to the dreaded "sprawl" of distance from one corner of the globe to 
+another. The production, protected in one region and in another either incapable 
+of or prohibited from, becomes concentrated in one corner. Transportion from one 
 corner to another, possibly for continual construction of the incomplete 
 product, to a final destination is a spatial logistics issue, through to this 
 day due to the need for maximalizing on efficiency by way of what-is. Some 
@@ -3013,18 +3013,18 @@ nations then become prosperous, as individual human beings, and service-oriented
 in their collective economy. And despite the weaknesses of the "sprawl", a 
 move that in the physical context favors denial, specifically to those not a 
 part of the variably-shaped and elongated connected body of sprawl, instead 
-of a concentrated power that is metaphorically more exclusive to those outside 
-of the centrality, the "sprawl" enables capabilities agnostic to the 
-spatial context to thrive because of the linked benefits from the operational 
-supply chain. And in many cases, the concentrated source, a statist nation by 
-similar comparison, despite its executive efficiency, is not able to gain any more 
-than it loses when it attempts to enter competition by breaking into the other's 
-"sprawl". Here is a pseudo-profound saying on this: what is strong exclusively 
-at the center cannot be strong outside of the center. Self-interest, a force from 
-the self, has objectives that may extend from those relatively smaller demands 
-that persist life in the host. There are objectives born from what can be phrased 
-as needs for the extraordinary, recognition of the greater path, et cetera. The 
-recognition by self-interest of one objective being more valuable than another 
-displaces an equilibrium that was for the other objective, but now, the self 
-must somehow satisfy their self-interest by envisioning another equilibrium, 
-or at least a step towards some arbitrary equilibrium, for the renewed objective. 
+of a concentrated power that is more exclusive to those outside of the centrality, 
+the "sprawl" enables capabilities agnostic to the spatial context to thrive because 
+of the linked benefits from the operational supply chain. And in many cases, the 
+concentrated source, a statist nation by similar comparison, despite its executive 
+efficiency, is not able to gain any more than it loses when it attempts to enter 
+competition by breaking into the other's "sprawl". Here is a pseudo-profound saying 
+on this: what is strong exclusively at the center cannot be strong outside of the 
+center. Self-interest, a force from the self, has objectives that may extend from 
+those relatively smaller demands that persist life in the host. There are objectives 
+born from what can be phrased as needs for the extraordinary, recognition of the 
+greater path, et cetera. The recognition by self-interest of one objective being 
+more valuable than another displaces an equilibrium that was for the other objective, 
+but now, the self must somehow satisfy their self-interest by envisioning another 
+equilibrium, or at least a step towards some arbitrary equilibrium, for the renewed 
+objective. 
