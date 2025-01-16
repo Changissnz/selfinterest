@@ -2990,9 +2990,9 @@ touch with their surroundings. Promiscuity offers another example of
 economical mindfulness. Promiscuous women are appealing to only particular 
 types of men. And some of these men do have attraction for them, but due 
 to having to stand in the metaphorical line in order to "get some", these 
-men instead refuse and reassert their rejection. Besides from the lack of 
-individuation from having to stand in line, there is also systems of alliances 
-at work. Married men are inarguably somewhat subject to their significant 
+men instead refuse and reassert their rejection. Besides from the minimizing 
+of individuation from having to stand in line, there are also systems of 
+alliances at work. Married men are inarguably somewhat subject to their significant 
 other. Men from different backgrounds use the commonality of a shared attraction 
 to specific women, as points of contention for feudal grounds. The self and 
 their self-interest restrain and temper lust, what is not necessarily 
