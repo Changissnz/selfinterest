@@ -3005,7 +3005,7 @@ contexts greater in the number of human beings, each with their self-interest,
 the locational design of an arbitrary supply chain has the probability of being 
 prone to the dreaded "sprawl" of distance from one corner of the globe to another. 
 The production, protected in one region and in another either incapable of or 
-prohibited in, becomes concentrated in one corner. Transportion from one 
+prohibited from, becomes concentrated in one corner. Transportion from one 
 corner to another, possibly for continual construction of the incomplete 
 product, to a final destination is a spatial logistics issue, through to this 
 day due to the need for maximalizing on efficiency by way of what-is. Some 
@@ -3022,7 +3022,7 @@ than it loses when it attempts to enter competition by breaking into the other's
 "sprawl". Here is a pseudo-profound saying on this: what is strong exclusively 
 at the center cannot be strong outside of the center. Self-interest, a force from 
 the self, has objectives that may extend from those relatively smaller demands 
-to persist life in the host. There are objectives born from what can be phrased 
+that persist life in the host. There are objectives born from what can be phrased 
 as needs for the extraordinary, recognition of the greater path, et cetera. The 
 recognition by self-interest of one objective being more valuable than another 
 displaces an equilibrium that was for the other objective, but now, the self 
