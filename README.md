@@ -2951,7 +2951,7 @@ such as the reflection by the cognitive self of their expression; the self
 metaphorically hears their own echoes, and every echo caused by them is 
 comprehended by them with chance for their re-evaluations. Another form of 
 confrontation consists of those in social contexts, phrased differently, 
-under the rule of combinatrics of implicit and explicit commandment in spheres 
+under the rule of the combinatrics of implicit and explicit commandment in spheres 
 of influence. But there are no dynamics of dichotomy required to be a part 
 of the self. An unwavering faith, for instance, of the self is somehow not 
 compromised by their expression, through their self-interest, into the outward 
@@ -2959,26 +2959,31 @@ context subject to partitioning of favor and multi-labeled feedback. There is
 a need to continue life for whatever purpose, according to the self's understanding 
 of their self-interest. The self, through their experiential existence in 
 differences such as the dualities of strength with weakness and satisfaction 
-with suffering, arrives at the conclusion of dichotomies possibly detrimental 
-to them; this conclusion would be dismissed for their intents and purposes if 
-not for their self-interest's acceptance of the validity behind separatist 
-representations of what-is and what-was. The phenomena that involves the interaction 
-between the internalist mechanisms of the self and their external implies that 
-self-interest is not a self-contained force, even when the self has a natural-like 
-repulsion to their outward expression. Some particular categories of sentient 
-practices, due to self-interest, exemplify economical mindfulness. During the 
-time of colonial India, for example, there are anecdotes that stated the British 
-were cold, distanced, and humorless to likewise unfunny Indians (however, 
-the author of this writing recalls these anecdotes from memory and cannot 
-find the specific source to cite, as of the time of this writing). The 
+with suffering, arrives at the conclusion that there are dichotomies possibly 
+detrimental to them; this conclusion would be dismissed for their intents and 
+purposes if not for their self-interest's acceptance of the validity behind 
+separatist representations of what-is and what-was. The phenomena that involves 
+the interaction between the internalist mechanisms of the self and their external 
+implies that self-interest is not a self-contained force, even when the self has 
+a natural-like repulsion to their outward expression. Some particular categories 
+of sentient practices, due to self-interest, exemplify economical mindfulness. 
+During the time of colonial India, for example, there are anecdotes that stated 
+the British were cold, distanced, and humorless to likewise unfunny Indians 
+(however, the author of this writing recalls these anecdotes from memory and 
+cannot find the specific source to cite, as of the time of this writing). The 
 archetype of the British as being witty and entertaining was not found in these 
 anecdotes, and this archetype is from that of their media. The British 
 in colonial India were not professional entertainers. Their roles were 
 predominantly soldier, diplomat, and businessman. Every single one of 
-these roles requires appropriate acts in behavior, fitting for the context. 
+these roles require appropriate acts in behavior, fitting for the context. 
 Out of the many accomplishments from India, humor and comedy are not at 
 the top of their list. This statement is one of perspective. The Britons 
 had to "mirror" Indians of colonial India, to certain extents. Britons 
 in Colonial India provide one example of economical human beings. Instead 
 of expressing from the basis of their national origin, synergy for 
-equilibriums connected to cooperation was done out for the self-interests. 
+equilibriums connected to cooperation was done for the self-interests. 
+This analysis is not without the fault of surreptitiously downplaying the 
+context that Britons of colonial India were in. Obviously, they were in 
+another region of the world, predominated in numbers by natives there, and 
+for them to act as if they were back in Britain would make them out of 
+touch with their surroundings. 
