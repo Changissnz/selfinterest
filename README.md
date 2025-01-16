@@ -2986,4 +2986,18 @@ This analysis is not without the fault of surreptitiously downplaying the
 context that Britons of colonial India were in. Obviously, they were in 
 another region of the world, predominated in numbers by natives there, and 
 for them to act as if they were back in Britain would make them out of 
-touch with their surroundings. 
+touch with their surroundings. Promiscuity offers another example of 
+economical mindfulness. Promiscuous women are appealing to only particular 
+types of men. And some of these men do have attraction for them, but due 
+to having to stand in the metaphorical line in order to "get some", these 
+men instead refuse and reassert their rejection. Besides from the lack of 
+individuation from having to stand in line, there is also systems of alliances 
+at work. Married men are inarguably somewhat subject to their significant 
+other. Men from different backgrounds use the commonality of a shared attraction 
+to specific women, as points of contention for feudal grounds. The self and 
+their self-interest restrain and temper lust, what is not necessarily 
+irrational cognition in and of itself, but because of their surroundings 
+such that they must act according to their role in the economy, so that 
+their self-interest believes that they themself at least is an economical 
+being, something that can be considered moral out of the pragmatics, not 
+necessarily in the purity of thought and action. 
