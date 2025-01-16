@@ -2979,11 +2979,11 @@ these roles require appropriate acts in behavior, fitting for the context.
 Out of the many accomplishments from India, humor and comedy are not at 
 the top of their list. This statement is one of perspective. The Britons 
 had to "mirror" Indians of colonial India, to certain extents. Britons 
-in Colonial India provide one example of economical human beings. Instead 
+in Colonial India are one example of economical human beings. Instead 
 of expressing from the basis of their national origin, synergy for 
 equilibriums connected to cooperation was done for the self-interests. 
 This analysis is not without the fault of surreptitiously downplaying the 
-context that Britons of colonial India were in. Obviously, they were in 
+context that Britons of Colonial India were in. Obviously, they were in 
 another region of the world, predominated in numbers by natives there, and 
 for them to act as if they were back in Britain would make them out of 
 touch with their surroundings. Promiscuity offers another example of 
