@@ -3017,6 +3017,6 @@ of a concentrated source that is metaphorically more exclusive to those outside
 of the concentrated center, the "sprawl" enables capabilities agnostic to the 
 spatial context to thrive because of the linked benefits from the operational 
 supply chain. And in many cases, the concentrated source, a statist nation by 
-similar comparison, despite its executive efficiency, is able to gain any more 
+similar comparison, despite its executive efficiency, is not able to gain any more 
 than it loses when it attempts to enter competition by breaking into the other's 
 "sprawl". 
