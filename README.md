@@ -2978,7 +2978,7 @@ predominantly soldier, diplomat, and businessman. Every single one of
 these roles require appropriate acts in behavior, fitting for the context. 
 Out of the many accomplishments from India, humor and comedy are not at 
 the top of their list. This statement is one of perspective. The Britons 
-had to "mirror" Indians of colonial India, to certain extents. Britons 
+had to "mirror" Indians of Colonial India, to certain extents. Britons 
 in Colonial India are one example of economical human beings. Instead 
 of expressing from the basis of their national origin, synergy for 
 equilibriums connected to cooperation was done for the self-interests. 
