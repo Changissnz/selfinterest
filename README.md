@@ -2967,13 +2967,13 @@ the interaction between the internalist mechanisms of the self and their externa
 implies that self-interest is not a self-contained force, even when the self has 
 a natural-like repulsion to their outward expression. Some particular categories 
 of sentient practices, due to self-interest, exemplify economical mindfulness. 
-During the time of colonial India, for example, there are anecdotes that stated 
+During the time of Colonial India, for example, there are anecdotes that stated 
 the British were cold, distanced, and humorless to likewise unfunny Indians 
 (however, the author of this writing recalls these anecdotes from memory and 
 cannot find the specific source to cite, as of the time of this writing). The 
 archetype of the British as being witty and entertaining was not found in these 
 anecdotes, and this archetype is from that of their media. The British 
-in colonial India were not professional entertainers. Their roles were 
+in Colonial India were not professional entertainers. Their roles were 
 predominantly soldier, diplomat, and businessman. Every single one of 
 these roles require appropriate acts in behavior, fitting for the context. 
 Out of the many accomplishments from India, humor and comedy are not at 
