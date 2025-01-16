@@ -3015,7 +3015,7 @@ move that in the physical context favors denial, specifically to those not a
 part of the variably-shaped and elongated connected body of sprawl, instead 
 of a concentrated power that is more exclusive to those outside of the centrality, 
 the "sprawl" enables capabilities agnostic to the spatial context to thrive because 
-of the linked benefits from the operational supply chain. And in many cases, the 
+of the linked benefits from the operating supply chain. And in many cases, the 
 concentrated source, a statist nation by similar comparison, despite its executive 
 efficiency, is not able to gain any more than it loses when it attempts to enter 
 competition by breaking into the other's "sprawl". Here is a pseudo-profound saying 
