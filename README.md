@@ -3026,5 +3026,5 @@ born from what can be phrased as needs for the extraordinary, recognition of the
 greater path, et cetera. The recognition by self-interest of one objective being 
 more valuable than another displaces an equilibrium that was for the other objective, 
 but now, the self must somehow satisfy their self-interest by envisioning another 
-equilibrium, or at least a step towards some arbitrary equilibrium, for the renewed 
+equilibrium, or alternatively a step towards some arbitrary equilibrium, for the renewed 
 objective. 
