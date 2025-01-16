@@ -3019,4 +3019,12 @@ spatial context to thrive because of the linked benefits from the operational
 supply chain. And in many cases, the concentrated source, a statist nation by 
 similar comparison, despite its executive efficiency, is not able to gain any more 
 than it loses when it attempts to enter competition by breaking into the other's 
-"sprawl". 
+"sprawl". Here is a pseudo-profound saying on this: what is strong exclusively 
+at the center cannot be strong outside of the center. Self-interest, a force from 
+the self, has objectives that may extend from those relatively smaller demands 
+to persist life in the host. There are objectives born from what can be phrased 
+as needs for the extraordinary, recognition of the greater path, et cetera. The 
+recognition by self-interest of one objective being more valuable than another 
+displaces an equilibrium that was for the other objective, but now, the self 
+must somehow satisfy their self-interest by envisioning another equilibrium, 
+or at least a step towards some arbitrary equilibrium, for the renewed objective. 
