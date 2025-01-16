@@ -3013,8 +3013,8 @@ nations then become prosperous, as individual human beings, and service-oriented
 in their collective economy. And despite the weaknesses of the "sprawl", a 
 move that in the physical context favors denial, specifically to those not a 
 part of the variably-shaped and elongated connected body of sprawl, instead 
-of a concentrated source that is metaphorically more exclusive to those outside 
-of the concentrated center, the "sprawl" enables capabilities agnostic to the 
+of a concentrated power that is metaphorically more exclusive to those outside 
+of the centrality, the "sprawl" enables capabilities agnostic to the 
 spatial context to thrive because of the linked benefits from the operational 
 supply chain. And in many cases, the concentrated source, a statist nation by 
 similar comparison, despite its executive efficiency, is not able to gain any more 
