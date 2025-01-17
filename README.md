@@ -3028,3 +3028,28 @@ more valuable than another displaces an equilibrium that was for the other objec
 but now, the self must somehow satisfy their self-interest by envisioning another 
 equilibrium, or alternatively a step towards some arbitrary equilibrium, for the renewed 
 objective. 
+
+## More on philosophies of self-interest #49 
+
+Next is a continuation on the operational incompleteness of self-interest. 
+The best that the self can ever do to satisfy a satisfying equilibrium, 
+and this satisfying equilibrium may be unknown to them before the "right" 
+time, is minimizing the demands of self-interest's attribute of in-itself. 
+A relinquish from the untameable passions. A confidence for the self to 
+exist according to their "purpose of living". The dependency of self-interest 
+on the will on the motivation, complete synchronization, alignment, and 
+integration for something fully realized by the self as whole. This is 
+what the full satisfaction of the in-itself attribute is, with respect to 
+self-interest. Self-interest, something not self-contained, faces difficulty 
+along with its self in unsuitable spatiotemporal environments. The concept 
+of expression is the raw material for the key, unformed until activity by 
+the human being into outward forms perceivable by others. The phrasemes 
+as-is and what-is, denoted by such common words, are fascinating because 
+they are large in the breadth of their communicable meaning. As-is is the 
+understanding through knowledge that is information gathered from perceiving 
+the object, in conjunction with the output from the decision to accept background 
+information, from previous time spans and with details cognitively weighted 
+in relevance for that understanding. The understanding from what-is contains 
+the as-is, due to all information details considered and the conceptualization, 
+that which includes perception and judgment, on the object's "self", will, and 
+motivation. 
