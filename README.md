@@ -3052,4 +3052,17 @@ information, from previous time spans and with details cognitively weighted
 in relevance for that understanding. The understanding from what-is contains 
 the as-is, due to all information details considered and the conceptualization, 
 that which includes perception and judgment, on the object's "self", will, and 
-motivation. 
+motivation; the understanding of what-is can be be exactly what-is. Mutual 
+understanding between two selves is of the as-is, but there can be a certainty 
+in belief that the as-is is, for intents and purposes, the what-is. The what-is 
+of an object has the quality of being a malleable stabilizing factor for the 
+object's understanding by another. This is especially evident when the object 
+is a sentient being. Mutual understanding between two sentient beings, each 
+demanded to express due to the lack of self-containment from their self-interest, 
+is subjected to the malleability from the hierarchical dynamics between 
+the forces of self-interest, the will, and the motivation, thus alters because 
+of these derivational dynamics. Strangers prefer to be understood in the form of 
+the as-is, due to the domineering influence of the direct observation for the 
+understanding. Ideally for them, the direct observation is the as-is. The direct 
+observation entirely corresponds to the observer's perception and judgment of 
+them. 
