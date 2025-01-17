@@ -3085,12 +3085,13 @@ objective as something intentional in that other's belief, in their own
 beliefs that they can effectively comprehend how the individual matters, 
 right down to their innermost essence, their will. The human being's 
 objective most pertinent to another may be non-disclosed. However, the 
-analysis by the other can make inductions on how the human being's 
-actions are intended for their wanted result, the objective most pertinent. 
-In atypical instances however, the objective becomes very peculiar to express, 
-even if there is an acceptance of the human being's motivation, a dependency 
-for their will and self-interest, that is regarded as understanding. One 
-category of cases include lips quivering, due to an upset to the human being 
+analysis by the other can be by constructive inductions, possibly into a 
+final hypothesis that terminates the inductive process, on how the human 
+being's actions are intended for their wanted result, the objective most 
+pertinent. In atypical instances however, the objective becomes very peculiar 
+to express, even if there is an acceptance of the human being's motivation, 
+a dependency for their will and self-interest, that is regarded as understanding. 
+One category of cases include lips quivering, due to an upset to the human being 
 that they cannot contain but should, for their objective explicitly noted 
 by their self-interest. Another is psychotic twitching and jerking, phenomena 
 that affects the physical and the momentary feeling of a human being experiencing 
@@ -3112,4 +3113,3 @@ a fallacy. This is a viewpoint held by some human beings, untrue although the
 viewpoint is an effective artificial axiom for ends out of motive. 
 
 ## More on philosophies of self-interest #50 
-
