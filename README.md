@@ -3056,7 +3056,7 @@ motivation; the understanding of what-is cannot be exactly what-is. Mutual
 understanding between two selves is of the as-is, but there can be a certainty 
 in belief that the as-is is, for their intents and purposes, the what-is. The 
 what-is of an object has the quality of being a malleable stabilizing factor 
-for the object's understanding by another. This is especially evident when the 
+for an other's understanding of the object. This is especially evident when the 
 object is truthfully a sentient being. Mutual understanding between two sentient beings, 
 each demanded to express due to the lack of self-containment from their self-interest, 
 is subjected to the malleability from the hierarchical dynamics between 
@@ -3080,18 +3080,18 @@ neither the process of devising or the product from this process have to be
 expressed. Self-interest cognitively processes a objective, but without the 
 underlying motivation, the objective cannot originate from the self. Due to 
 this simple reason, many have actually focused specifically on another's 
-objectives, comprehending each means taken in the process for each of 
-these objectives as something intentional in that other's belief, in 
-their own beliefs that they can effectively comprehend how the individual 
-matters, right down to their innermost essence, their will. The human 
-being's objective most pertinent to another may be non-disclosed. However, 
-the analysis of by the other can make inductions on how the human being's 
+objectives, comprehending the other's means taken in the process for each 
+objective as something intentional in that other's belief, in their own 
+beliefs that they can effectively comprehend how the individual matters, 
+right down to their innermost essence, their will. The human being's 
+objective most pertinent to another may be non-disclosed. However, the 
+analysis by the other can make inductions on how the human being's 
 actions are intended for their wanted result, the objective most pertinent. 
 In atypical instances however, the objective becomes very peculiar to express, 
 even if there is an acceptance of the human being's motivation, a dependency 
 for their will and self-interest, that is regarded as understanding. One 
 category of cases include lips quivering, due to an upset to the human being 
-that they cannot contain but should, for to their objective explicitly noted 
+that they cannot contain but should, for their objective explicitly noted 
 by their self-interest. Another is psychotic twitching and jerking, phenomena 
 that affects the physical and the momentary feeling of a human being experiencing 
 it, and they may be so accepting of the experience to not recognize their 
