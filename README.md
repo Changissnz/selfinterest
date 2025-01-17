@@ -3087,7 +3087,7 @@ can exist, in the thought of belief or through recognition by perception
 axioms of natural law, then anything thought or perceived can be considered a 
 problem; in matters of utility, the problem gets translated into economical 
 division, and also incorporated into the workings of the economy. The usage 
-of participles for the term "invent" was deliberate to make invention a 
+of participles for the term "invent" was deliberate to display invention as a 
 synonym for cause, and cause can actualize out of a belief in a fallacy. 
 This is a viewpoint held by some human beings, untrue although the viewpoint 
 is an effective artificial axiom for ends out of motive. 
