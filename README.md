@@ -3052,7 +3052,7 @@ information, from previous time spans and with details cognitively weighted
 in relevance for that understanding. The understanding from what-is contains 
 the as-is, due to all information details considered and the conceptualization, 
 that which includes perception and judgment, on the object's "self", will, and 
-motivation; the understanding of what-is can be be exactly what-is. Mutual 
+motivation; the understanding of what-is cannot be exactly what-is. Mutual 
 understanding between two selves is of the as-is, but there can be a certainty 
 in belief that the as-is is, for their intents and purposes, the what-is. The 
 what-is of an object has the quality of being a malleable stabilizing factor 
