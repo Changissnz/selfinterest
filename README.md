@@ -3077,10 +3077,29 @@ expressions specifically done so to be different to one another due to attempts 
 satisfy the whole of what-is, is repetitively circular and non-conclusive. The 
 objective, in contrast, can be devised with any degree of understanding, and 
 neither the process of devising or the product from this process have to be 
-expressed. The human being can invent problems if they do not already tend to 
-their present problems. This phrasing presupposes that problems can be invented. 
-A problem is what comes out of recognizing the understanding of the as-is to be 
-something that is supposed to be counteracted for minimalizing the recognized 
+expressed. Self-interest cognitively processes a objective, but without the 
+underlying motivation, the objective cannot originate from the self. Due to 
+this simple reason, many have actually focused specifically on another's 
+objectives, comprehending each means taken in the process for each of 
+these objectives as something intentional in that other's belief, in 
+their own beliefs that they can effectively comprehend how the individual 
+matters, right down to their innermost essence, their will. The human 
+being's objective most pertinent to another may be non-disclosed. However, 
+the analysis of by the other can make inductions on how the human being's 
+actions are intended for their wanted result, the objective most pertinent. 
+In atypical instances however, the objective becomes very peculiar to express, 
+even if there is an acceptance of the human being's motivation, a dependency 
+for their will and self-interest, that is regarded as understanding. One 
+category of cases include lips quivering, due to an upset to the human being 
+that they cannot contain but should, due to their objective explicitly noted 
+by their self-interest. Another is psychotic twitching and jerking, phenomena 
+that affects the physical and the momentary feeling of a human being experiencing 
+it, and they may be so accepting of the experience to not recognize their 
+movements as symptomatic of their issues connected to their motivation. The 
+human being can invent problems if they do not already tend to their present 
+problems. This phrasing presupposes that problems can be invented. A problem 
+is what comes out of recognizing the understanding of the as-is to be 
+something that is supposed to be counteracted to minimize the recognized 
 errors in the qualities of the as-is, from the understanding. If problems 
 can exist, in the thought of belief or through recognition by perception 
 (a judgment), out of the single requirement of being the cause from instantiating 
@@ -3091,3 +3110,6 @@ of participles for the term "invent" was deliberate to display invention as a
 synonym for cause, and cause can actualize out of a belief in a fallacy. 
 This is a viewpoint held by some human beings, untrue although the viewpoint 
 is an effective artificial axiom for ends out of motive. 
+
+## More on philosophies of self-interest #50 
+
