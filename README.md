@@ -3062,7 +3062,8 @@ each demanded to express due to the lack of self-containment from their self-int
 is subjected to the malleability from the hierarchical dynamics between 
 the forces of self-interest, the will, and the motivation, thus alters because 
 of these derivational dynamics. A stranger intent on remaining a stranger to 
-another prefers to be understood in the form of the as-is, due to the domineering 
-influence of the direct observation for the understanding. Ideally for the stranger, 
-the direct observation is the as-is. The direct observation entirely corresponds 
-to the observer's perception and judgment of them. 
+another prefers to be understood in an exclusive category of the as-is; this 
+category is understanding through direct observation of dominating influence.
+Ideally for the stranger, the direct observation is the as-is. The direct 
+observation entirely corresponds to the observer's perception and judgment of 
+them. 
