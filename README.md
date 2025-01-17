@@ -3002,8 +3002,8 @@ economy, so that their self-interest believes that they themself at least
 is an economical being, something that can be considered moral by appeal to 
 pragmatics, not necessarily the purity of thought for action. Moving on to 
 contexts greater in the number of human beings, each with their self-interest, 
-the locational design of an arbitrary supply chain has the probability of being 
-prone, due to the dreaded "sprawl" of distance from one corner of the globe to 
+an arbitrary supply chain, by the locational design, has the probability of being 
+prone due to the dreaded "sprawl" of distance from one corner of the globe to 
 another. The production, protected in one region and in another either incapable 
 of or prohibited from, becomes concentrated in one corner. Transportion from one 
 corner to another, possibly for continual construction of the incomplete 
