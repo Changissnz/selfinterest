@@ -3102,14 +3102,14 @@ is what comes out of recognizing the understanding of the as-is to be
 something that is supposed to be counteracted to minimize the recognized 
 errors in the qualities of the as-is, from the understanding. If problems 
 can exist, in the thought of belief or through recognition by perception 
-(a judgment), out of the single requirement of being the cause from instantiating 
-axioms of natural law, then anything thought or perceived can be considered a 
-problem; in matters of utility, the problem gets translated into economical 
-division, and also incorporated into the workings of the economy. The usage 
-of participles for the term "invent" was deliberate to display invention as a 
-synonym for cause, and cause can actualize out of a belief in a fallacy. 
-This is a viewpoint held by some human beings, untrue although the viewpoint 
-is an effective artificial axiom for ends out of motive. 
+(a judgment), due to the instantiating of axioms of natural law being the 
+single requirement for the problems to be causes, then anything thought or perceived 
+can be considered a problem; in matters of utility, the problem gets translated 
+into economical division, and also incorporated into the workings of the economy. 
+The usage of participles for the term "invent" was deliberate to display 
+invention as a synonym for cause, and cause can actualize out of a belief in 
+a fallacy. This is a viewpoint held by some human beings, untrue although the 
+viewpoint is an effective artificial axiom for ends out of motive. 
 
 ## More on philosophies of self-interest #50 
 
