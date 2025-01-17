@@ -3094,7 +3094,7 @@ category of cases include lips quivering, due to an upset to the human being
 that they cannot contain but should, for their objective explicitly noted 
 by their self-interest. Another is psychotic twitching and jerking, phenomena 
 that affects the physical and the momentary feeling of a human being experiencing 
-it, and they may be so accepting of the experience to not recognize their 
+it, and they may be so accepting of the experience that they do not recognize their 
 movements as symptomatic of their issues connected to their motivation. The 
 human being can invent problems if they do not already tend to their present 
 problems. This phrasing presupposes that problems can be invented. A problem 
