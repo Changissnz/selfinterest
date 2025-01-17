@@ -3034,7 +3034,7 @@ objective.
 Next is a continuation on the operational incompleteness of self-interest. 
 The best that the self can ever do to satisfy a satisfying equilibrium, 
 and this satisfying equilibrium may be unknown to them before the "right" 
-time, is minimizing the demands of self-interest's attribute of in-itself. 
+time, is minimizing the demands from self-interest's attribute of in-itself. 
 A relinquish from the untameable passions. A confidence for the self to 
 exist according to their "purpose of living". The dependency of self-interest 
 on the will on the motivation, complete synchronization, alignment, and 
@@ -3045,7 +3045,7 @@ along with its self in unsuitable spatiotemporal environments. The concept
 of expression is the raw material for the key, unformed until activity by 
 the human being into outward forms perceivable by others. The phrasemes 
 as-is and what-is, denoted by such common words, are fascinating because 
-they are large in the breadth of their communicable meaning. As-is is the 
+they are large in the breadth of communicable meaning on them. As-is is the 
 understanding through knowledge that is information gathered from perceiving 
 the object, in conjunction with the output from the decision to accept background 
 information, from previous time spans and with details cognitively weighted 
