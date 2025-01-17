@@ -3066,4 +3066,15 @@ another prefers to be understood in an exclusive category of the as-is; this
 category is understanding through direct observation of dominating influence.
 Ideally for the stranger, the direct observation is the as-is. The direct 
 observation entirely corresponds to the observer's perception and judgment of 
-them. 
+them. When the as-is changes into differing form and more differing forms, 
+the observer, without comprehension of the what-is, accepts their understanding 
+of the as-is as the what-is to bolster their confidence of belief in their 
+own understanding. And understanding can include misunderstanding, even 
+though self-interest is not self-contained, when the content of the understanding 
+is not wholly expressed for corrective feedback. Understanding of a matter believed 
+to not be able to be wholly expressed for the what-is, the result being varied 
+expressions specifically done so to be different to one another due to attempts to 
+satisfy the whole of what-is, is repetitively circular and non-conclusive. The 
+objective, in contrast, can be devised with any degree of understanding, and 
+neither the process of devising or the product from this process have to be 
+expressed. 
