@@ -3063,7 +3063,7 @@ is subjected to the malleability from the hierarchical dynamics between
 the forces of self-interest, the will, and the motivation, thus alters because 
 of these derivational dynamics. A stranger intent on remaining a stranger to 
 another prefers to be exclusively understood in a category of the as-is; this 
-category is understanding through direct observation of dominating influence.
+category is understanding through the dominating influence of direct observation.
 Ideally for the stranger, the direct observation is the as-is. The direct 
 observation entirely corresponds to the observer's perception and judgment of 
 them. When the as-is changes into differing form and more differing forms, 
@@ -3077,4 +3077,13 @@ expressions specifically done so to be different to one another due to attempts 
 satisfy the whole of what-is, is repetitively circular and non-conclusive. The 
 objective, in contrast, can be devised with any degree of understanding, and 
 neither the process of devising or the product from this process have to be 
-expressed. 
+expressed. The human being can invent problems if they do not already tend to 
+their present problems. This phrasing presupposes that problems can be invented. 
+A problem is what comes out of recognizing the understanding of the as-is to be 
+something that is supposed to be counteracted for minimalizing the recognized 
+errors in the qualities of the as-is, from the understanding. If problems 
+can only exist, in the thought of belief or through recognition by perception 
+(a judgment), due to the instantiation by the axioms of natural law, then 
+anything thought or perceived can be considered a problem; in matters of 
+utility, the problem gets translated into economical division, and also 
+incorporated into the workings of the economy.  
