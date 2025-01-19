@@ -3154,5 +3154,17 @@ and the word are tools, with their forms of expression originating with the inte
 translate meaning. And meaning is a centrality, but for the sentient being faced with 
 a problem that has no meaning outside of a numerical span, meaning is not as simple as 
 the examples of centralities found in the beginning of this section. For the sentient 
-being, there is meaning to be found or made, and meaning, in cognition, can also be believed 
-or rejected. 
+being, there is meaning to be found or made, and meaning, in cognition, can also be 
+believed or rejected. Association, through the connections between two elements, 
+possibly of non-identical categories, produces a meaning on top of the meanings 
+of origin. Reasoning, through processing of the available information's surface-level, 
+by means of derivation for additional forms and construction of connections, is a 
+practice intended to satisfy logical criteria, at least on the surface. Through 
+the drawing of connections such as by metaphor, analogy, or a network, an understanding, 
+not guaranteed to yield preferred outcomes let alone be full and accurate in-itself, 
+can be used for practical purposes of projecting effects of choice-precision from one 
+distinct body to another. For example, a context for practical use of the understanding, 
+is conducive to bearing expectations from actions that affect the context via the 
+effecting application onto a known fundamental of the context; this statement, in-itself, 
+is indeed not about the pragmatics, but the barebones general of applying understanding 
+for a wanted causality. 
