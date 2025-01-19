@@ -3198,4 +3198,6 @@ is cold, and the established methodology to be followed is cold because it is
 instruction not open to consideration in any other way. The human being can 
 be taught the methodology. The human being can even be intelligent enough to 
 devise the methodology, or to derive the embedded methodology from accounting 
-of the experience. 
+of the experience. What is really left for the human being to think and do 
+once they have achieved the understanding of the methodology that concerns 
+the events? 
