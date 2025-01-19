@@ -3203,4 +3203,18 @@ once they have achieved the understanding of the methodology that concerns
 the events? Retention of the knowledge of the methodology into human memory or 
 material. Application of the methodology. Do these two statements, in this 
 context at large, not read as something incomplete, perhaps required of an 
-inquisition to shed light on? 
+inquisition to shed light on? With sentient beings, especially those required 
+to be integrated into social contexts, of sorts, there have been and will be 
+some things that just cannot seem to be accomplished, despite the intention 
+after the mastery of the methodology. There is God, then. Human affliction, 
+however can anything outside of the facts be stated with such air of belief, 
+but to not say anything else besides the facts known? Human affliction can 
+be attributed to tests by God, in order to deny recognition to the afflictors 
+as the sole force of the perceived wrongs made and at play. Maybe the situation 
+of the human being is there because of reasons they can comprehend, existences 
+that they cannot ever grasp the innermost essence of. And the human being, 
+in their attempts to detach from unwanted situations such as those they believe 
+to be insufferable or chaotic, for their desired result to be a third-party 
+observer not forced to participate in something that can only encourage their 
+wrongdoing, find that they cannot. To take solace in their situation, they 
+believe in God. 
