@@ -3145,5 +3145,5 @@ an infinite number of numbers to another infinite number of numbers results in o
 very much like art, given no additional information on the one making the assignments, 
 for this would lead to a kind of predictability on the output. Representations, by 
 use of primitives such as numbers, can satisfy certain demands of individuals and are 
-usually deemed flawed because their translation from one medium to another bears 
+deemed flawed usually because their translation from one medium to another bears 
 effects thought to be adverse. 
