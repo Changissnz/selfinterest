@@ -3287,6 +3287,15 @@ land once the natives have "opened the door" to the faith represented by the
 Catholic priests. Another commonly held view is that religious conversion, 
 alone, is insufficient for any meaningful gain, for those that push for 
 a common language, with undertones of inclusivity, to build and share 
-connections over a stretch of space inadvertently encourage local despots, 
+connections over a stretch of space inadvertently encourages local despots, 
 due to the possibility of governance decentralized relative to the shared 
-faith. 
+faith. In the historical context, when the Mongol Empire became firmly 
+established after defeating the Chinese governments, then the lands of 
+Christians had scientists develop superior weaponry to them, the Mongols with 
+their long track record of successes, the Mongols that were ever-incorporating, 
+the archetype wild ones with nature and thus the rightful controllers of 
+fate by their being the sole representative of nature. This chained statement 
+is not complete in the retelling of what happened. It serves to illustrate 
+how human language, especially, is able to transform itself into expectations, 
+failures, and dichotomies intertwined with ideological bodies of thought as 
+well as the political mores concerning intellect and material. 
