@@ -3287,7 +3287,7 @@ land once the natives have "opened the door" to the faith represented by the
 Catholic priests. Another commonly held view is that religious conversion, 
 alone, is insufficient for any meaningful gain, for those that push for 
 a common language, with undertones of inclusivity, to build and share 
-connections over a stretch of space inadvertently encourages local despots, 
+connections over a stretch of space, inadvertently encourage local despots, 
 due to the possibility of governance decentralized relative to the shared 
 faith. In the historical context, when the Mongol Empire became firmly 
 established after defeating the Chinese governments, then the lands of 
