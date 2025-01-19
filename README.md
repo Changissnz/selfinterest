@@ -3217,4 +3217,10 @@ being, in their attempts to detach from unwanted situations such as those they
 believe to be insufferable or chaotic, for their desired result to be a 
 third-party observer not forced to participate in something that can only 
 encourage their wrongdoing, find that they cannot. To take solace in their 
-situation, they believe in God. 
+situation, they believe in God. God is good, yet others say. Christianity, 
+in particular, as a monotheistic religion revolving in great part around 
+the word transcribed into the Bible, has characteristics different to 
+non-theistic religions and even counterparts such as Islam. In relation 
+to the category of non-theistic religions, Christianity has a much more 
+established written doctrine due to the reliance on the one representative 
+text, the Bible. 
