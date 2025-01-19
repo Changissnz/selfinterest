@@ -3301,7 +3301,7 @@ into expressing the archetypal expectations and dichotomies, intertwined with
 ideological bodies of thought, as well as the political mores concerning intellect 
 and material. In retellings of historical tragedies, there is one on how tens 
 of indentured servants were decapitated for forming a resistance against 
-Christian opposition, while a slave in another hemisphere can be a comfortable 
+Christian opposition, while a slave in another hemisphere was a comfortable 
 secondary person. In matters of unfairness, a Christian priestess says "please" 
 anytime she wants something, and gets it, all because she is a devout religious 
 representative. The human being can be something else outside of their internal 
