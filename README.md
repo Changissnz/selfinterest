@@ -3248,4 +3248,22 @@ roles en masse to become monstrosities on par with the Leviathan, by human
 perception, thus "doing the Devil's work", from a moral standpoint that 
 delivers meaning developed on top of the notion of good or bad, so prone 
 to the relativity of inversion and in the literary context, irony and 
-questionable justice. 
+questionable justice. One of the major distinguishing traits of Christianity, 
+as practiced, is its expression that runs contrary to doctrine such as 
+the Islamic prohibition of depicting Allah. This Islamic prohibition 
+encourages an appreciation for the lack of definitional represention, 
+in certain respects. What becomes murky to develop rational conclusions 
+on is how this affects aspects such as technology development, as well 
+as ways of thinking and acting, since all else is not equal by specific 
+quality. Both faiths started off as being regional, but Europe came to 
+subscribe itself to Christianity, while Arabia came to adopt Islam. The 
+geography of people is one that is cultural and expressive of the culture. 
+Faith is oftentimes interwoven into the societal makings of the geographic 
+region, and in some cases, the nuances are what delivers. Buddhism, despite 
+its lack of an official deity, is inclined to the practice, the methodologies 
+per se. This misleads some people to believe that this mentality is naturally 
+conducive towards scientific thinking, but in fact, subjectivity fosters, 
+arguably natural, because of practices spanning across vast territories. 
+There is a reason why many separate religion and science in discussion, although 
+there is reconciliability in any two distint matters, by simply connecting 
+them into an oneness acceptable. 
