@@ -3279,9 +3279,14 @@ happen was business and politics likewise became a thing. Habits also
 became a thing. A converted Catholic in one non-European land had a fifty-fifty 
 chance of also being a populist, by the default of no additional knowledge 
 on the context. And a converted Catholic that is a populist could not entirely 
-be a populist, all because of their newfound faith. There were certain periods 
+be a populist all because of their newfound faith. There were certain periods 
 in time where Catholic priests, having arrived in foreign lands, were not 
 well-received by the natives, since by the perspective of the natives, the 
 priests were connected to foreign militaries that plan invasion into native 
-land, once the natives have "opened the door" to the faith represented by the 
-Catholic priests. 
+land once the natives have "opened the door" to the faith represented by the 
+Catholic priests. Another commonly held view is that religious conversion, 
+alone, is insufficient for any meaningful gain, for those that push for 
+a common language, with undertones of inclusivity, to build and share 
+connections over a stretch of space inadvertently encourage local despots, 
+due to the possibility of governance decentralized relative to the shared 
+faith. 
