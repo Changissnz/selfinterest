@@ -3188,7 +3188,7 @@ distributions, in order to decide by the relational metric of what is best, and
 is surpised to realize that they were deceived when their expectations were not 
 met, such realization fostering a kind of madness in them, due to their belief 
 in the reasoning that is a non-transparency in information, possibly their exclusion 
-from the norm, hence why they failed; irony, psychological thriller, corruption 
+from the norm, hence they failed; irony, psychological thriller, corruption 
 are some choice words. When political movements are characterized by phrases such 
 as factional republicanism and democratized statism, strong messages are sent. 
 All of these examples are not confined to the number, but perhaps all of them 
