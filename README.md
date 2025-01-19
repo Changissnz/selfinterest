@@ -3211,10 +3211,10 @@ however can anything outside of the facts be stated with such air of belief,
 but to not say anything else besides the facts known? Human affliction can 
 be attributed to tests by God, in order to deny recognition to the afflictors 
 as the sole force of the perceived wrongs made and at play. Maybe the situation 
-of the human being is there because of reasons they can comprehend, existences 
-that they cannot ever grasp the innermost essence of. And the human being, 
-in their attempts to detach from unwanted situations such as those they believe 
-to be insufferable or chaotic, for their desired result to be a third-party 
-observer not forced to participate in something that can only encourage their 
-wrongdoing, find that they cannot. To take solace in their situation, they 
-believe in God. 
+of the human being is there because of reasons they can comprehend, alongside 
+existences that they cannot ever grasp the innermost essence of. And the human 
+being, in their attempts to detach from unwanted situations such as those they 
+believe to be insufferable or chaotic, for their desired result to be a 
+third-party observer not forced to participate in something that can only 
+encourage their wrongdoing, find that they cannot. To take solace in their 
+situation, they believe in God. 
