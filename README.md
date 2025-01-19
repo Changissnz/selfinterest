@@ -3231,4 +3231,20 @@ been a metaphor for particular organizations that are much too great in
 scale that they have been forced into roles imposing on anyone or anything 
 else. The Leviathan gives believers a sense of some great and wretched 
 unknown that they must face, from time and again, such that the encounters 
-may result in their end of life. 
+may result in their end of life. The purported literal inaccuracies of 
+Christianity bear evidence to anyone, not even the believer, of how meaning 
+is delivered to them past their own life experiences. The primitive of 
+the practices that are so emphasized in non-theistic religions, perhaps 
+even theistic sects (this includes believers of Christianity), are the 
+expression of the low-level doctrine that unites their respective followers. 
+And the expression results in more questions than answers in the initial 
+occurrences. Past the initial occurrences, the opposite can become true. 
+The extremities in effects from actions are illustrated in Christianity, 
+by the Biblical plots. The book of Christianity has much more developed 
+details than the base, the foundation, of any human understanding, and 
+thus delivers to believers strong messages on their mortality, and also 
+messages that they can, in fact, play roles coordinate en masse to become 
+monstrosities such as the Leviathan, thus "doing the Devil's work", from 
+a moral standpoint that delivers meaning developed on top of the notion 
+of good or bad, so prone to the relativity of inversion and in the literary 
+context, irony and questionable justice. 
