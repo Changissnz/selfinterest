@@ -3243,7 +3243,7 @@ The extremities in effects from actions are illustrated in Christianity,
 by the Biblical plots. The book of Christianity has much more developed 
 details than the base, the foundation, of any human understanding, and 
 thus delivers to believers strong messages on their mortality, and also 
-messages that they can, in fact, play roles coordinate en masse to become 
+messages that they can, in fact, play coordinated roles en masse to become 
 monstrosities such as the Leviathan, thus "doing the Devil's work", from 
 a moral standpoint that delivers meaning developed on top of the notion 
 of good or bad, so prone to the relativity of inversion and in the literary 
