@@ -3289,7 +3289,7 @@ alone, is insufficient for any meaningful gain, for those that push for
 a common language, with undertones of inclusivity, to build and share 
 connections over a stretch of space, inadvertently encourage local despots, 
 due to the possibility of governance decentralized relative to the shared 
-faith. In the historical context, when the Mongol Empire became firmly 
+faith. In the historical context, after the Mongol Empire became firmly 
 established after defeating the Chinese governments, then the lands of 
 Christians had scientists develop superior weaponry to them, the Mongols with 
 their long track record of successes, the Mongols that were ever-incorporating, 
