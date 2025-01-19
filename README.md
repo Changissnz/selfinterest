@@ -3265,5 +3265,5 @@ per se. This misleads some people to believe that this mentality is naturally
 conducive towards scientific thinking, but in fact, subjectivity fosters, 
 arguably natural, in part because of practices spanning across vast territories. 
 There is a reason why many separate religion and science in discussion, although 
-there is reconciliability in any two distint matters, by simply connecting 
+there is reconciliability in any two distinct matters, by simply connecting 
 them into an oneness acceptable. 
