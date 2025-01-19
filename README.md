@@ -3186,7 +3186,7 @@ complete reasoning. When someone is keen to act by the statistics that they know
 since the statistics are the starting material to form probability distributions, 
 in order to decide by the relational metric of what is best, and is surpised to 
 realize that they were deceived when their expectations were not met, such 
-realization fostering a kind of madness in them due to their belief in the 
+realization fostering a kind of madness in them, due to their belief in the 
 reasoning that is a non-transparency in information, possibly their exclusion 
 from the norm, hence why they failed; irony, psychological thriller, corruption 
 are some choice words. 
