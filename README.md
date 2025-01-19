@@ -3303,5 +3303,15 @@ and material. In retellings of historical tragedies, there is one on how tens
 of indentured servants were decapitated for forming a resistance against 
 Christian opposition, while a slave in another hemisphere can be a comfortable 
 secondary person. In matters of unfairness, a Christian priestess says "please" 
-anytime she wants something, and gets it all because she is a devout religious 
-representative. 
+anytime she wants something, and gets it, all because she is a devout religious 
+representative. The human being can be something else outside of their internal 
+thought, could they not? Man can be a critic, as woman can be a liar. Despite 
+some matters that did indeed occur and yet others that were greatly dramatized, 
+with objectives to denounce certain faiths, there cannot be retellings that are 
+all complete and nonfiction. Human beings, in quests to "transcend" what they 
+can or do know, have used religion in ways much more broad and comprehensive 
+than standalone scientific tools. For one to view themself as nothing more 
+than a means to an ends would be self-denying if they have a desire to be 
+more complete than their functions. Human beings also are inclined, in some 
+contexts, to interpret their existence in ways that are not fully controlled 
+by social constraints or ruled by constructs of politicized ranks. 
