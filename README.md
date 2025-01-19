@@ -3192,5 +3192,10 @@ from the norm, hence why they failed; irony, psychological thriller, corruption
 are some choice words. When political movements are characterized by phrases such 
 as factional republicanism and democratized statism, strong messages are sent. 
 All of these examples are not confined to the number, but perhaps all of them 
-can be accounted for by the recording of the events, so that reasoning about 
-them can be made. 
+can be accounted for by the recording of their actual events, so that reasoning 
+about them can proceed forward. The iteration of the methodology is cold if action 
+is cold, and the established methodology to be followed is cold because it is 
+instruction not open to consideration in any other way. The human being can 
+be taught the methodology. The human being can even be intelligent enough to 
+devise the methodology, or to derive the embedded methodology from accounting 
+of the experience. 
