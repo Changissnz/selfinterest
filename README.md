@@ -3113,3 +3113,31 @@ a fallacy. This is a viewpoint held by some human beings, untrue although the
 viewpoint is an effective artificial axiom for ends out of motive. 
 
 ## More on philosophies of self-interest #50 
+
+Proportionality, a paradigm for understanding any object, by uses of meta-structures 
+composed of values denoting relations between grouped elements of pairs or greater, 
+is a basis of rationalization for aspects such as aesthetics (beauty, resonance, 
+properness, et cetera) and objective solution (balance, efficiency, satisfying of 
+threshold requirements, integratable, usefulness, et cetera). The numerical span 
+zero through one, although containing infinity numbers, cannot be reflected onto 
+a numerical span of length infinity, by the proportionality of evenly-weighted 
+subspans of the numerical span zero through one. This fact was stated in section 45, 
+although its phrasing enabled cases to be made that contradict it. For example, 
+travelling from zero to one, for the last number X less than one in this travel 
+reached, the span X through one can correspond to the span that is the correspondent 
+of X (for the infinitely-lengthed span) through infinity. This case is not a 
+proportionality based on evenly-weighted subspans. It is not a proportionality 
+that can be fully grasped. To elaborate, the numbers in the span X through one 
+cannot be assigned as individuals to the correspondent subspan of the 
+infinitely-lengthed span. The only as-is understanding for the connection from one 
+subspan to another is to be understood is by this subcategory of as-is: from-itself. 
+In this writing, from-itself has the definition of understanding through knowledge 
+that is information gathered from perceiving the object in a specific spatiotemporal 
+context. This case has the subcase of no travel from zero to one, so that a single 
+and direct connection of equivocation is drawn between the two spans. For each 
+number from the numerical span zero through one demanded a correspondent, an 
+arbitrary number, not yet been assigned, in the infinitely-lengthed span is assigned 
+to it. And not all of the assignments can be comprehended from an as-is perspective, 
+even if infinite were reachable. For this specific subcase, there are no centralities 
+found in the span zero (excluded) to one (excluded) to serve as markers; a centrality 
+would be the start or ending value of a subspan. 
