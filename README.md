@@ -3147,10 +3147,12 @@ for this would lead to a kind of predictability on the output. Representations, 
 use of primitives such as numbers, can satisfy certain demands of individuals and are 
 deemed flawed usually because their translation from one medium to another bears 
 effects thought to be adverse. The number is lifeless, and so is the word, because 
-the innermost essence of these two tools strips out all the expression, as well as 
-the sentient knowledge of it, and also the structures that represent them. What is 
-left is something that is not meaningful to any life. The number and the word are 
-tools, with their forms of expression originating with the intent to translate 
-meaning. And meaning is a centrality, but for the sentient being faced with a problem 
-that has no meaning outside of a numerical span, meaning is not as simple as the examples 
-of centralities found in the beginning of this section. 
+the innermost essence of these two tools is the result of stripping out all the 
+expression, as well as the sentient knowledge of it, and also the structures that 
+represent them. What is left is something that is not meaningful to any life. The number 
+and the word are tools, with their forms of expression originating with the intent to 
+translate meaning. And meaning is a centrality, but for the sentient being faced with 
+a problem that has no meaning outside of a numerical span, meaning is not as simple as 
+the examples of centralities found in the beginning of this section. For the sentient 
+being, there is meaning to be found or made, and meaning, in cognition, can also be believed 
+or rejected. 
