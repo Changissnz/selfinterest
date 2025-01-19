@@ -3172,21 +3172,21 @@ called unquestionably intentional (but this is not an argument for determinism),
 the application of their devised or learned methodologies, out of some reason, that 
 are perplexing to process, if processing is constrained to the as-is, from-oneself, 
 or an fallible understanding of the what-is. Protectionism for the merchant, heavily 
-involved in international trade, limits their trade and thus their profits of 
+involved in international trade, limits their trade and shrinks their profits of 
 official currency, thus giving cause to the effect of their reaction to this kind 
 of security that they were never even asked to consent to; this sounds political and 
 financial. When an entity socially engineers the perception of another as to effect 
 a social pressure onto them, who then unintentionally fosters their own vulnerabilities 
 for their downfall; tragedy and the ruthlessness of human competition are common 
 descriptors for this. When an organization or person circumvents the rules and/or 
-boundaries, and is able to derail their whims, additionally to dash their hopes 
-and dreams; this makes for an example of how political craft and uncomprehensive 
-legislation result in something not so simply explained by an impartial and 
-complete reasoning. When someone is keen to act by the statistics that they know, 
-since the statistics are the starting material to form probability distributions, 
-in order to decide by the relational metric of what is best, and is surpised to 
-realize that they were deceived when their expectations were not met, such 
-realization fostering a kind of madness in them, due to their belief in the 
-reasoning that is a non-transparency in information, possibly their exclusion 
+boundaries, and is able to derail people's whims, additionally to dash these 
+people's hopes and dreams; this makes for an example of how political craft and 
+uncomprehensive legislation result in something not so simply explained by an 
+impartial and complete reasoning. When someone is keen to act by the statistics 
+that they know, since the statistics are the starting material to form probability 
+distributions, in order to decide by the relational metric of what is best, and 
+is surpised to realize that they were deceived when their expectations were not 
+met, such realization fostering a kind of madness in them, due to their belief 
+in the reasoning that is a non-transparency in information, possibly their exclusion 
 from the norm, hence why they failed; irony, psychological thriller, corruption 
 are some choice words. 
