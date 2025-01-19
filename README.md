@@ -3160,10 +3160,10 @@ possibly of non-identical categories, produces a meaning on top of the meanings
 of origin. Reasoning, through processing of the available information's surface-level, 
 by means of derivation for additional forms and construction of connections, is a 
 practice intended to satisfy logical criteria, at least on the surface. Through 
-the drawing of connections such as by metaphor, analogy, or a network, an understanding, 
+the drawing of connections such as by metaphor, analogy, or network, an understanding, 
 not guaranteed to yield preferred outcomes let alone be full and accurate in-itself, 
 can be used for practical purposes of projecting effects of choice-precision from one 
-distinct body to another. For example, a context for practical use of the understanding, 
+distinct body to another. For example, a context for practical use of the understanding 
 is conducive to bearing expectations from actions that affect the context via the 
 effecting application onto a known fundamental of the context; this statement, in-itself, 
 is indeed not about the pragmatics, but the barebones general of applying understanding 
@@ -3181,37 +3181,37 @@ for their downfall; tragedy and the ruthlessness of human competition are common
 descriptors for this. When an organization or person circumvents the rules and/or 
 boundaries, and is able to derail people's whims, additionally to dash these 
 people's hopes and dreams; this makes for an example of how political craft and 
-uncomprehensive legislation result in something not so simply explained by an 
-impartial and complete reasoning. When someone is keen to act by the statistics 
-that they know, since the statistics are the starting material to form probability 
-distributions, in order to decide by the relational metric of what is best, and 
-is surpised to realize that they were deceived when their expectations were not 
-met, such realization fostering a kind of madness in them, due to their belief 
-in the reasoning that is a non-transparency in information, possibly their exclusion 
-from the norm, hence they failed; irony, psychological thriller, corruption 
-are some choice words. When political movements are characterized by phrases such 
-as factional republicanism and democratized statism, strong messages are sent. 
-All of these examples are not confined to the number, but perhaps all of them 
-can be accounted for by the recording of their actual events, so that reasoning 
-about them can proceed forward. The iteration of the methodology is cold if action 
-is cold, and the established methodology to be followed is cold because it is 
-instruction not open to consideration in any other way. The human being can 
-be taught the methodology. The human being can even be intelligent enough to 
-devise the methodology, or to derive the embedded methodology from accounting 
-of the experience. What is really left for the human being to think and do 
-once they have achieved the understanding of the methodology that concerns 
-the events? Retention of the knowledge of the methodology into human memory or 
-material. Application of the methodology. Do these two statements, in this 
-context at large, not read as something incomplete, perhaps required of an 
-inquisition to shed light on? With sentient beings, especially those required 
-to be integrated into social contexts, of sorts, there have been and will be 
-some things that just cannot seem to be accomplished, despite the intention 
-after the mastery of the methodology. There is God, then. Human affliction, 
-however can anything outside of the facts be stated with such air of belief, 
-but to not say anything else besides the facts known? Human affliction can 
-be attributed to tests by God, in order to deny recognition to the afflictors 
-as the sole force of the perceived wrongs made and at play. Maybe the situation 
-of the human being is there because of reasons they can comprehend, alongside 
+uncomprehensive legislation result in something unresolved by an impartial and 
+complete reasoning. When someone is keen to act by the statistics that they know, 
+since the statistics are the starting material to form probability distributions, 
+in order to decide by the relational metric of what is best, and is surpised to 
+realize that they were deceived when their expectations were not met, such realization 
+fostering a kind of madness in them, due to their belief in the reasoning that is 
+a non-transparency in information, possibly their exclusion from the norm, hence 
+they failed; irony, psychological thriller, corruption are some choice words. 
+When political movements are characterized by phrases such as factional republicanism 
+and democratized statism, strong messages are sent. All of these examples are not 
+confined to the number, but perhaps all of them can be accounted for by the recording 
+of their actual events, so that reasoning about them can proceed forward. The 
+iteration of the methodology is cold if action is cold, and the established 
+methodology to be followed is cold because it is instruction not open to 
+consideration in any other way. The human being can be taught the methodology. 
+The human being can even be intelligent enough to devise the methodology, or 
+to derive the embedded methodology from accounting of the experience. What is 
+really left for the human being to think and do once they have achieved the 
+understanding of the methodology that concerns the events? Retention of the 
+knowledge of the methodology into human memory or material. Application of 
+the methodology. Do these two statements, in this context at large, not read 
+as something incomplete, perhaps required of an inquisition to shed light on? 
+With sentient beings, especially those required to be integrated into social 
+contexts, of sorts, there have been and will be some things that just cannot 
+seem to be accomplished, despite the intention after the mastery of the 
+methodology. There is God, then. Human affliction, however can anything 
+outside of the facts be stated with such air of belief, but to not say 
+anything else besides the facts known? Human affliction can be attributed 
+to tests by God, in order to deny recognition to the afflictors as the 
+sole force of the perceived wrongs made and at play. Maybe the situation of 
+the human being is there because of reasons they can comprehend, alongside 
 existences that they cannot ever grasp the innermost essence of. And the human 
 being, in their attempts to detach from unwanted situations such as those they 
 believe to be insufferable or chaotic, for their desired result to be a 
@@ -3232,7 +3232,7 @@ scale that they have been forced into roles imposing on anyone or anything
 else. The Leviathan gives believers a sense of some great and wretched 
 unknown that they must face, from time and again, such that the encounters 
 may result in their end of life. The purported literal inaccuracies of 
-Christianity bear evidence to anyone, not even the believer, of how meaning 
+Christianity bear evidence to anyone, not just the believer, of how meaning 
 is delivered to them past their own life experiences. The primitive of 
 the practices that are so emphasized in non-theistic religions, perhaps 
 even theistic sects (this includes believers of Christianity), are the 
@@ -3313,5 +3313,5 @@ can or do know, have used religion in ways much more broad and comprehensive
 than standalone scientific tools. For one to view themself as nothing more 
 than a means to an ends would be self-denying if they have a desire to be 
 more complete than their functions. Human beings also are inclined, in some 
-contexts, to interpret their existence in ways that are not fully controlled 
+contexts, to interpret their existences in ways that are not fully controlled 
 by social constraints or ruled by constructs of politicized ranks. 
