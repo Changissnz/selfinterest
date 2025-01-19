@@ -3274,8 +3274,8 @@ proselytize his faith to those peoples that, by his standard, never had the
 privilege to be civilized. In his appearance and approach with foreign 
 peoples, fostering their belief in God from his communication to them, 
 of an intertwining of his interpretation of the Bible with his agenda from 
-continental and national leaders, Catholic followers grow. What tended to 
-happen was business and politics likewise became a thing. Habits also 
+continental and national leaders, Catholic followers grow in numbers. 
+What tended to happen was business and politics likewise became a thing. Habits also 
 became a thing. A converted Catholic in one non-European land had a fifty-fifty 
 chance of also being a populist, by the default of no additional knowledge 
 on the context. And a converted Catholic that is a populist could not entirely 
