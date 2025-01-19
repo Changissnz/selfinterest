@@ -3130,10 +3130,10 @@ proportionality based on evenly-weighted subspans. It is not a proportionality
 that can be fully grasped. To elaborate, the numbers in the span X through one 
 cannot be assigned as individuals to the correspondent subspan of the 
 infinitely-lengthed span. The only as-is understanding for the connection from one 
-subspan to another is to be understood is by this subcategory of as-is: from-itself. 
-In this writing, from-itself has the definition of understanding through knowledge 
-that is information gathered from perceiving the object in a specific spatiotemporal 
-context. This case has the subcase of no travel from zero to one, so that a single 
+subspan to another is to be understood is by this subcategory of as-is: from-oneself. 
+In this writing, from-oneself has the definition of understanding through knowledge 
+that is information gathered from perceiving the object as an integrated and irreducible 
+representation. This case has the subcase of no travel from zero to one, so that a single 
 and direct connection of equivocation is drawn between the two spans. For each 
 number from the numerical span zero through one demanded a correspondent, an 
 arbitrary number, not yet been assigned, in the infinitely-lengthed span is assigned 
