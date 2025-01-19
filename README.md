@@ -3200,4 +3200,7 @@ be taught the methodology. The human being can even be intelligent enough to
 devise the methodology, or to derive the embedded methodology from accounting 
 of the experience. What is really left for the human being to think and do 
 once they have achieved the understanding of the methodology that concerns 
-the events? 
+the events? Retention of the knowledge of the methodology into human memory or 
+material. Application of the methodology. Do these two statements, in this 
+context at large, not read as something incomplete, perhaps required of an 
+inquisition to shed light on? 
