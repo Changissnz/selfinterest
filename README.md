@@ -3251,8 +3251,8 @@ to the relativity of inversion and in the literary context, irony and
 questionable justice. One of the major distinguishing traits of Christianity, 
 as practiced, is its expression that runs contrary to doctrine such as 
 the Islamic prohibition of depicting Allah. This Islamic prohibition 
-encourages an appreciation for the lack of definitional represention, 
-in certain respects. What becomes murky to develop rational conclusions 
+encourages an appreciation for the lack of definitional representation, 
+in certain aspects. What becomes murky to develop rational conclusions 
 on is how this affects aspects such as technology development, as well 
 as ways of thinking and acting, since all else is not equal by specific 
 quality. Both faiths started off as being regional, but Europe came to 
