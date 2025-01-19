@@ -3266,4 +3266,22 @@ conducive towards scientific thinking, but in fact, subjectivity fosters,
 arguably natural, in part because of practices spanning across vast territories. 
 There is a reason why many separate religion and science in discussion, although 
 there is reconciliability in any two distinct matters, by simply connecting 
-them into an oneness acceptable. 
+them into an oneness acceptable. Organizations consisting of human beings are 
+fascinating, especially when one is forced to consider them in lights not 
+entirely confined to religion. For example, a Catholic populist, after stating 
+that he has relinquished his ethno-national prejudice, becomes a priest to 
+proselytize his faith to those peoples that, by his standard, never had the 
+privilege to be civilized. In his appearance and approach with foreign 
+peoples, fostering their belief in God from his communication to them, 
+of an intertwining of his interpretation of the Bible with his agenda from 
+continental and national leaders, Catholic followers grow. What tended to 
+happen was business and politics likewise became a thing. Habits also 
+became a thing. A converted Catholic in one non-European land had a fifty-fifty 
+chance of also being a populist, by the default of no additional knowledge 
+on the context. And a converted Catholic that is a populist could not entirely 
+be a populist, all because of their newfound faith. There were certain periods 
+in time where Catholic priests, having arrived in foreign lands, were not 
+well-received by the natives, since by the perspective of the natives, the 
+priests were connected to foreign militaries that plan invasion into native 
+land, once the natives have "opened the door" to the faith represented by the 
+Catholic priests. 
