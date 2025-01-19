@@ -3242,9 +3242,10 @@ occurrences. Past the initial occurrences, the opposite can become true.
 The extremities in effects from actions are illustrated in Christianity, 
 by the Biblical plots. The book of Christianity has much more developed 
 details than the base, the foundation, of any human understanding, and 
-thus delivers to believers strong messages on their mortality, and also 
-messages that they can, in fact, play coordinated roles en masse to become 
-monstrosities on the par of the Leviathan, by human perception, thus "doing 
-the Devil's work", from a moral standpoint that delivers meaning developed 
-on top of the notion of good or bad, so prone to the relativity of inversion 
-and in the literary context, irony and questionable justice. 
+thus delivers to believers strong messages on their mortality, by 
+exemplification, and also messages that they can, in fact, play coordinated 
+roles en masse to become monstrosities on par with the Leviathan, by human 
+perception, thus "doing the Devil's work", from a moral standpoint that 
+delivers meaning developed on top of the notion of good or bad, so prone 
+to the relativity of inversion and in the literary context, irony and 
+questionable justice. 
