@@ -3298,4 +3298,7 @@ fate by their being the sole representative of nature. This chained statement
 is not complete in the retelling of what happened. It serves to illustrate 
 how human language, especially, is able to transform itself into expectations, 
 failures, and dichotomies intertwined with ideological bodies of thought as 
-well as the political mores concerning intellect and material. 
+well as the political mores concerning intellect and material. In retellings 
+of historical tragedies, there is one on how tens of indentured servants 
+were decapitated for forming a resistance, while a slave in another hemisphere 
+can be a comfortable secondary person. 
