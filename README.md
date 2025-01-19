@@ -3137,7 +3137,10 @@ context. This case has the subcase of no travel from zero to one, so that a sing
 and direct connection of equivocation is drawn between the two spans. For each 
 number from the numerical span zero through one demanded a correspondent, an 
 arbitrary number, not yet been assigned, in the infinitely-lengthed span is assigned 
-to it. And not all of the assignments can be comprehended from an as-is perspective, 
+to it. And not all of the assignments can be comprehended from a what-is criteria, 
 even if infinite were reachable. For this specific subcase, there are no centralities 
 found in the span zero (excluded) to one (excluded) to serve as markers; a centrality 
-would be the start or ending value of a subspan. 
+would be the start or ending value of a subspan. Needless to say, the task of assigning 
+an infinite number of numbers to another infinite number of numbers results in outputs 
+very much like art, given no additional information on the one making the assignments, 
+for this would lead to a kind of predictability on the output. 
