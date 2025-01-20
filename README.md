@@ -3152,7 +3152,7 @@ expression, as well as the sentient knowledge of it, and also the structures tha
 represent them. What is left is something that is not meaningful to any life. The number 
 and the word are tools, with their forms of expression originating with the intent to 
 translate meaning. And meaning is a centrality, but for the sentient being faced with 
-a problem that has no meaning outside of a numerical span, meaning is not as simple as 
+a problem that has meaning outside of a numerical span, meaning is not as simple as 
 the examples of centralities found in the beginning of this section. For the sentient 
 being, there is meaning to be found or made, and meaning, in cognition, can also be 
 believed or rejected. Association, through the connections between two elements, 
