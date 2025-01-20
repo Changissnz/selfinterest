@@ -3283,7 +3283,7 @@ be a populist all because of their newfound faith. There were certain periods
 in time where Catholic priests, having arrived in foreign lands, were not 
 well-received by the natives, since by the perspective of the natives, the 
 priests were connected to foreign militaries that planned invasion into native 
-land once the natives have "opened the door" to the faith represented by the 
+land once the natives "opened the door" to the faith represented by the 
 Catholic priests. Another commonly held view is that religious conversion, 
 alone, is insufficient for any meaningful gain, for those that push for 
 a common language, with undertones of inclusivity, to build and share 
