@@ -3141,13 +3141,13 @@ to it. And not all of the assignments can be comprehended from a what-is criteri
 even if infinite were reachable. For this specific subcase, there are no centralities 
 found in the span zero (excluded) to one (excluded) to serve as markers; a centrality 
 would be the start or ending value of a subspan. Needless to say, the task of assigning 
-an infinite number of numbers to another infinite number of numbers results in outputs 
-very much like art, given no additional information on the one making the assignments, 
-for this would lead to a kind of predictability on the output. Representations, by 
-use of primitives such as numbers, can satisfy certain demands of individuals and are 
-deemed flawed usually because their translation from one medium to another bears 
-effects thought to be adverse. The number is lifeless, and so is the word, because 
-the innermost essence of these two tools is the result of stripping out all the 
+an infinite number of numbers to another infinite number of numbers, into pairs with one 
+from each, results in outputs very much like art, given no additional information on the 
+one making the assignments, for this would lead to a kind of predictability on the output. 
+Representations, by use of primitives such as numbers, can satisfy certain demands of 
+individuals and are deemed flawed usually because their translation from one medium to 
+another bears effects thought to be adverse. The number is lifeless, and so is the word, 
+because the innermost essence of these two tools is the result of stripping out all the 
 expression, as well as the sentient knowledge of it, and also the structures that 
 represent them. What is left is something that is not meaningful to any life. The number 
 and the word are tools, with their forms of expression originating with the intent to 
