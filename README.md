@@ -3315,3 +3315,6 @@ than a means to an ends would be self-denying if they have a desire to be
 more complete than their functions. Human beings also are inclined, in some 
 contexts, to interpret their existences in ways that are not fully controlled 
 by social constraints or ruled by constructs of politicized ranks. 
+
+## More on philosophies of self-interest #51 
+
