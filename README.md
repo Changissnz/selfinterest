@@ -3276,9 +3276,9 @@ peoples, fostering their belief in God from his communication to them,
 of an intertwining of his interpretation of the Bible with his agenda from 
 continental and national leaders, Catholic followers grow in numbers. 
 What tended to happen was business and politics likewise became a thing. Habits also 
-became a thing. A converted Catholic in one non-European land had a fifty-fifty 
+became a thing. A Catholic convert in one non-European land had a fifty-fifty 
 chance of also being a populist, by the default of no additional knowledge 
-on the context. And a converted Catholic that is a populist could not entirely 
+on the context. And a Catholic convert that is a populist could not entirely 
 be a populist all because of their newfound faith. There were certain periods 
 in time where Catholic priests, having arrived in foreign lands, were not 
 well-received by the natives, since by the perspective of the natives, the 
