@@ -3465,4 +3465,11 @@ considered anything more than a performance mark for the specific tasks measured
 the projected ramifications of a specific performance mark, the mark changes in 
 interpretation. Initially, the as-is is identical to the from-itself. Then the as-is 
 in understanding is expanded, as much as human predictive capability allows, for the 
-objective of equaling the what-is of the mark. 
+objective of equaling the what-is of the mark. The metric, in practical use, can 
+only organize the whole into equals, and each segment, of equals, is designated 
+objectives that require more than that metric. Peers that are equal by the metric 
+are either both accepted or rejected, and this truth sets the stage for unstandard 
+happenings such as disintegrating plurality and dichotomy by competition. And the 
+notion of "luck", as a qualitative judgment of an individual's life, is quite 
+interconnected to the social construct as well as spatiotemporal settings of 
+occurrences. 
