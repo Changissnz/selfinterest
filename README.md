@@ -3402,9 +3402,9 @@ with an intellect at birth, primed for certain outlets, has the opportunity to b
 that rest on top of this gift of theirs, although there is question on if these opportunities 
 are really due to intellect or to something else, perhaps their results from start to 
 accumulation influenced in great part by the interconnected workings of artificial axioms. 
-It is human intellect, from the organ that is the human brain, that allows them to be the 
-planet's pre-eminent manipulators of space and governors of time. And the statement really 
-only has the question of what governing of time is for debate over just cause. Similarly, 
+It is human intellect, from the organ that is the human brain, that allows human beings to be 
+the planet's pre-eminent manipulators of space and governors of time. And the statement really 
+only has the question of what "governing of time" is, as just cause, for debate. Similarly, 
 in various cultures across the world, the heart is viewed as the organ of love, happiness, 
 and anger (the expressive sentiments), while the stomach is viewed as a container for 
 hatred, sadness, and fear (the hidden sentiments). However true this may be, the mention of 
