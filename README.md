@@ -3408,7 +3408,7 @@ only has the question of what "governing of time" is, as just cause, for debate.
 in various cultures across the world, the heart is viewed as the organ of love, happiness, 
 and anger (the expressive sentiments), while the stomach is viewed as a container for 
 hatred, sadness, and fear (the hidden sentiments). However true this may be, the mention of 
-human organs is for the purpose of discussing how the rational human being, considerate of 
-the roles of political power and financial leverage, sees another in their conceptualization 
-of the whole, such as a machine that should not malfunction or a cultural dance that should 
-not be interrupted by outsiders. 
+human organs, stratified into distinct or predominating roles, is for the purpose of discussing 
+how the rational human being, considerate of the roles of political power and financial leverage, 
+sees another in their conceptualization of the whole, such as a machine that should not malfunction 
+or a cultural dance that should not be interrupted by outsiders. 
