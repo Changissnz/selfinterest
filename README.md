@@ -3429,11 +3429,12 @@ people in fixed roles of power and privilege, passed down from one to another in
 such as familial heritage, poses the idealism of merit as the greatest values continued through 
 bloodlines. So it is most certainly not always the aristocrat, in society, that cripples the 
 intellectual out of some historically-based fear. Just as the individual has their self-interest, 
-their society, appearing and acting under such things as a national flag or a religious, always 
-have interests declared as one. For example, if a politically-motivated force were to decapitate 
-the intellectual class of a specific region, seldom do the reasons not include political threats 
-from that class. The exclusion of certain members from society speaks to that society's 
-relational posture amongst neighboring peers, as well as how members of that society opine 
-their views and push their products; this can be rephrased in economic terms, but doing so 
-would emphasize the labor and material more, when in many cases, the material and labor was 
-already there and what was lacking was will used for appreciating the spirit of thought. 
+their society, appearing and acting under such things as a national flag or a religious symbol, 
+always have interests declared as one. For example, if a politically-motivated force were to 
+decapitate the intellectual class of a specific region, seldom do the reasons not include 
+political threats from that class. The exclusion of certain members from society speaks to 
+that society's relational posture amongst neighboring peers, as well as how members of that 
+society opine their views and push their products; this can be rephrased in economic terms, 
+but doing so would emphasize the labor and material more, when in many cases, the material 
+and labor was already there and what was lacking was will used for appreciating the spirit 
+of thought. 
