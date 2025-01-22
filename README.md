@@ -3473,4 +3473,15 @@ unstandard happenings such as disintegrating plurality and dichotomy by competit
 And the notion of "luck", as a qualitative judgment of an individual's life, is quite 
 interconnected to the social construct as well as spatiotemporal settings of 
 occurrences. Now imagine if intellect were dedicated towards survivalist and domination 
-strategies. 
+strategies. "Luck" would be involved. Merit would be involved. And socio-economic status 
+would be involved. Out of the various ways authority by royalty or by bureaucracy works, 
+there seems to always be room to question. From this statement, human beings hear and 
+read about tales of peculiar individuals, such as those that obsess to see another's head 
+on a silver platter, those that conspire against their "own people", and those that 
+become so apathetic to achievement, out of their belief in the possibility of their 
+intellect being used against their self-interest/s. What a self-interested individual, 
+that is, one that is committed to the ultimate aims associated with their self-interest, 
+does one day out of principle cannot be expected to act by that same principle for 
+the same problem on another day, due not especially to their mortality since death 
+is only once for the individual and their self, but to the coincidences and intentions 
+that constitute differences nuanced as inputs, but for the outputs, not so much. 
