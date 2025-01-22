@@ -3437,7 +3437,7 @@ that class. The exclusion of certain members from society speaks to that society
 relational posture amongst neighboring peers, as well as how members of that society 
 opine their views and push their products; this can be rephrased in economic terms, but 
 doing so would emphasize the labor and material more, when in many cases, the material 
-and labor was already there and what was lacking was will used for appreciating the spirit 
+and labor were already there and what was lacking was will used for appreciating the spirit 
 of thought. Meritocratic procedures are a complicated subject when implemented to cover 
 the various ways that human beings exhibit intellect and physical skill. Suppose that 
 one individual, because of their intellect, was able to pass an entrance exam into an 
