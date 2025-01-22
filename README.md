@@ -3409,6 +3409,6 @@ in various cultures across the world, the heart is viewed as the organ of love, 
 and anger (the expressive sentiments), while the stomach is viewed as a container for 
 hatred, sadness, and fear (the hidden sentiments). However true this may be, the mention of 
 human organs is for the purpose of discussing how the rational human being, considerate of 
-the roles of political power and financial leverage, sees another in their conceptual of 
-the whole, such as a machine that should not malfunction or a cultural dance that should not 
-be interrupted by outsiders. 
+the roles of political power and financial leverage, sees another in their conceptualization 
+of the whole, such as a machine that should not malfunction or a cultural dance that should 
+not be interrupted by outsiders. 
