@@ -3347,7 +3347,7 @@ comprised of workers, can be more accurately thought of as physically-heavy labo
 The tertiary sector is pertinent to intellectuals, but because many occupations form 
 this specific sector, the sector does not revolve around the pursuits of the intellectual. 
 Politicians, militarists, artisans, scientists, teachers. The list goes on. In a classist 
-perspective, how would the intellectual thrive if not for who they stand on, as the saying 
+perspective, how would the intellectual thrive if not for whom they stand on, as the saying 
 goes, "on the shoulders of giants"? The intellectual would have to allocate time to labor 
 in the fields to produce crops, in slaughterhouses for meat, and in factories to assemble 
 machines and manmade foods. Intellectuals, being ones keen on development of their intellect, 
