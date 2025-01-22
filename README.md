@@ -3358,7 +3358,7 @@ ascetics as protest against the striving for excess in material for their living
 intersect their practices with many religions that denounce the worship of the material. 
 And for that, the intellectual becomes useless to industrial growth, for they feel disgusted 
 with the designs of man that tend to be sold by the numbers of currency coins, after being 
-branded luxury names, although they may appreciate the design on a from-oneself basis, in 
+branded luxury names, although they may appreciate the designs on a from-oneself basis, in 
 other words, there is merit to the products out of quality that outshines and overpowers 
 what is the norm, synonymously but not exactly, the baseline for living. The intellectual 
 that solidifies their thinking into idealist notions, then becomes an agent that outweighs 
