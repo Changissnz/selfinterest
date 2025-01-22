@@ -3318,3 +3318,7 @@ by social constraints or ruled by constructs of politicized ranks.
 
 ## More on philosophies of self-interest #51 
 
+The intellectual is an interesting member of human societies. Some human societies 
+take the additional step of demarcating the intellectual into a distinct social 
+class, on arguments entirely justifiable if the environment of such demarcation, 
+any social demarcation in fact, is self-contained. 
