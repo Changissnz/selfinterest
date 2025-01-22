@@ -3443,14 +3443,14 @@ the various ways that human beings exhibit intellect and physical skill. Suppose
 one individual, because of their intellect, was able to pass an entrance exam into an 
 research institution. Another individual is able to excel in business and marketing. 
 In the second case, it can be reasonably argued that the individual may have come to 
-excel through intentional improvements after their specific improvements. And in the 
+excel through intentional improvements after their specific experiences. And in the 
 first case, the individual was able to do so by some combination of factors, such as 
 access to learning resources and possibly genetic predisposition. Matters that cannot 
 be entirely and objectively measured, such as running speed and maximum weight of 
 lifting, are complicated by the plurality of viable paths, viable because there is 
-gain for the individual to travel down. Objective testing of intellectual aptitude, 
-usually by standardized testing, has been and continues to be put into question. The 
-standard, comprised of rules for scoring and templates for questions, can be learned 
+probable gain for the individual to travel down. Objective testing of intellectual 
+aptitude, usually by standardized testing, has been and continues to be put into question. 
+The standard, comprised of rules for scoring and templates for questions, can be learned 
 by a competitive person beforehand. Through the rigor that person dedicates their time 
 to, their testing score will increase, at least up to a certain point. So the human 
 being may have some thresholds to their capabilities, by the metric. However, the human 
@@ -3465,11 +3465,12 @@ considered anything more than a performance mark for the specific tasks measured
 the projected ramifications of a specific performance mark, the mark changes in 
 interpretation. Initially, the as-is is identical to the from-itself. Then the as-is 
 in understanding is expanded, as much as human predictive capability allows, for the 
-objective of equaling the what-is of the mark. The metric, in practical use, can 
-only organize the whole into equals, and each segment, of equals, is designated 
-objectives that require more than that metric. Peers that are equal by the metric 
-are either both accepted or rejected, and this truth sets the stage for unstandard 
-happenings such as disintegrating plurality and dichotomy by competition. And the 
-notion of "luck", as a qualitative judgment of an individual's life, is quite 
+objective of equaling the what-is of the mark. The metric, in hierarchical use, can 
+only organize the whole by percentile range into equals, and each segment, of equals, 
+is designated objectives that require more than that metric. Peers that are equal by 
+the metric are either both accepted or rejected, and this truth sets the stage for 
+unstandard happenings such as disintegrating plurality and dichotomy by competition. 
+And the notion of "luck", as a qualitative judgment of an individual's life, is quite 
 interconnected to the social construct as well as spatiotemporal settings of 
-occurrences. 
+occurrences. Now imagine if intellect were dedicated towards survivalist and domination 
+strategies. 
