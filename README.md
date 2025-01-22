@@ -3393,4 +3393,22 @@ include hard power that they can wield. No saying is so concise, in an attempt t
 this, as "the pen is mightier than the sword". The politician metaphorically stands on 
 top of both people and industry, and so must look to the people and their work structured 
 into industries, in order to make policies in accordance with these qualities gathered 
-from political oversight and transmitted to them. 
+from political oversight and transmitted to them. Intellect is a quality that forms a 
+crucial part of the self. The uniting aspect behind all biological intellect is the 
+quality of self-awareness. A human being is unique, at least according to human perspective, 
+in the sense that they are a "social creature" whose cooperation with and antagonism against 
+others rests on artificial axioms, decision-making metastructures. A human being, if gifted 
+with an intellect at birth, primed for certain outlets, has the opportunity to be many roles 
+that rest on top of this gift of theirs, although there is question on if these opportunities 
+are really due to intellect or to something else, perhaps their results from start to 
+accumulation influenced in great part by the interconnected workings of artificial axioms. 
+It is human intellect, from the organ that is the human brain, that allows them to be the 
+planet's pre-eminent manipulators of space and governors of time. And the statement really 
+only has the question of what governing of time is for debate over just cause. Similarly, 
+in various cultures across the world, the heart is viewed as the organ of love, happiness, 
+and anger (the expressive sentiments), while the stomach is viewed as a container for 
+hatred, sadness, and fear (the hidden sentiments). However true this may be, the mention of 
+human organs is for the purpose of discussing how the rational human being, considerate of 
+the roles of political power and financial leverage, sees another in their conceptual of 
+the whole, such as a machine that should not malfunction or a cultural dance that should not 
+be interrupted by outsiders. 
