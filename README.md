@@ -3361,15 +3361,15 @@ with the designs of man that tend to be sold by the numbers of currency coins, a
 branded luxury names, although they may appreciate the design on a from-itself basis, in 
 other words, there is merit to the products out of quality that outshines and overpowers 
 what is the norm, synonymously but not exactly, the baseline for living. The intellectual 
-that solidifies their thinking into idealist notions, then become agents that outweigh 
+that solidifies their thinking into idealist notions, then becomes an agent that outweighs 
 the positive occurrences labeled as those notions over others. The result is the 
 intellectual rejects some particular notions that go against their views, and the 
 intellectual also has to tend to internal forces of discouragement on learning about 
 other ways of thinking and acting; the other end of the extreme, however, is really not 
 any better on the premise of imagining an intellectual as a monkey-esque agent that has 
-no morals or unique styles particular to their spatiotemporal context, instead every 
-human activity that has ever taken place and every human thought expressed becomes subject 
-to their fascination so much that they take the additional step to take up these variants as 
+no morals or unique styles particular to their existence, instead every human activity 
+that has ever taken place and every human thought expressed becomes subject to their 
+fascination so much that they take the additional step to take up these variants as 
 part of their outward expression, in order to demonstrate their fascination. Intellectuals 
 that are not challenged, on the basis of their views, will naturally have no imposing 
 external sources of motivation onto them. They become self-justifying, and if the 
@@ -3420,21 +3420,49 @@ to prevent accidental relinquish of political power to the intellectual. The tra
 aristocrat almost always follows this artificial axiom, and will justify this by presenting 
 the intellectual as someone that values trial-and-error over orthodoxy, a costly liability 
 then. Another common justification is the intellectual's life experience is removed from that 
-of an oversight or militarist role, so the book is all they know. And the book is merely one 
+of an oversight or military role, so the book is all they know. And the book is merely one 
 step above genuine discourse, and genuine discourse one step above gossip. There is a hard line 
 separating the intellectual from the general populace, the aristocrat argues for their 
-incompetency. But the question of an arbitrary intellectual being populist or fringe persists 
-after such a hard line. Artificial axioms devised to implement and thrive a stable society, as 
-people in fixed roles of power and privilege, passed down from one to another in exclusive terms 
-such as familial heritage, poses the idealism of merit as the values greatest when continued 
-through bloodlines. So it is most certainly not always the aristocrat, in society, that cripples 
-the intellectual out of some historically-based fear. Just as the individual has their self-interest, 
-their society, appearing and acting under such things as a national flag or a religious symbol, 
-always have interests declared as one. For example, if a politically-motivated force were to 
-decapitate the intellectual class of a specific region, seldom do the reasons stated not mention 
-political threats from that class. The exclusion of certain members from society speaks to 
-that society's relational posture amongst neighboring peers, as well as how members of that 
-society opine their views and push their products; this can be rephrased in economic terms, 
-but doing so would emphasize the labor and material more, when in many cases, the material 
+incompetence. But with no additional information given, the question of an arbitrary intellectual 
+being populist or fringe persists after such a hard line. Artificial axioms devised to 
+implement and thrive a stable society, as people in fixed roles of power and privilege, passed 
+down from one to another in exclusive terms such as familial heritage, poses the idealism of 
+merit as the values greatest when continued through bloodlines. So it is most certainly not 
+always the aristocrat, in society, that cripples the intellectual out of some historically-based 
+fear. Just as the individual has their self-interest, their society, appearing and acting 
+under such things as a national flag or a religious symbol, always have interests declared 
+as one. For example, if a politically-motivated force were to decapitate the intellectual 
+class of a specific region, seldom do the reasons stated not mention political threats from 
+that class. The exclusion of certain members from society speaks to that society's 
+relational posture amongst neighboring peers, as well as how members of that society 
+opine their views and push their products; this can be rephrased in economic terms, but 
+doing so would emphasize the labor and material more, when in many cases, the material 
 and labor was already there and what was lacking was will used for appreciating the spirit 
-of thought. 
+of thought. Meritocratic procedures are a complicated subject when implemented to cover 
+the various ways that human beings exhibit intellect and physical skill. Suppose that 
+one individual, because of their intellect, was able to pass an entrance exam into an 
+research institution. Another individual is able to excel in business and marketing. 
+In the second case, it can be reasonably argued that the individual may have come to 
+excel through intentional improvements after their specific improvements. And in the 
+first case, the individual was able to do so by some combination of factors, such as 
+access to learning resources and possibly genetic predisposition. Matters that cannot 
+be entirely and objectively measured, such as running speed and maximum weight of 
+lifting, are complicated by the plurality of viable paths, viable because there is 
+gain for the individual to travel down. Objective testing of intellectual aptitude, 
+usually by standardized testing, has been and continues to be put into question. The 
+standard, comprised of rules for scoring and templates for questions, can be learned 
+by a competitive person beforehand. Through the rigor that person dedicates their time 
+to, their testing score will increase, at least up to a certain point. So the human 
+being may have some thresholds to their capabilities, by the metric. However, the human 
+being is not one required to be bound to a metric for every pursuit or activity per span 
+of time. Historically and up till now, a human being governed by the metric is one that 
+is governed by another human being's devices. The most noble aspect of the metric, established 
+as an outcome of empirical studies, is that the metric defines the percentile of human 
+capability. Unfortunately, these percentiles are human-relational, and one human being 
+that scores higher than another has the reason to feel a positive sentiment out of 
+the sole logic of better performance in comparison, so the metric cannot be initially 
+considered anything more than a performance mark for the specific tasks measured. Through 
+the projected ramifications of a specific performance mark, the mark changes in 
+interpretation. Initially, the as-is is identical to the from-itself. Then the as-is 
+in understanding is expanded, as much as human predictive capability allows, for the 
+objective of equaling the what-is of the mark. 
