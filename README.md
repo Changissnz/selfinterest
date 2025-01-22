@@ -3389,7 +3389,7 @@ two labels are represented by two different words, different in definitional mea
 So it is wrong to assume that a politician, by default, will favor intellectual discourse 
 when they are democratic, or to favor intellectual practice when they are republican, 
 when in fact, the politician has the role of representation, that which may include 
-hard power that they can wield. No saying is so concise in an attempt to prove this, 
+hard power that they can wield. No saying is so concise, in an attempt to prove this, 
 as "the pen is mightier than the sword". The politician metaphorically stands on top 
 of both people and industry, and so must look to the people and their work structured 
 into industries, in order to make policies in accordance with these qualities gathered 
