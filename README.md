@@ -3342,8 +3342,22 @@ industrial sectors. A basic economic model posits that there are three sectors, 
 to how there are three primary colors that can produce any other color. The primary 
 sector and the secondary sector, being those responsible for activities concerning 
 raw materials and production from those raw materials, respectively, are not the 
-industries predominated by intellectuals. The primary and secondary sectors, comprised 
-of workers, can be more accurately thought of as labor venues. The tertiary sector is 
-pertinent to intellectuals, but because many occupations form this specific sector, the 
-sector does not revolve around the pursuits of the intellectual. Politicians, the military, 
-artisans, scientists, teachers. The list goes on. 
+industries predominated by intellectual objective. The primary and secondary sectors, 
+comprised of workers, can be more accurately thought of as physically-heavy labor venues. 
+The tertiary sector is pertinent to intellectuals, but because many occupations form 
+this specific sector, the sector does not revolve around the pursuits of the intellectual. 
+Politicians, militarists, artisans, scientists, teachers. The list goes on. In a classist 
+perspective, how would the intellectual thrive if not for who they stand on, as the saying 
+goes, "on the shoulders of giants"? The intellectual would have to allocate time to labor 
+in the fields to produce crops, in slaughterhouses for meat, and in factories to assemble 
+machines and manmade foods. Intellectuals, being ones keen on development of their intellect, 
+something that cannot be repossessed for others, by the criteria of self-attribution, find 
+materialism to pose issues, although this does not indicate much on their uniqueness since 
+every human being persists only because of certain material demands met. Intellectuals become 
+ascetics as a protest against the striving for excess in material for their living, and thus 
+intersects their practices with many religions that denounce the worship of the material. 
+And for that, the intellectual becomes useless to industrial growth, for they feel disgusted 
+with the designs of man that tend to be sold by the numbers of currency coins, after being 
+branded a luxury name, although they may appreciate the design on a from-itself basis, in 
+other words, there is merit to the products out of quality that outshines and overpowers 
+what is the norm, synonymously but not exactly, the baseline for living. 
