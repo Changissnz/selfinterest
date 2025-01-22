@@ -3457,8 +3457,8 @@ being may have some thresholds to their capabilities, by the metric. However, th
 being is not one required to be bound to a metric for every pursuit or activity per span 
 of time. Historically and up till now, a human being governed by the metric is one that 
 is governed by another human being's devices. The most noble aspect of the metric, established 
-as an outcome of empirical studies, is that the metric defines the percentile of human 
-capability. Unfortunately, these percentiles are human-relational, and one human being 
+as an outcome of empirical studies, is that it defines human capability by percentile. 
+Unfortunately, these percentiles are human-relational, and one human being 
 that scores higher than another has the reason to feel a positive sentiment out of 
 the sole logic of better performance in comparison, so the metric cannot be initially 
 considered anything more than a performance mark for the specific tasks measured. Through 
