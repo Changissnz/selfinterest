@@ -3362,14 +3362,14 @@ branded luxury names, although they may appreciate the design on a from-itself b
 other words, there is merit to the products out of quality that outshines and overpowers 
 what is the norm, synonymously but not exactly, the baseline for living. The intellectual 
 that solidifies their thinking into idealist notions, then become agents that outweigh 
-the positive occurrences of those notions over others. The result is the intellectual 
-rejects some particular notions that go against their views, and the intellectual 
-also has to tend to internal forces of discouragement on learning about other ways of 
-thinking and acting; the other end of the extreme, however, is really not any better 
-on the premise of imagining an intellectual as a monkey-esque agent that has no morals 
-or unique styles particular to their spatiotemporal context, instead every human activity 
-that has ever taken place and every human thought expressed becomes subject to their 
-fascination so much that they take the additional step to take up these variants as 
+the positive occurrences labeled as those notions over others. The result is the 
+intellectual rejects some particular notions that go against their views, and the 
+intellectual also has to tend to internal forces of discouragement on learning about 
+other ways of thinking and acting; the other end of the extreme, however, is really not 
+any better on the premise of imagining an intellectual as a monkey-esque agent that has 
+no morals or unique styles particular to their spatiotemporal context, instead every 
+human activity that has ever taken place and every human thought expressed becomes subject 
+to their fascination so much that they take the additional step to take up these variants as 
 part of their outward expression, in order to demonstrate their fascination. Intellectuals 
 that are not challenged, on the basis of their views, will naturally have no imposing 
 external sources of motivation onto them. They become self-justifying, and if the 
