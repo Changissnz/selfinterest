@@ -3358,7 +3358,7 @@ ascetics as protest against the striving for excess in material for their living
 intersect their practices with many religions that denounce the worship of the material. 
 And for that, the intellectual becomes useless to industrial growth, for they feel disgusted 
 with the designs of man that tend to be sold by the numbers of currency coins, after being 
-branded luxury names, although they may appreciate the design on a from-itself basis, in 
+branded luxury names, although they may appreciate the design on a from-oneself basis, in 
 other words, there is merit to the products out of quality that outshines and overpowers 
 what is the norm, synonymously but not exactly, the baseline for living. The intellectual 
 that solidifies their thinking into idealist notions, then becomes an agent that outweighs 
@@ -3463,7 +3463,7 @@ that scores higher than another has the reason to feel a positive sentiment out 
 the sole logic of better performance in comparison, so the metric cannot be initially 
 considered anything more than a performance mark for the specific tasks measured. Through 
 the projected ramifications of a specific performance mark, the mark changes in 
-interpretation. Initially, the as-is is identical to the from-itself. Then the as-is 
+interpretation. Initially, the as-is is identical to the from-oneself. Then the as-is 
 in understanding is expanded, as much as human predictive capability allows, for the 
 objective of equaling the what-is of the mark. The metric, in hierarchical use, can 
 only organize the whole by percentile range into equals, and each segment, of equals, 
