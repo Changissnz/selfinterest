@@ -3381,6 +3381,13 @@ the material world to correct them on possibly fallacious thinking, without havi
 see for themself the sufferings wrought upon those that labor, is truthfully given not 
 the freedom to actively rule. The intellectual, out of their desperation to transcribe their 
 ideas onto material form in order to play the part of an intellectual authority, but 
-without being required to have competent knowledge on the axioms of natural law, may tend 
-to perversely fondle with their head to output ideas of a questionable quality, by default 
-of no additional knowledge outside of this sentence. 
+without being required to have competent and working knowledge on the axioms of natural law, 
+may tend to perversely fondle with their head to output ideas of a questionable quality, 
+by default of no additional knowledge outside of this sentence. It is true that the 
+political and the intellectual are not one and the same, needless to say, since the 
+two labels are represented by two different words, different in definitional meaning. 
+So it is wrong to assume that a politician, by default, will favor intellectual discourse 
+when they are democratic, or to favor intellectual practice when they are republican, 
+when in fact, the politician has the role of representation, that which may include 
+hard power that they can wield. No saying is so concise in an attempt to prove this, 
+as "the pen is mightier than the sword". 
