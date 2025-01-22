@@ -3364,10 +3364,23 @@ what is the norm, synonymously but not exactly, the baseline for living. The int
 that solidifies their thinking into idealist notions, then become agents that outweigh 
 the positive occurrences of those notions over others. The result is the intellectual 
 rejects some particular notions that go against their views, and the intellectual 
-also has to tend to internal forces of discouragement for learning about other ways of 
+also has to tend to internal forces of discouragement on learning about other ways of 
 thinking and acting; the other end of the extreme, however, is really not any better 
 on the premise of imagining an intellectual as a monkey-esque agent that has no morals 
 or unique styles particular to their spatiotemporal context, instead every human activity 
 that has ever taken place and every human thought expressed becomes subject to their 
 fascination so much that they take the additional step to take up these variants as 
-part of their outward expression, in order to satisfy their fascination. 
+part of their outward expression, in order to demonstrate their fascination. Intellectuals 
+that are not challenged, on the basis of their views, will naturally have no imposing 
+external sources of motivation onto them. They become self-justifying, and if the 
+primary and secondary sectors continue producing products affordable to their way of 
+living, the intellectual need not bother, out of biological necessity at least, to give 
+these sectors any second thought. The intellectual, given the freedom to think and produce 
+material in regards to their thinking as part of cultural change, finds that without 
+the material world to correct them on possibly fallacious thinking, without having to 
+see for themself the sufferings wrought upon those that labor, is truthfully given not 
+the freedom to rule. The intellectual, out of their desperation to transcribe their 
+ideas onto material form in order to play the part of an intellectual authority, but 
+without required to have competent knowledge on the axioms of natural law, may tend to 
+perversely fondle with their head for ideas of a questionable quality, by default of 
+no additional knowledge outside of this sentence. 
