@@ -3397,7 +3397,7 @@ from political oversight and transmitted to them. Intellect is a quality that fo
 crucial part of the self. The uniting aspect behind all biological intellect is the 
 quality of self-awareness. A human being is unique, at least according to human perspective, 
 in the sense that they are a "social creature" whose cooperation with and antagonism against 
-others rests on artificial axioms, decision-making metastructures. A human being, if gifted 
+others rest on artificial axioms, decision-making metastructures. A human being, if gifted 
 with an intellect at birth, primed for certain outlets, has the opportunity to be many roles 
 that rest on top of this gift of theirs, although there is question on if these opportunities 
 are really due to intellect or to something else, perhaps their results from start to 
@@ -3410,5 +3410,30 @@ and anger (the expressive sentiments), while the stomach is viewed as a containe
 hatred, sadness, and fear (the hidden sentiments). However true this may be, the mention of 
 human organs, stratified into distinct or predominating roles, is for the purpose of discussing 
 how the rational human being, considerate of the roles of political power and financial leverage, 
-sees another in their conceptualization of the whole, such as a machine that should not malfunction 
-or a cultural dance that should not be interrupted by outsiders. 
+sees another in their conceptualization of the whole, such as a machine that should not 
+malfunction or a cultural dance that should not be interrupted by outsiders. Intellectuals 
+become property owners, and their possessions do offer them bases to acquire additional power. 
+For the aristocrat, the meaning of this observation has always been a heavy matter for 
+consideration. The intellectual that somehow acquires wealth and political power becomes a 
+capable contender to the aristocrat. History teaches the aristocrat to put in place incentives 
+to prevent accidental relinquish of political power to the intellectual. The traditionalist 
+aristocrat almost always follows this artificial axiom, and will justify this by presenting 
+the intellectual as someone that values trial-and-error over orthodoxy, a costly liability 
+then. Another common justification is the intellectual's life experience is removed from that 
+of an oversight or militarist role, so the book is all they know. And the book is merely one 
+step above genuine discourse, and genuine discourse one step above gossip. There is a hard line 
+separating the intellectual from the general populace, the aristocrat argues for their 
+incompetency. But the question of an arbitrary intellectual being populist or fringe persists 
+after such a hard line. Artificial axioms devised to implement and thrive a stable society, as 
+people in fixed roles of power and privilege, passed down from one to another in exclusive terms 
+such as familial heritage, poses the idealism of merit as the greatest values continued through 
+bloodlines. So it is most certainly not always the aristocrat, in society, that cripples the 
+intellectual out of some historically-based fear. Just as the individual has their self-interest, 
+their society, appearing and acting under such things as a national flag or a religious, always 
+have interests as one. For example, if a politically-motivated force were to decapitate the 
+intellectual class of a specific region, seldom do the reasons not include political threats 
+from that class. The exclusion of certain members from society speaks to that society's 
+relational posture amongst neighboring peers, as well as how members of that society opine 
+their views and push their products; this can be rephrased in economic terms, but doing so 
+would emphasize the labor and material more, when in many cases, the material and labor was 
+already there and what was lacking was will used for appreciating the spirit of thought. 
