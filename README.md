@@ -3351,13 +3351,23 @@ perspective, how would the intellectual thrive if not for who they stand on, as 
 goes, "on the shoulders of giants"? The intellectual would have to allocate time to labor 
 in the fields to produce crops, in slaughterhouses for meat, and in factories to assemble 
 machines and manmade foods. Intellectuals, being ones keen on development of their intellect, 
-something that cannot be repossessed for others, by the criteria of self-attribution, find 
+something that cannot be repossessed for others by the criteria of self-attribution, find 
 materialism to pose issues, although this does not indicate much on their uniqueness since 
 every human being persists only because of certain material demands met. Intellectuals become 
-ascetics as a protest against the striving for excess in material for their living, and thus 
-intersects their practices with many religions that denounce the worship of the material. 
+ascetics as protest against the striving for excess in material for their living, and thus 
+intersect their practices with many religions that denounce the worship of the material. 
 And for that, the intellectual becomes useless to industrial growth, for they feel disgusted 
 with the designs of man that tend to be sold by the numbers of currency coins, after being 
-branded a luxury name, although they may appreciate the design on a from-itself basis, in 
+branded luxury names, although they may appreciate the design on a from-itself basis, in 
 other words, there is merit to the products out of quality that outshines and overpowers 
-what is the norm, synonymously but not exactly, the baseline for living. 
+what is the norm, synonymously but not exactly, the baseline for living. The intellectual 
+that solidifies their thinking into idealist notions, then become agents that outweigh 
+the positive occurrences of those notions over others. The result is the intellectual 
+rejects some particular notions that go against their views, and the intellectual 
+also has to tend to internal forces of discouragement for learning about other ways of 
+thinking and acting; the other end of the extreme, however, is really not any better 
+on the premise of imagining an intellectual as a monkey-esque agent that has no morals 
+or unique styles particular to their spatiotemporal context, instead every human activity 
+that has ever taken place and every human thought expressed becomes subject to their 
+fascination so much that they take the additional step to take up these variants as 
+part of their outward expression, in order to satisfy their fascination. 
