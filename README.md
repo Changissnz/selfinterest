@@ -3379,8 +3379,8 @@ these sectors any second thought. The intellectual, given the freedom to think a
 material in regards to their thinking as part of cultural change, finds that without 
 the material world to correct them on possibly fallacious thinking, without having to 
 see for themself the sufferings wrought upon those that labor, is truthfully given not 
-the freedom to rule. The intellectual, out of their desperation to transcribe their 
+the freedom to actively rule. The intellectual, out of their desperation to transcribe their 
 ideas onto material form in order to play the part of an intellectual authority, but 
-without required to have competent knowledge on the axioms of natural law, may tend to 
-perversely fondle with their head for ideas of a questionable quality, by default of 
-no additional knowledge outside of this sentence. 
+without being required to have competent knowledge on the axioms of natural law, may tend 
+to perversely fondle with their head to output ideas of a questionable quality, by default 
+of no additional knowledge outside of this sentence. 
