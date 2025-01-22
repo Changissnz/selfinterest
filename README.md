@@ -3344,6 +3344,6 @@ sector and the secondary sector, being those responsible for activities concerni
 raw materials and production from those raw materials, respectively, are not the 
 industries predominated by intellectuals. The primary and secondary sectors, comprised 
 of workers, can be more accurately thought of as labor venues. The tertiary sector is 
-pertinent to intellectuals because many occupations form this specific sector, so the 
+pertinent to intellectuals, but because many occupations form this specific sector, the 
 sector does not revolve around the pursuits of the intellectual. Politicians, the military, 
 artisans, scientists, teachers. The list goes on. 
