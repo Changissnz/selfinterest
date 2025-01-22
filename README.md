@@ -3430,8 +3430,8 @@ such as familial heritage, poses the idealism of merit as the greatest values co
 bloodlines. So it is most certainly not always the aristocrat, in society, that cripples the 
 intellectual out of some historically-based fear. Just as the individual has their self-interest, 
 their society, appearing and acting under such things as a national flag or a religious, always 
-have interests as one. For example, if a politically-motivated force were to decapitate the 
-intellectual class of a specific region, seldom do the reasons not include political threats 
+have interests declared as one. For example, if a politically-motivated force were to decapitate 
+the intellectual class of a specific region, seldom do the reasons not include political threats 
 from that class. The exclusion of certain members from society speaks to that society's 
 relational posture amongst neighboring peers, as well as how members of that society opine 
 their views and push their products; this can be rephrased in economic terms, but doing so 
