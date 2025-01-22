@@ -3387,7 +3387,7 @@ by default of no additional knowledge outside of this sentence. It is true that 
 political and the intellectual are not one and the same, needless to say, since the 
 two labels are represented by two different words, different in definitional meaning. 
 So it is wrong to assume that a politician, by default, will favor intellectual discourse 
-when they are democratic, or to favor intellectual practice when they are republican, 
+when they are democratic, or favor intellectual practice when they are republican, 
 when in fact, the politician has the role of societal representation, that which may 
 include hard power that they can wield. No saying is so concise, in an attempt to prove 
 this, as "the pen is mightier than the sword". The politician metaphorically stands on 
@@ -3426,9 +3426,9 @@ separating the intellectual from the general populace, the aristocrat argues for
 incompetency. But the question of an arbitrary intellectual being populist or fringe persists 
 after such a hard line. Artificial axioms devised to implement and thrive a stable society, as 
 people in fixed roles of power and privilege, passed down from one to another in exclusive terms 
-such as familial heritage, poses the idealism of merit as the greatest values continued through 
-bloodlines. So it is most certainly not always the aristocrat, in society, that cripples the 
-intellectual out of some historically-based fear. Just as the individual has their self-interest, 
+such as familial heritage, poses the idealism of merit as the values greatest when continued 
+through bloodlines. So it is most certainly not always the aristocrat, in society, that cripples 
+the intellectual out of some historically-based fear. Just as the individual has their self-interest, 
 their society, appearing and acting under such things as a national flag or a religious symbol, 
 always have interests declared as one. For example, if a politically-motivated force were to 
 decapitate the intellectual class of a specific region, seldom do the reasons not include 
