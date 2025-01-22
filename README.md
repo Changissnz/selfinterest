@@ -3322,4 +3322,28 @@ The intellectual is an interesting member of human societies. Some human societi
 take the additional step of demarcating the intellectual into a distinct social 
 class, on arguments entirely justifiable if the environment of such demarcation, 
 any social demarcation in fact, is self-contained; a will that has its way is a 
-will that does not "cave in" or "fragment". 
+will that does not "cave in" or "fragment". Intellectuals are curious agents with 
+respect to the demands of the economy, and the term "economy" is used for more than 
+one single territory. The adversarial forces against intellectuals is of utmost 
+importance in understanding some unifying principles around intellectualism. 
+Anti-intellectualism occurs after recognizing intellectuals as members of a distinct 
+class. Intellectuals are then presented as members that are experientially removed 
+from society at large. Education systems, being the primary institution for the 
+intellectual to grow their knowledge base and refine their intellect, train the 
+intellectual to adopt certain values unattainable by many, to think in certain ways 
+of specifics suitable to the success of their interests, by coincidence possibly 
+their wanted occupation, therefore their forsaking of the fundamental does not allow 
+them to relate in whole to the commoner, one with problems of foundational magnitude 
+for the commoner constitutes the base. By this accounting, the intellectual has to be 
+somewhat removed from the commoner. The commoner, as their title suggests, does common 
+things for a living. The commoner is not known for thinking anything other than common 
+thoughts. The commoner predominantly buys common things. In any nation, there are 
+industrial sectors. A basic economic model posits that there are three sectors, similar 
+to how there are three primary colors that can produce any other color. The primary 
+sector and the secondary sector, being those responsible for activities concerning 
+raw materials and production from those raw materials, respectively, are not the 
+industries predominated by intellectuals. The primary and secondary sectors, comprised 
+of workers, can be more accurately thought of as labor venues. The tertiary sector is 
+pertinent to intellectuals because many occupations form this specific sector, so the 
+sector does not revolve around the pursuits of the intellectual. Politicians, the military, 
+artisans, scientists, teachers. The list goes on. 
