@@ -3468,21 +3468,28 @@ in understanding is expanded, as much as human predictive capability allows, for
 objective of equaling the what-is of the mark. The metric, in hierarchical use, can 
 only organize the whole by percentile range into equals, and each segment, of equals, 
 is designated objectives that require more than that metric. Peers that are equal by 
-the metric are either both accepted or rejected, and this truth sets the stage for 
-unstandard happenings such as disintegrative plurality and dichotomy by competition. 
-And the notion of "luck", as a qualitative judgment of an individual's life, is quite 
-interconnected to the social construct as well as spatiotemporal settings of 
-occurrences. Now imagine if intellect were dedicated towards survivalist and domination 
-strategies. "Luck" would be involved. Merit would be involved. And socio-economic status 
-would be involved. Out of all the various ways authority by royalty or by bureaucracy works, 
-there seems to always be room to question. By the actual events and possible plots concerning 
-this statement, human beings hear and read about all kinds of tales of peculiar 
-individuals, such as those that obsess to see another's head on a silver platter, those 
-that conspire against their "own people", and those that become so apathetic to 
-achievement, out of their belief in the possibility of their intellect being used 
-against their self-interests. What a self-interested individual, that is, one that 
-is committed to the ultimate aims associated with their self-interest, does one day, 
-out of principle, cannot be expected to act by that same principle for the same problem 
+the metric are either both accepted or rejected, if selection is really based on the 
+metric, and this truth sets the stage for unstandard happenings such as disintegrative 
+plurality and dichotomy by competition. And the notion of "luck", as a qualitative 
+judgment of an individual's life, is quite interconnected to the social construct as 
+well as spatiotemporal settings of occurrences. Now imagine if intellect were dedicated 
+towards survivalist and domination strategies. "Luck" would be involved. Merit would 
+be involved. And socio-economic status would be involved. Out of all the various ways 
+authority by royalty or by bureaucracy works, there seems to always be room to 
+question. By the actual events and possible plots concerning this statement, human 
+beings hear and read about all kinds of tales of peculiar individuals, such as those 
+that obsess to see another's head on a silver platter, those that conspire against 
+their "own people", and those that become so apathetic to achievement, out of 
+their belief in the possibility of their intellect being used against their 
+self-interests. What a self-interested individual, that is, one that is committed 
+to the ultimate aims associated with their self-interest, does one day, out of 
+principle, cannot be expected to act by that same principle for the same problem 
 on another day, due not especially to their mortality since death is only once for the 
 individual and their self, but to the coincidences and intentions that constitute differences 
 as scant as nuanced as inputs, but for the outputs, not so much. 
+
+## More on philosophies of self-interest #52 
+
+Why would the human being, out of their self-interest, complicate matters when 
+such complication is not only because of "food for thought", or for "food for 
+thought"? 
