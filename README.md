@@ -3430,7 +3430,7 @@ down from one to another in exclusive terms such as familial heritage, poses the
 merit as the values greatest when continued through bloodlines. So it is most certainly not 
 always the aristocrat, in society, that cripples the intellectual out of some historically-based 
 fear. Just as the individual has their self-interest, their society, appearing and acting 
-under such things as a national flag or a religious symbol, always have interests declared 
+under such things as a national flag or a religious symbol, always has interests declared 
 as one. For example, if a politically-motivated force were to decapitate the intellectual 
 class of a specific region, seldom do the reasons stated not mention political threats from 
 that class. The exclusion of certain members from society speaks to that society's 
