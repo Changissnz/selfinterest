@@ -3485,4 +3485,4 @@ is committed to the ultimate aims associated with their self-interest, does one 
 out of principle, cannot be expected to act by that same principle for the same problem 
 on another day, due not especially to their mortality since death is only once for the 
 individual and their self, but to the coincidences and intentions that constitute differences 
-nuanced as inputs, but for the outputs, not so much. 
+as scant as nuanced as inputs, but for the outputs, not so much. 
