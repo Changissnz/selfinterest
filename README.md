@@ -3558,7 +3558,7 @@ serve conservative interests, meaning that not only do the leaders are to remain
 their righteousness, but also the initiative to change involves disassembling the as-is 
 and re-defining the what-is, in simple mathematical terms, taking three efforts instead 
 of one to move forward, a hassle and an impractical expense then. The division of 
-perspective into two categories, as broad and overlapping as "moral" and "economical", 
+perspective into two categories, the broad and overlapping "moral" and "economical", 
 is expected to be met with unappreciation, a disgust for the inaccuracy of terminology. 
 What is "moral" and what is "economical", many will say should be one and the same. 
 Common arguments include that the artificial axioms born out of economic reasoning are for 
