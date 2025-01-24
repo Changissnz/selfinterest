@@ -3562,8 +3562,8 @@ perspective into two categories, as broad and overlapping as "moral" and "econom
 is expected to be met with unappreciation, a disgust for the inaccuracy of terminology. 
 What is "moral" and what is "economical", many will say should be one and the same. 
 Common arguments include that the artificial axioms born out of economic reasoning is 
-the moral way, and the consequences that are because of these artificial axioms is 
-their misuse, instead of their fundamental flaws, although the artificial axiom is 
+the moral way, and the adverse consequences because of these artificial axioms are 
+their misuse, not their fundamental flaws, although the artificial axiom is 
 at least one step above the fundamental of the axiom of natural law. Gestault. Wholism. 
 Both Westerners and Easterners have formulated fields dedicated to constructing and 
 preserving the oneness of the matters that surround them. 
