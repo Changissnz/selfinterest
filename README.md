@@ -3545,7 +3545,7 @@ societal consensus on the divisions, including but not limited to that of "good"
 One major ramification comes out of human societies' stabilization being reliant on 
 obeying artificial axioms. There are less questions demanded to be asked about the fundamental, 
 what with the prosperity that human societies can attain because they have a stable base 
-of operation that is predominantly their own design, out of self-interest, not subject 
+of operation predominantly of their own design, out of self-interest, not subject 
 in entirety to the indiscriminate wrath and luck of occurrences from the axioms of natural 
 law. When the idea of prosperity is questioned, and certain events are labeled "injustice", 
 the moral perspective supercedes that of the economical perspective, in judgments of as-is 
