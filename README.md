@@ -3504,13 +3504,21 @@ body, and more important, in the spirit of mind for decision-making. Man, out
 of pragmatism, places utmost importance on the economics, in his practice of 
 actualizing, yet says, even believes, that he is one for the universal, one of 
 ideals by default of his being, forced to concede out of his misfortune of 
-being born. Man and woman are virtually identical in this aspect, and the 
-reason why the term "man" was used instead of "woman" is that man, like the 
-sperm, is not the stationary (the egg), and so must reach outwards to project 
-those things that can never be quite contrary to power for him. This is, of 
-course, an archaic viewpoint, especially when one considers the fact that 
-violent and large-scale warfare, as well as sexual intercourse, these activities 
-most representative of man as the sperm, are not the pre-dominant activities 
-of male human beings, however much the two categories of activities may 
-constitute their objective psyche in specifics, and in the broadness that 
-aspires to the universal, their ideals. 
+being born a mortal puny, by the ideals forged through his greed. Man and woman 
+are virtually identical in this aspect, and the reason why the term "man" was 
+used instead of "woman" is that man, like the sperm, is not the stationary (the 
+egg), and so must reach outwards to project those things that can never be quite 
+contrary to his aspiration for power. This is, of course, an archaic viewpoint, 
+especially when one considers the fact that violent and large-scale warfare, 
+as well as sexual intercourse, these activities most representative of man as 
+the sperm, are not the pre-dominant activities of male human beings, however 
+much the two categories of activities may constitute their objective psyche in 
+specifics, and in the broadness that aspires to the universal, their ideals. 
+The economic perspective stresses the human being to be a remorseless pragmatist, 
+for their concerns are predominantly extrinsic and their rationale for abiding 
+by certain artificial axioms, such as institutional prejudice, are due to 
+information presented to them in empirical format, from sources ranging from 
+the authority that commands them to they, themself from their thinking critical 
+by the basis of economics, a field in which participants can never be the whole, 
+from start to finish, and can only win the "whole", in such cases clearly imbalanced 
+although fairness may be another question. 
