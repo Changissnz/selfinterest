@@ -3496,11 +3496,11 @@ thought"? Consider this line of reasoning, such that the words "economical" and
 "moral" can be swapped for one another, due to perspective on the "best" ideal 
 for decision-making. Economical decisions are not all moral decisions, all moral 
 decisions are economical decisions, and all ideals are economical decisions in 
-practice. The statement can be considered obtuse, and perhaps even encouraging 
+practice. The statement can be considered obtuse, and perhaps even encourages 
 cruelty, in the forms of prejudice, for upholding the economical assignment, 
 and hate, in upending the economical assignment, due to sentiments of unfathomable 
 and unfavorable inequality. The economical perspective places man as finite in 
-body, and more important, in the spirit of mind for decision-making. Man, out 
+body, and more importantly, in the spirit of mind for decision-making. Man, out 
 of pragmatism, places utmost importance on the economics, in his practice of 
 actualizing, yet says, even believes, that he is one for the universal, one of 
 ideals by default of his being, forced to concede out of his misfortune of 
@@ -3551,7 +3551,7 @@ law. When the idea of prosperity is questioned, and certain events are labeled "
 the moral perspective supercedes that of the economical perspective, in judgments of as-is 
 (the first impression for understanding). The moral perspective relies on the passions 
 to deliver denunciation, and the forces of passions seek for the probability to win 
-over the imperfect logic of the economical perspective. In historical terms, virtually 
+against the imperfect logic of the economical perspective. In historical terms, virtually 
 all major revolutions, especially those spurred by industrial and/or ideological leanings, 
 are due to the moral perspective, for the economical perspective in these settings usually 
 serve conservative interests, meaning that not only do the leaders are to remain because of 
@@ -3567,3 +3567,6 @@ their misuse, not their fundamental flaws, although the artificial axiom is
 at least one step above the fundamental of the axiom of natural law. Gestault. Wholism. 
 Both Westerners and Easterners have formulated fields dedicated to constructing and 
 preserving the oneness of the matters that surround them. 
+
+## More on philosophies of self-interest #53 
+
