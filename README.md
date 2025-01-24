@@ -3506,7 +3506,7 @@ actualizing, yet says, even believes, that he is one for the universal, one of
 ideals by default of his being, forced to concede out of his misfortune of 
 being born a mortal puny, by the ideals forged through his greed. Man and woman 
 are virtually identical in this aspect, and the reason why the term "man" was 
-used instead of "woman" is that man, like the sperm, is not the stationary (the 
+used instead of "woman" is that man, like the sperm, is not stationary (the 
 egg), and so must reach outwards to project those things that can never be quite 
 contrary to his aspiration for power. This is, of course, an archaic viewpoint, 
 especially when one considers the fact that violent and large-scale warfare, 
