@@ -3538,9 +3538,9 @@ from the moral perspective have been and continue to be presented as something
 objectively measurable, such as the frequency distribution of gross domestic product 
 per household. Human societies, of governmental law and order, are stabilized by the 
 enactment of artificial axioms; these conditions allow for the respectively relevant 
-norms to be known, eventually, by every member of the human society. Predictability 
-of human behavior, due to explicit effects of artificial axioms, is due to the factor 
-of societal consensus on the divisions, including but not limited to that of "good" and 
+norms to be known, eventually, by every member of the human society. Human behavior, 
+by the explicit effects of artificial axioms, is predictable due to the factor of 
+societal consensus on the divisions, including but not limited to that of "good" and 
 "bad", of "beautiful" and "ugly", of "smart" and "stupid", and of "worthy" and "useless". 
 One major ramification comes out of human societies' stabilization being reliant on 
 obeying artificial axioms. There are less questions demanded to be asked about the fundamental, 
