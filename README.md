@@ -3543,18 +3543,18 @@ of human behavior, due to explicit effects of artificial axioms, is due to the f
 of societal consensus on the divisions, including but not limited to that of "good" and 
 "bad", of "beautiful" and "ugly", of "smart" and "stupid", and of "worthy" and "useless". 
 One major ramification comes out of human societies' stabilization reliant on obeying 
-artificial axioms. There are less questions to ask about the fundamental, what with the 
-prosperity that human societies can attain because they have a stable base of operation 
-that is predominantly their own design, out of self-interest, not subject in entirety to 
-the indiscriminate wrath and luck of occurrences from the axioms of natural law. When 
-the idea of prosperity is questioned, and certain events are labeled "injustice", the 
-moral perspective supercedes that of the economic perspective, in judgments of as-is 
+artificial axioms. There are less questions demanded to be asked about the fundamental, 
+what with the prosperity that human societies can attain because they have a stable base 
+of operation that is predominantly their own design, out of self-interest, not subject 
+in entirety to the indiscriminate wrath and luck of occurrences from the axioms of natural 
+law. When the idea of prosperity is questioned, and certain events are labeled "injustice", 
+the moral perspective supercedes that of the economic perspective, in judgments of as-is 
 (the first impression for understanding). The moral perspective relies on the passions 
 to deliver denunciation, and the forces of passions seek for the probability to win 
 over the imperfect logic of the economic perspective. In historical terms, virtually 
 all major revolutions, especially those spurred by industrial and/or ideological leanings, 
 are due to the moral perspective, for the economic perspective in these settings usually 
-serve conservative interests, meaning that not only the leaders are to remain because of 
+serve conservative interests, meaning that not only do the leaders are to remain because of 
 their righteousness, but also the initiative to change involves disassembling the as-is 
 and re-defining the what-is, in simple mathematical terms, taking three efforts instead 
 of one to move forward, a hassle and an impractical expense then. 
