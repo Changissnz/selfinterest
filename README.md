@@ -3554,7 +3554,7 @@ to deliver denunciation, and the forces of passions seek for the probability to 
 over the imperfect logic of the economic perspective. In historical terms, virtually 
 all major revolutions, especially those spurred by industrial and/or ideological leanings, 
 are due to the moral perspective, for the economic perspective in these settings usually 
-serve conservative interests, meaning that not only the leaders are to remain by their 
-righteousness, but also the initiative to change involves disassembly the as-is and 
-re-defining the what-is, in simple mathematical terms, taking two efforts instead of 
-one to move forward, a hassle and an impractical expense then. 
+serve conservative interests, meaning that not only the leaders are to remain because of 
+their righteousness, but also the initiative to change involves disassembling the as-is 
+and re-defining the what-is, in simple mathematical terms, taking three efforts instead 
+of one to move forward, a hassle and an impractical expense then. 
