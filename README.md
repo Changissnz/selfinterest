@@ -3492,14 +3492,14 @@ as scant as nuanced as inputs, but for the outputs, not so much.
 
 Why would the human being, out of their self-interest, complicate matters when 
 such complication is not only because of "food for thought", or for "food for 
-thought"? Consider this line of reasoning, such that the words "economic" and 
+thought"? Consider this line of reasoning, such that the words "economical" and 
 "moral" can be swapped for one another, due to perspective on the "best" ideal 
-for decision-making. Economic decisions are not all moral decisions, all moral 
-decisions are economic decisions, and all ideals are economic decisions in 
+for decision-making. Economical decisions are not all moral decisions, all moral 
+decisions are economical decisions, and all ideals are economical decisions in 
 practice. The statement can be considered obtuse, and perhaps even encouraging 
-cruelty, in the forms of prejudice, for upholding the economic assignment, 
-and hate, in upending the economic assignment, due to sentiments of unfathomable 
-and unfavorable inequality. The economic perspective places man as finite in 
+cruelty, in the forms of prejudice, for upholding the economical assignment, 
+and hate, in upending the economical assignment, due to sentiments of unfathomable 
+and unfavorable inequality. The economical perspective places man as finite in 
 body, and more important, in the spirit of mind for decision-making. Man, out 
 of pragmatism, places utmost importance on the economics, in his practice of 
 actualizing, yet says, even believes, that he is one for the universal, one of 
@@ -3514,7 +3514,7 @@ as well as sexual intercourse, these activities most representative of man as
 the sperm, are not the pre-dominant activities of male human beings, however 
 much the two categories of activities may constitute their objective psyche in 
 specifics, and in the broadness that aspires to the universal, their ideals. 
-The economic perspective stresses the human being to be a remorseless pragmatist, 
+The economical perspective stresses the human being to be a remorseless pragmatist, 
 for their concerns are predominantly extrinsic and their rationale for abiding 
 by certain artificial axioms, such as institutional prejudice, are due to 
 information presented to them in empirical format, from sources ranging from 
@@ -3548,13 +3548,22 @@ what with the prosperity that human societies can attain because they have a sta
 of operation that is predominantly their own design, out of self-interest, not subject 
 in entirety to the indiscriminate wrath and luck of occurrences from the axioms of natural 
 law. When the idea of prosperity is questioned, and certain events are labeled "injustice", 
-the moral perspective supercedes that of the economic perspective, in judgments of as-is 
+the moral perspective supercedes that of the economical perspective, in judgments of as-is 
 (the first impression for understanding). The moral perspective relies on the passions 
 to deliver denunciation, and the forces of passions seek for the probability to win 
-over the imperfect logic of the economic perspective. In historical terms, virtually 
+over the imperfect logic of the economical perspective. In historical terms, virtually 
 all major revolutions, especially those spurred by industrial and/or ideological leanings, 
-are due to the moral perspective, for the economic perspective in these settings usually 
+are due to the moral perspective, for the economical perspective in these settings usually 
 serve conservative interests, meaning that not only do the leaders are to remain because of 
 their righteousness, but also the initiative to change involves disassembling the as-is 
 and re-defining the what-is, in simple mathematical terms, taking three efforts instead 
-of one to move forward, a hassle and an impractical expense then. 
+of one to move forward, a hassle and an impractical expense then. The division of 
+perspective into two categories, as broad and overlapping as "moral" and "economical", 
+is expected to be met with unappreciation, a disgust for the inaccuracy of terminology. 
+What is "moral" and what is "economical", many will say should be one and the same. 
+Common arguments include that the artificial axioms born out of economic reasoning is 
+the moral way, and the consequences that are because of these artificial axioms is 
+their misuse, instead of their fundamental flaws, although the artificial axiom is 
+at least one step above the fundamental of the axiom of natural law. Gestault. Wholism. 
+Both Westerners and Easterners have formulated fields dedicated to constructing and 
+preserving the oneness of the matters that surround them. 
