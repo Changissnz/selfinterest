@@ -3542,8 +3542,8 @@ norms to be known, eventually, by every member of the human society. Predictabil
 of human behavior, due to explicit effects of artificial axioms, is due to the factor 
 of societal consensus on the divisions, including but not limited to that of "good" and 
 "bad", of "beautiful" and "ugly", of "smart" and "stupid", and of "worthy" and "useless". 
-One major ramification comes out of human societies' stabilization reliant on obeying 
-artificial axioms. There are less questions demanded to be asked about the fundamental, 
+One major ramification comes out of human societies' stabilization being reliant on 
+obeying artificial axioms. There are less questions demanded to be asked about the fundamental, 
 what with the prosperity that human societies can attain because they have a stable base 
 of operation that is predominantly their own design, out of self-interest, not subject 
 in entirety to the indiscriminate wrath and luck of occurrences from the axioms of natural 
