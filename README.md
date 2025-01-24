@@ -3543,7 +3543,7 @@ of human behavior, due to explicit effects of artificial axioms, is due to the f
 of societal consensus on the divisions, including but not limited to that of "good" and 
 "bad", of "beautiful" and "ugly", of "smart" and "stupid", and of "worthy" and "useless". 
 One major ramification comes out of human societies' stabilization reliant on obeying 
-artificial axioms. There are less questions to ask about the fundamental, and the 
+artificial axioms. There are less questions to ask about the fundamental, what with the 
 prosperity that human societies can attain because they have a stable base of operation 
 that is predominantly their own design, out of self-interest, not subject in entirety to 
 the indiscriminate wrath and luck of occurrences from the axioms of natural law. When 
