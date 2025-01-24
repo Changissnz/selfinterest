@@ -3550,7 +3550,7 @@ in entirety to the indiscriminate wrath and luck of occurrences from the axioms 
 law. When the idea of prosperity is questioned, and certain events are labeled "injustice", 
 the moral perspective supercedes that of the economical perspective, in judgments of as-is 
 (the first impression for understanding). The moral perspective relies on the passions 
-to deliver denunciation, and the forces of passions seek for the probability to win 
+for denunciation to be delivered, and the forces of passions seek the probability to win 
 against the imperfect logic of the economical perspective. In historical terms, virtually 
 all major revolutions, especially those spurred by industrial and/or ideological leanings, 
 are due to the moral perspective, for the economical perspective in these settings usually 
