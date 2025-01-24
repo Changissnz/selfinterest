@@ -3539,7 +3539,7 @@ objectively measurable, such as the frequency distribution of gross domestic pro
 per household. Human societies, of governmental law and order, are stabilized by the 
 enactment of artificial axioms; these conditions allow for the respectively relevant 
 norms to be known, eventually, by every member of the human society. Human behavior, 
-as the explicit effects from artificial axioms, is predictable due to the factor of 
+as the explicit effects from artificial axioms, is predictable partly due to the factor of 
 societal consensus on the divisions, including but not limited to that of "good" and 
 "bad", of "beautiful" and "ugly", of "smart" and "stupid", and of "worthy" and "useless". 
 One major ramification comes out of human societies' stabilization being reliant on 
