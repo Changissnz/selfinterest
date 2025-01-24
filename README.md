@@ -3492,4 +3492,25 @@ as scant as nuanced as inputs, but for the outputs, not so much.
 
 Why would the human being, out of their self-interest, complicate matters when 
 such complication is not only because of "food for thought", or for "food for 
-thought"? 
+thought"? Consider this line of reasoning, such that the words "economic" and 
+"moral" can be swapped for one another, due to perspective on the "best" ideal 
+for decision-making. Economic decisions are not all moral decisions, all moral 
+decisions are economic decisions, and all ideals are economic decisions in 
+practice. The statement can be considered obtuse, and perhaps even encouraging 
+cruelty, in the forms of prejudice, for upholding the economic assignment, 
+and hate, in upending the economic assignment, due to sentiments of unfathomable 
+and unfavorable inequality. The economic perspective places man as finite in 
+body, and more important, in the spirit of mind for decision-making. Man, out 
+of pragmatism, places utmost importance on the economics, in his practice of 
+actualizing, yet says, even believes, that he is one for the universal, one of 
+ideals by default of his being, forced to concede out of his misfortune of 
+being born. Man and woman are virtually identical in this aspect, and the 
+reason why the term "man" was used instead of "woman" is that man, like the 
+sperm, is not the stationary (the egg), and so must reach outwards to project 
+those things that can never be quite contrary to power for him. This is, of 
+course, an archaic viewpoint, especially when one considers the fact that 
+violent and large-scale warfare, as well as sexual intercourse, these activities 
+most representative of man as the sperm, are not the pre-dominant activities 
+of male human beings, however much the two categories of activities may 
+constitute their objective psyche in specifics, and in the broadness that 
+aspires to the universal, their ideals. 
