@@ -3326,9 +3326,9 @@ will that does not "cave in" or "fragment". Intellectuals are curious agents wit
 respect to the demands of the economy, and the term "economy" is used for more than 
 one single territory. The adversarial forces against intellectuals is of utmost 
 importance in understanding some unifying principles around intellectualism. 
-Anti-intellectualism occurs after recognizing intellectuals as members of a distinct 
-class. Intellectuals are then presented as members that are experientially removed 
-from society at large. Education systems, being the primary institution for the 
+Anti-intellectualism occurs after the recognizing of intellectuals as members of a 
+distinct class. Intellectuals are then presented as members that are experientially 
+removed from society at large. Education systems, being the primary institution for the 
 intellectual to grow their knowledge base and refine their intellect, train the 
 intellectual to adopt certain values unattainable by many, to think in certain ways 
 of specifics suitable to the success of their interests, by coincidence possibly 
