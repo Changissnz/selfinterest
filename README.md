@@ -3561,7 +3561,7 @@ of one to move forward, a hassle and an impractical expense then. The division o
 perspective into two categories, as broad and overlapping as "moral" and "economical", 
 is expected to be met with unappreciation, a disgust for the inaccuracy of terminology. 
 What is "moral" and what is "economical", many will say should be one and the same. 
-Common arguments include that the artificial axioms born out of economic reasoning is 
+Common arguments include that the artificial axioms born out of economic reasoning are for 
 the moral way, and the adverse consequences because of these artificial axioms are 
 their misuse, not their fundamental flaws, although the artificial axiom is 
 at least one step above the fundamental of the axiom of natural law. Gestault. Wholism. 
