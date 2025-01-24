@@ -3549,7 +3549,7 @@ that is predominantly their own design, out of self-interest, not subject in ent
 the indiscriminate wrath and luck of occurrences from the axioms of natural law. When 
 the idea of prosperity is questioned, and certain events are labeled "injustice", the 
 moral perspective supercedes that of the economic perspective, in judgments of as-is 
-(the first impression in understanding). The moral perspective relies on the passions 
+(the first impression for understanding). The moral perspective relies on the passions 
 to deliver denunciation, and the forces of passions seek for the probability to win 
 over the imperfect logic of the economic perspective. In historical terms, virtually 
 all major revolutions, especially those spurred by industrial and/or ideological leanings, 
