@@ -3521,4 +3521,18 @@ information presented to them in empirical format, from sources ranging from
 the authority that commands them to they, themself from their thinking critical 
 by the basis of economics, a field in which participants can never be the whole, 
 from start to finish, and can only win the "whole", in such cases clearly imbalanced 
-although fairness may be another question. 
+although fairness may be another question. The moral perspective of the statement, 
+at the center of this discussion thus far, is one based on the thoughts and 
+feelings of the human being. Such thinking and feeling can, on rare occasion, 
+produce truths that are axioms of natural law, or artificial axioms much superior 
+in others in harnessing one or more axioms of natural law. However, the strength 
+of the moral perspective does not rest on the material, and many times the perspective 
+ignores the ends and downplays the beginnings, in however the permutatorial 
+choice. The moral perspective expresses the universal, and when confronted to 
+provide proof, utilizes that which is intrinsic to each and every human being, 
+despite their background, appearance, capability, and status, posing these qualities 
+of the intrinsic as the ideals, so argues for these ideals as the objective, devoid 
+of inconvenient happenings and orders belonging to the spatiotemporal context. The 
+moral perspective can be as cold as pure logic, since the initiatives from the 
+moral perspective has been and continues to be presented as something objectively 
+measurable, such as the collective distribution of gross domestic product per household. 
