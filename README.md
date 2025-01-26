@@ -3647,4 +3647,8 @@ is lost such that priorities involving notions such as supremacy must be re-inst
 through ending proof of competition. Meritocracies can prove fatalistic, can they not? 
 Things get set into place, the procedures and the people, and then the wheel is spun by 
 the effort from the will. Then the wheel terminates by the inevitability of the axiom 
-of natural law. 
+of natural law. Artificial axioms cannot be entirely followed by every human being, 
+without there also being protocols that rely on instantiation of axioms of natural law. 
+A human being may find an artificial axiom to be foolish to heed, and denounces it in 
+so proud and outward fashion that another human being, a proponent of that same artificial 
+axiom, interprets their decision as cause for antagonism. 
