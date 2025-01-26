@@ -3651,4 +3651,5 @@ of natural law. Artificial axioms cannot be entirely followed by every human bei
 without there also being protocols that rely on instantiation of axioms of natural law. 
 A human being may find an artificial axiom to be foolish to heed, and denounces it in 
 so proud and outward fashion that another human being, a proponent of that same artificial 
-axiom, interprets their decision as cause for antagonism. 
+axiom, interprets their decision as cause for antagonism. A cause for correction. A role 
+to play. 
