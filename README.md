@@ -3623,3 +3623,9 @@ self-interest, because the individual does not heed to the prescription of the
 artificial axiom; the question of who benefits from such prescription to the artificial 
 axiom remains, but by the default selfishness a part of self-interest, the benefactor 
 is assumed to be the private enterprise, in other words, a rival entity to the individual. 
+The artificial axioms provide the cause for human beings to be principled, yet human 
+beings are not mechanistically programmed to adhere to them. Any human being, out of 
+self-interest, is a private agent. This is their default categorization, an individual 
+with physical traits possible to be known, and underlying psyche possible to be approximated 
+into general descriptions containing their inclinations and motives, and this allows 
+a predictability on their fulfilling their objectives.
