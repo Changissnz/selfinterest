@@ -3670,4 +3670,7 @@ enabling spontaneous alternatives in certain matters, and other artificial axiom
 precedence in decision-making. The term opponents use for those that operate by a 
 principle of exceptions is "hypocrisy". It has already been stated in this text that 
 the artificial axiom is not an autocorrecting tool. This discussion serves to illustrate 
-some more on that statement. 
+some more on that statement; the artificial axiom could be a principle of exceptions 
+never leading to any meaningful consensus. So besides from the fact that the artificial 
+axiom is not something that is, for the sentient being, will-less, the sentient being 
+cannot have their actions reliably justified by the artificial axiom. 
