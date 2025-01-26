@@ -3657,4 +3657,15 @@ would be foolhardy to debate, if peace is to be preserved. Cultural institutions
 magnetize the individuals of their vicinity, in ways that norms and expectations are set, by 
 implication that is the ramification from the tenets of the cultural institution. Effective 
 cultural institutions can exert effectiveness in rule equivalent to that of national law, and these 
-occurrences prove the multi-expressive manifestation of artificial axioms. 
+occurrences prove the multi-expressive manifestation of artificial axioms. An artificial axiom, 
+as a device effective in the socio-economic context, must account for the principle of individuation. 
+Out of one thing, such as a concept, there can be many cases, and these cases are unique 
+enough to be different,along many measures, to one another. But the cases are all attributed to 
+that one thing, and by logic, none of the cases would exist as they do without being from that 
+one concept. When some human beings arrive at the conclusion that an artificial axiom can no 
+longer serve its individuation, specifically those human being's preferences for a specific 
+matter, then the artificial axiom becomes more of a principle of exceptions. A principle of 
+exceptions does not contain the individuation. Such principles are broken, out of their 
+enabling spontaneous alternatives in certain matters, and other artificial axioms take 
+precedence in decision-making. The term opponents use for those that operate by a 
+principle of exceptions is "hypocrisy".
