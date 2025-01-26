@@ -3587,4 +3587,10 @@ lack of experience is what prolongs their impartiality. The words from the
 naive mind are an accurate transmission of that mind's memories, regarding 
 their perception, and views. The naive are fair because they are not beholden 
 to externally-based motives, and also lack awareness on the specificities of 
-the consequence corresponding to each relevant action. 
+the consequence corresponding to each relevant action. The naive are not as 
+functionally able only because they are not habitually developed, unaware of 
+views adversarial to their specific existences, and lacking in knowledge that 
+enables their judgment of the future based on their perception. But these 
+three reasons are, in fact, important distinguishers between the ignorant 
+and the learned, the unskilled and skilled, the representative and the 
+commoner, amongst other dualities. 
