@@ -3598,4 +3598,13 @@ the ignorant can become capable, while the learned can resort to wickedness
 through the implementations out of their attained knowledge. Likewise, the 
 unskilled could know the fundamentals for why the skilled are such, and only 
 because of the division of labor are the skilled designated roles typically 
-more prestigious than the unskilled. 
+more prestigious than the unskilled. Distinguishers are for the cause of 
+recognizing any noun by one or more adjectives, out of the probable labels. 
+Consider the probability that a distinguisher fails to maintain relevance; 
+the distinguisher, being an artificial axiom agreed upon by the powers 
+governing society, ceases to produce arrangements comparable to those of 
+the past, encouraging self-interest to decide on bases heavily leaned 
+towards the passions of motivation with regard to the logic of the artificial 
+axiom that is not of the present, a historical relic, even a vice, a backwardness 
+that was uncalled for and thus rightfully discarded as a prevailing artificial 
+axiom. 
