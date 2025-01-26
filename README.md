@@ -3628,4 +3628,20 @@ beings are not mechanistically programmed to adhere to them. Any human being, ou
 self-interest, is a private agent. This is their default categorization, an individual 
 with physical traits possible to be known, and underlying psyche possible to be approximated 
 into general descriptions containing their inclinations and motives, and this allows 
-a predictability on their fulfilling their objectives.
+a predictability on their fulfilling their objectives. Transformation, phenomena that 
+can take forms such as the physical change of a caterpillar to a butterfly, or one person's 
+words into their motive, is change that, if relevant, is typically accounted for in some 
+way, such as being guarded against if viewed adversarial by the self-interest of some human 
+beings. For example, even in nations that consider themselves structured wholly by merit, 
+these nations do have artificial axioms in place to guard against unwanted social mobility. 
+The concept of meritocracy is enacted by the practice of correspondence theory. An 
+individual excels in something, and this is proven by their performance marks. The 
+individual gets somewhere, such as being promoted to a position in a bureaucracy. There, 
+in the bureaucracy, the individual works for the bureaucratic initiatives. The bureaucracy 
+accepts the individual into its ranks, in great part because the individual has merit 
+by the marks pertinent to judgment of their worthiness. In turn, this same bureaucracy 
+becomes hostile to other individuals that may excel in areas, perhaps better than that 
+individual, at their peak, and this division could prove to be a great source of 
+rivalry, contained during prosperity and peace, and unleashed when collective direction 
+is lost and priorities involving notions such as supremacy must be re-instated through 
+ending proof of competition. 
