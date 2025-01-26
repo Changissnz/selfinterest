@@ -3649,7 +3649,7 @@ Things get set into place, the procedures and the people, and then the wheel is 
 the effort from the will. Then the wheel terminates by the inevitability of the axiom 
 of natural law. Artificial axioms cannot be entirely followed by every human being, 
 without there also being protocols that rely on instantiation of axioms of natural law. 
-A human being may find an artificial axiom to be foolish to heed, and denounces it in 
+A human being may find an artificial axiom foolish to heed, and denounces it in 
 so proud and outward of a fashion that another human being, a proponent of that same artificial 
 axiom, interprets their decision as cause for antagonism. A cause for correction. A role 
 to play. The artificial axiom, when implemented effectively enough to become institutionalized, 
