@@ -3644,4 +3644,7 @@ becomes hostile to other individuals that may excel in areas, perhaps better tha
 individual, at their peak, and this division could prove to be a great source of 
 rivalry, contained during prosperity and peace, and unleashed when collective direction 
 is lost and priorities involving notions such as supremacy must be re-instated through 
-ending proof of competition. 
+ending proof of competition. Meritocracies can prove fatalistic, can they not? Things 
+get set into place, the procedures and the people, and then the wheel is spun by 
+the effort from the will. Then the wheel terminates by the inevitability of the axiom 
+of natural law. 
