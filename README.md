@@ -3650,6 +3650,11 @@ the effort from the will. Then the wheel terminates by the inevitability of the 
 of natural law. Artificial axioms cannot be entirely followed by every human being, 
 without there also being protocols that rely on instantiation of axioms of natural law. 
 A human being may find an artificial axiom to be foolish to heed, and denounces it in 
-so proud and outward fashion that another human being, a proponent of that same artificial 
+so proud and outward of a fashion that another human being, a proponent of that same artificial 
 axiom, interprets their decision as cause for antagonism. A cause for correction. A role 
-to play. 
+to play. The artificial axiom, when implemented effectively enough to become institutionalized, 
+would be foolhardy to debate, if peace is to be preserved. Cultural institutions, in particular, 
+magnetize the individuals of their vicinity, in ways that norms and expectations are set, by 
+implication that is the ramification from the tenets of the cultural institution. Effective 
+cultural institutions can exert effect of rule equivalent to that of national law, and these 
+occurrences prove the multi-expressive manifestation of artificial axioms. 
