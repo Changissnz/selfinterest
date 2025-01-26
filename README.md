@@ -3607,4 +3607,13 @@ the past, encouraging self-interest to decide on bases heavily leaned
 towards the passions of motivation with regard to the logic of the artificial 
 axiom that is not of the present, a historical relic, even a universal vice by 
 principle, a backwardness that was uncalled for and thus rightfully discarded 
-from being one of the prevailing artificial axioms. 
+from being one of the prevailing artificial axioms. Complications, out of 
+the force of self-interest, found within all human beings yet more influentially 
+pronounced in some more than others, that then effect rule through norms. The 
+demands of individuals drive them to ignore particular artificial axioms, in 
+their path to meet their demands. And without the will to place barriers, 
+invisible for the purpose of maintaining an openness conducive to forms of 
+transmission, most frequently through finance and all those ensuing laws with 
+the capital, these individuals do fulfill their demands, much to the chagrin 
+of the proponents for the artificial axioms meant to both deter those individuals 
+and benefit them, the proponents, through the specifics of that openness. 
