@@ -3617,3 +3617,9 @@ transmission and most frequently through finance, as well as all those ensuing l
 with the capital, these individuals do fulfill their demands, much to the chagrin 
 of the proponents for the artificial axioms meant to both deter those individuals 
 and exclusively benefit them, the proponents, through the specifics of that openness. 
+Oftentimes in societies of lenient governance, it is private enterprise that 
+haunts the individual, with aims to break that individual's objectives out of their 
+self-interest, because the individual does not heed to the prescription of the 
+artificial axiom; the question of who benefits from such prescription to the artificial 
+axiom remains, but by the default selfishness a part of self-interest, the benefactor 
+would be the private enterprise, in other words, a rival entity to the individual. 
