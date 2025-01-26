@@ -3612,8 +3612,8 @@ the force of self-interest, found within all human beings yet more influentially
 pronounced in some more than others, that then effect rule through norms. The 
 demands of individuals drive them to ignore particular artificial axioms, in 
 their path to meet their demands. And without the will to place barriers, 
-invisible for the purpose of maintaining an openness conducive to forms of 
-transmission, most frequently through finance and all those ensuing laws with 
-the capital, these individuals do fulfill their demands, much to the chagrin 
+invisible for the purpose of maintaining an openness conducive to certain forms of 
+transmission and most frequently through finance, as well as all those ensuing laws 
+with the capital, these individuals do fulfill their demands, much to the chagrin 
 of the proponents for the artificial axioms meant to both deter those individuals 
-and benefit them, the proponents, through the specifics of that openness. 
+and exclusively benefit them, the proponents, through the specifics of that openness. 
