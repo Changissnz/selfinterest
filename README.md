@@ -3662,8 +3662,8 @@ as a device effective in the socio-economic context, must account for the princi
 Out of one thing, such as a concept, there can be many cases, and these cases are unique 
 enough to be different,along many measures, to one another. But the cases are all attributed to 
 that one thing, and by logic, none of the cases would exist as they do without being from that 
-one concept. When some human beings arrive at the conclusion that an artificial axiom can no 
-longer serve its individuation, specifically those human being's preferences for a specific 
+one concept. When some human beings arrive at the conclusion that an artificial axiom no 
+longer serves its individuation, specifically those human beings' preferences for a specific 
 matter, then the artificial axiom becomes more of a principle of exceptions. A principle of 
 exceptions does not contain the individuation. Such principles are broken, out of their 
 enabling spontaneous alternatives in certain matters, and other artificial axioms take 
