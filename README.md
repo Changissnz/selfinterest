@@ -3593,4 +3593,9 @@ views adversarial to their specific existences, and lacking in knowledge that
 enables their judgment of the future based on their perception. But these 
 three reasons are, in fact, important distinguishers between the ignorant 
 and the learned, the unskilled and skilled, the representative and the 
-commoner, amongst other dualities. 
+commoner, amongst other dualities. Also important to note is the fact that 
+the ignorant can become capable, while the learned can resort to wickedness 
+through the implementations out of their attained knowledge. Likewise, the 
+unskilled could know the fundamentals for why the skilled are such, and only 
+because of the division of labor are the skilled designated roles typically 
+more prestigious than the unskilled. 
