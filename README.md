@@ -3606,5 +3606,5 @@ governing society, ceases to produce arrangements comparable to those of
 the past, encouraging self-interest to decide on bases heavily leaned 
 towards the passions of motivation with regard to the logic of the artificial 
 axiom that is not of the present, a historical relic, even a vice, a backwardness 
-that was uncalled for and thus rightfully discarded as a prevailing artificial 
-axiom. 
+that was uncalled for and thus rightfully discarded from being one of the prevailing 
+artificial axioms. 
