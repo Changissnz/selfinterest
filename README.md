@@ -3674,3 +3674,6 @@ some more on that statement; the artificial axiom could be a principle of except
 never leading to any meaningful consensus. So besides from the fact that the artificial 
 axiom is not something that is, for the sentient being, will-less, the sentient being 
 cannot have their actions constantly justified by the artificial axiom. 
+
+## More on philosophies of self-interest #54 
+
