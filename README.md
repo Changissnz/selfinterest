@@ -3581,7 +3581,7 @@ lyrical, expressions from the passions of purported unpredictability. A naive
 mind, being a witness to the events conducted by humankind, their half-hearted 
 labors for an extra coin, their majestic words to drown out the sorrows of 
 disappointments and outrage of the populace, and tales of individual human 
-existences near and far, cannot understand in full due to having insufficient 
+existences near and far, cannot understand in full, due to having insufficient 
 background knowledge and unsharpened cognitive tools. And yet, the naive mind's 
 lack of experience is what prolongs their impartiality. The words from the 
 naive mind are an accurate transmission of that mind's memories, regarding 
@@ -3640,7 +3640,7 @@ individual gets somewhere, such as being promoted to a position in a bureaucracy
 in the bureaucracy, the individual works for the bureaucratic initiatives. The bureaucracy 
 accepts the individual into its ranks, in great part because the individual has merit 
 by the marks pertinent to judgment of their worthiness. In turn, this same bureaucracy 
-becomes hostile to other individuals that may excel in areas, perhaps better than that 
+becomes choicefully hostile to other individuals that may excel in areas, perhaps better than that 
 individual, at their peak, and this division could prove to be a great source of 
 rivalry, contained during prosperity and peace, and unleashed when collective direction 
 is lost such that priorities involving notions such as supremacy must be re-instated 
@@ -3665,12 +3665,12 @@ that one thing, and by logic, none of the cases would exist as they do without b
 one concept. When some human beings arrive at the conclusion that an artificial axiom no 
 longer serves its individuation, specifically those human beings' preferences for a specific 
 matter, then the artificial axiom becomes more of a principle of exceptions. A principle of 
-exceptions does not contain the individuation. Such principles are broken, out of their 
-enabling spontaneous alternatives in certain matters, and other artificial axioms take 
+exceptions does not contain the individuation. Such principles can break in expression, out 
+of their enabling spontaneous alternatives in certain matters, to let other artificial axioms take 
 precedence in decision-making. The term opponents use for those that operate by a 
 principle of exceptions is "hypocrisy". It has already been stated in this text that 
 the artificial axiom is not an autocorrecting tool. This discussion serves to illustrate 
 some more on that statement; the artificial axiom could be a principle of exceptions 
 never leading to any meaningful consensus. So besides from the fact that the artificial 
 axiom is not something that is, for the sentient being, will-less, the sentient being 
-cannot have their actions reliably justified by the artificial axiom. 
+cannot have their actions constantly justified by the artificial axiom. 
