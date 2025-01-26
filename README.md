@@ -3609,8 +3609,8 @@ axiom that is not of the present, a historical relic, even a universal vice by
 principle, a backwardness that was uncalled for and thus rightfully discarded 
 from being one of the prevailing artificial axioms. Complications, out of 
 the force of self-interest found within all human beings, yet more influentially 
-pronounced in some more than others, then effect rule through norms. The 
-demands of individuals drive them to ignore particular artificial axioms, in 
+pronounced in some more than others, then effect rule through inconsistency by norms. 
+The demands of individuals drive them to ignore particular artificial axioms, in 
 their path to meet their demands. And without the will to place barriers, 
 invisible for the purpose of maintaining an openness conducive to certain forms of 
 transmission, most frequently for finance and all those ensuing laws with the 
