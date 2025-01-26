@@ -3573,4 +3573,18 @@ preserving the oneness of the matters that surround them.
 The adversarial human being has a great demand for control of complication, 
 similar to how biological ailments, driven by agents of disease and death, 
 complicate the musculoskeletal and/or immune systems in ways non-localized, 
-perhaps unrecognizable to diagnosis by medical specialists. 
+perhaps unrecognizable to diagnosis by medical specialists. Adversarial 
+social environments are ripe with the machinations of human beings, systematic 
+in truth yet unable to be wholly proven as entirely deliberate, so much that 
+the machination could be called an orchestration, creative and spontaneous and 
+lyrical, expressions from the passions of purported unpredictability. A naive 
+mind, being a witness to the events conducted by humankind, their half-hearted 
+labors for an extra coin, their majestic words to drown out the sorrows of 
+disappointments and outrage of the populace, and tales of individual human 
+existences near and far, cannot understand in full due to having insufficient 
+background knowledge and unsharpened cognitive tools. And yet, the naive mind's 
+lack of experience is what prolongs their impartiality. The words from the 
+naive mind are an accurate transmission of that mind's memories, regarding 
+their perception, and views. The naive are fair because they are not beholden 
+to externally-based motives, and also lack awareness on the specificities of 
+the consequence corresponding to each relevant action. 
