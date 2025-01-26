@@ -3656,5 +3656,5 @@ to play. The artificial axiom, when implemented effectively enough to become ins
 would be foolhardy to debate, if peace is to be preserved. Cultural institutions, in particular, 
 magnetize the individuals of their vicinity, in ways that norms and expectations are set, by 
 implication that is the ramification from the tenets of the cultural institution. Effective 
-cultural institutions can exert effect of rule equivalent to that of national law, and these 
+cultural institutions can exert effectiveness in rule equivalent to that of national law, and these 
 occurrences prove the multi-expressive manifestation of artificial axioms. 
