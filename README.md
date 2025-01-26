@@ -3570,3 +3570,7 @@ preserving the oneness of the matters that surround them.
 
 ## More on philosophies of self-interest #53 
 
+The adversarial human being has a great demand for control of complication, 
+similar to how biological ailments, driven by agents of disease and death, 
+complicate the musculoskeletal and/or immune systems in ways non-localized, 
+perhaps unrecognizable to diagnosis by medical specialists. 
