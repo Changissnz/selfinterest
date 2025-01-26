@@ -3622,4 +3622,4 @@ haunts the individual, with aims to break that individual's objectives out of th
 self-interest, because the individual does not heed to the prescription of the 
 artificial axiom; the question of who benefits from such prescription to the artificial 
 axiom remains, but by the default selfishness a part of self-interest, the benefactor 
-would be the private enterprise, in other words, a rival entity to the individual. 
+is assumed to be the private enterprise, in other words, a rival entity to the individual. 
