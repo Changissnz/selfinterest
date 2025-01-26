@@ -3601,10 +3601,10 @@ because of the division of labor are the skilled designated roles typically
 more prestigious than the unskilled. Distinguishers are for the cause of 
 recognizing any noun by one or more adjectives, out of the probable labels. 
 Consider the probability that a distinguisher fails to maintain relevance; 
-the distinguisher, being an artificial axiom agreed upon by the powers 
+the distinguisher, serving an artificial axiom agreed upon by the powers 
 governing society, ceases to produce arrangements comparable to those of 
 the past, encouraging self-interest to decide on bases heavily leaned 
 towards the passions of motivation with regard to the logic of the artificial 
-axiom that is not of the present, a historical relic, even a vice, a backwardness 
-that was uncalled for and thus rightfully discarded from being one of the prevailing 
-artificial axioms. 
+axiom that is not of the present, a historical relic, even a universal vice by 
+principle, a backwardness that was uncalled for and thus rightfully discarded 
+from being one of the prevailing artificial axioms. 
