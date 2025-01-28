@@ -3783,7 +3783,7 @@ Nobunaga. The fighting was quite focused on the authority over the land, and
 when the French began colonization, the spirit of intellect by the Vietnamese was 
 that revolving around political ideology, of their conceptualizations of the republic, 
 the state, democracy, and communism, as if their collective soul was sucked into the 
-null void and they had to rediscover themselves again. Comparison of these two nations' 
+null void, forcing them to rediscover themselves again. Comparison of these two nations' 
 development over the past thousand years, of course, cannot be reduced to the concepts 
 of "loyalty" and "honor". Besides from geography playing a pivotal factor, the mores 
 of the two nations, based around conceptualizations of honor that placed importance 
