@@ -3743,10 +3743,10 @@ in preserving moral integrity. On matters of restriction, the honorable are
 restricted to acting by a set of principles. In other words, the psyche of the 
 honorable is governed by artificial axioms that are fixtures to their modus 
 operandi. The loyal, on the other hand, do not act for the metaphysical artificial 
-axiom, although are nevertheless predictable by their restriction to serving their 
-associates and superiors. Loyalty is personal. Both "loyalty" and "honor" are 
-part of human activity for the purpose of combatting unwanted change. Loyalty, 
-being a personal attachment, favors the familiar and the incumbents. And honor 
-judges the magnitude and quality of what is present with the past. As such, 
-the honorable are superior to the loyal in improvement by innovation and fighting 
-corruption.
+axioms that are impartial to any human being, although are nevertheless predictable 
+by their restriction to serving their associates and superiors. Loyalty is personal. 
+Both "loyalty" and "honor" are part of human activity for the purpose of combatting 
+unwanted change. Loyalty, being a personal attachment, favors the familiar and the 
+incumbents. And honor judges the magnitude and quality of what is present with the 
+past. As such, the honorable are superior to the loyal in improvement by innovation 
+and fighting corruption.
