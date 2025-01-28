@@ -3744,29 +3744,29 @@ restricted to acting by a set of principles. In other words, the psyche of the
 honorable is governed by artificial axioms that are fixtures to their modus 
 operandi. The loyal, on the other hand, do not act for the metaphysical artificial 
 axioms that are impartial to any human being, although are nevertheless predictable 
-by their restriction to serving their associates and superiors. Loyalty is personal. 
-Both "loyalty" and "honor" are part of human activity for the purpose of combatting 
-unwanted change. Loyalty, being a personal attachment, favors the familiar and the 
-incumbents. And honor judges the magnitude and quality of what is present with that 
-of the past. As such, the honorable are superior to the loyal in improvement by 
-innovation and fighting corruption. Merchants constitute a comprehensive 
-class of human beings, in the sense that they are constantly balancing "loyalty" with 
-"honor". Merchants are traders, and rightfully, there are reservations about activities 
-of trading, for traitors are traitors because they trade values of material and information 
-against their professed loyalties. The greatest benefit bestowed upon the trader is 
-that since they are demanded to interact with other human beings for exchange of 
-material, they oftentimes have to metaphorically break down barriers for demanded 
-products to circulate. Traders are less psychologically resigned to principles, with 
-aims concerning two major categories of objectives: capital profit and human connections. 
-The competent trader is a master of relativity, from having to re-adjust their prices 
-and interact with different peoples. Through this mastery of the relative, the big 
-trader is a ruler of trade, reinforced by the loyalties of others for them. The trader 
-that grows successful is also one of reputed honor, in some aspects, such as maintenance 
-of agreements when faced with adversarial commercial conditions. Merchants are interesting, 
-as case studies, because their loyalties are not immediately known, and their honor 
-is very much tied to human connections and profit. Whereas the bureaucrat may 
-be just as immoral as the merchant, the bureaucrat is fixed in place, having to 
-be an agent for their bureaucracy. The honor that the bureaucrat claims to have 
+by their restriction to serving their associates and superiors. Loyalty is personal, 
+from one human being to another. Both "loyalty" and "honor" are part of human activity 
+for the purpose of combatting unwanted change. Loyalty, being a personal attachment, 
+favors the familiar and the incumbents. And honor judges the magnitude and quality 
+of what is present with that of the past. As such, the honorable are superior to the 
+loyal in improvement by innovation and fighting corruption. Merchants constitute a 
+comprehensive class of human beings, in the sense that they are constantly balancing 
+"loyalty" with "honor". Merchants are traders, and rightfully, there are reservations 
+about activities of trading, for traitors are traitors because they trade values of 
+material and information against their professed loyalties. The greatest benefit 
+bestowed upon the trader is that since they are demanded to interact with other human 
+beings for exchange of material, they oftentimes have to metaphorically break down 
+barriers for demanded products to circulate. Traders are less psychologically resigned 
+to principles, with aims concerning two major categories of objectives: capital profit 
+and human connections. The competent trader is a master of relativity, from having to 
+re-adjust their prices and interact with different peoples. Through this mastery of the 
+relative, the big trader is a ruler of trade, reinforced by the loyalties of others for 
+them. The trader that grows successful is also one of reputed honor, in some aspects, 
+such as maintenance of agreements when faced with adversarial commercial conditions. 
+Merchants are interesting, as case studies, because their loyalties are not immediately 
+known, and their honor is very much tied to human connections and profit. Whereas the 
+bureaucrat may be just as immoral as the merchant, the bureaucrat is fixed in place, 
+having to be an agent for their bureaucracy. The honor that the bureaucrat claims to have 
 had before their entrance into the bureaucracy may be genuine in spirit, but becomes 
 operationally institutionalized in practice. In the national context, the cases of 
 Vietnam and Japan have a lot to offer for discussion on "loyalty" and "honor". 
