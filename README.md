@@ -3717,4 +3717,9 @@ of wrongdoing is frequently told in a factual kind of way, with undertones signi
 an apathy on the premise of helplessness for the inevitable wickedness of human 
 beings, in their oscillating movements of attempting to correct actions by 
 other actions, and then to narrate on these actions using labels of "good" and 
-"bad", typically by the basis of their being the good. 
+"bad", typically by the basis of their being the good. "Loyalty" and "honor", 
+ideals universally recognized by human beings, also require bases to support 
+the qualities of the populace, so that the practice of these ideals cannot be 
+immediately subject to rejection by the weakness of enabling relativity, when 
+in such cases, relativity enables unpredictable re-defining of the societal 
+norms, of representatives and attitudes.  
