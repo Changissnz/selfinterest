@@ -3730,9 +3730,9 @@ servitude. A human being that remains loyal may, in fact, be dishonorable for
 supporting what has turned ghastly wrong. And another human being can be honorable 
 by not remaining loyal to what has become a hindrance, a force corrupting to their 
 independence. A human being with unquestioning loyalty is one whose honor is 
-associated, in all aspects, to that loyalty. A prejudiced honor is a betrayal 
-to the universal understanding of honor, but the "social creature", the "political 
-animal" that is the human being is one that has much difficulty in tending to their 
-locality as in understanding the universal; as such, the typical human being cannot 
-be expected to be honorable without external cause, or to be loyal when there are 
-better options, and this is not only because of selfishness.
+exclusively associated, in all aspects, to that loyalty. A prejudiced honor is a 
+betrayal to the universal understanding of honor, but the "social creature", the 
+"political animal" that is the human being is one that has much difficulty in tending 
+to their locality as in understanding the universal; as such, the typical human 
+being cannot be expected to be honorable without external cause, or to be loyal 
+when there are better options, and this is not only because of selfishness.
