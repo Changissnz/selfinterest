@@ -3738,4 +3738,10 @@ human being cannot be expected to be honorable without external cause, or to be
 loyal when there are better options, and this is not only because of selfishness. 
 When one betrays to break a loyalty, another human being is the recipient of the 
 betrayal. And when one betrays to break an honor, they betray the goodness of 
-their conscience and stain their ideals. 
+their conscience and stain their ideals. Honor is, therefore, superior to loyalty 
+in preserving moral integrity. On matters of restriction, the honorable are 
+restricted to acting by a set of principles. In other words, the psyche of the 
+honorable is governed by artificial axioms that are fixtures to their modus 
+operandi. The loyal, on the other hand, do act act for the metaphysical artificial 
+axiom, but are predictable by their restriction to serving their associates and 
+superiors. Loyalty is personal. 
