@@ -3747,6 +3747,10 @@ axioms that are impartial to any human being, although are nevertheless predicta
 by their restriction to serving their associates and superiors. Loyalty is personal. 
 Both "loyalty" and "honor" are part of human activity for the purpose of combatting 
 unwanted change. Loyalty, being a personal attachment, favors the familiar and the 
-incumbents. And honor judges the magnitude and quality of what is present with the 
-past. As such, the honorable are superior to the loyal in improvement by innovation 
-and fighting corruption.
+incumbents. And honor judges the magnitude and quality of what is present with that 
+of the past. As such, the honorable are superior to the loyal in improvement by 
+innovation and fighting corruption. Merchants constitute a comprehensive class of 
+human beings, in the sense that they are constantly balancing "loyalty" with "honor". 
+Merchants are traders, and rightfully, there are reservations about activities of 
+trading, for traitors are traitors because they trade values of material and information 
+against their professed loyalties. 
