@@ -3781,11 +3781,11 @@ technologies that, at first mimicked that of their Western European associates, 
 surpassed them in many ways. The feudal period of Vietnam never produced any Oda 
 Nobunaga. The fighting was quite focused on the authority over the land, and 
 when the French began colonization, the spirit of intellect by the Vietnamese was 
-that of ideology, of their conceptualizations of the republic, the state, democracy, 
-and communism. Comparison of these two nations' development over the past thousand 
-years, of course, cannot be reduced to the concepts of "loyalty" and "honor". Besides 
-from geography playing a pivotal factor, the mores of the two nations, based around 
-conceptualizations of honor that placed importance on excellence and of loyalty that 
-often turned racist, these two nations took very different trajectories, demonstrated 
-by their scientific and industrial prowesses historically till now. 
+that of political ideology, of their conceptualizations of the republic, the state, 
+democracy, and communism. Comparison of these two nations' development over the past 
+thousand years, of course, cannot be reduced to the concepts of "loyalty" and "honor". 
+Besides from geography playing a pivotal factor, the mores of the two nations, based 
+around conceptualizations of honor that placed importance on excellence and of loyalty 
+that often turned racist, these two nations took very different trajectories, 
+demonstrated by their scientific and industrial prowesses historically till now. 
 
