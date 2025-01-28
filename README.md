@@ -3710,7 +3710,7 @@ determinant in what is "right" or "wrong", which then subordinates the system fo
 righteousness, that which is supposed to hover over all of human beings, to simply 
 becoming a tool for particular human beings. The frequent retelling is on the 
 circularity of wrongdoing, viewed in ways such as the most deplorable yet preventable 
-tragedies and comedies depicting the foolish and wicked as very entertaining forces, 
+tragedies, and comedies depicting the foolish and wicked as very entertaining forces, 
 out of irrationality, that is, their thinking and actions do not fit the 
 conceptualization of good in the form of linear chains of reasoning. The circularity 
 of wrongdoing is frequently told in a factual kind of way, with undertones signifying 
@@ -3718,8 +3718,15 @@ an apathy on the premise of helplessness for the inevitable wickedness of human
 beings, in their oscillating movements of attempting to correct actions by 
 other actions, and then to narrate on these actions using labels of "good" and 
 "bad", typically by the basis of their being the good. "Loyalty" and "honor", 
-ideals universally recognized by human beings, also require bases to support 
-the qualities of the populace, so that the practice of these ideals cannot be 
+ideals universally recognized by human beings, require bases to support the 
+qualities of the populace, so that the practice of these ideals cannot be 
 immediately subject to rejection by the weakness of enabling relativity, when 
 in such cases, relativity enables unpredictable re-defining of the societal 
-norms, of representatives and attitudes.  
+norms, of representatives and attitudes. In real life, human beings have loyalties 
+that center around the family structure and their individual identities of ethnic/
+national/religious affilation. These loyalties do not go away so easily, especially 
+in areas where an individual's livelihood is tied to forms of institutionalized 
+servitude. A human being that remains loyal may, in fact, be dishonorable for 
+supporting what has turned ghastly wrong. And another human being can be honorable 
+by not remaining loyal to what has become a hindrance, a force corrupting to their 
+independence. 
