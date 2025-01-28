@@ -3782,7 +3782,7 @@ surpassed them in many ways. The feudal period of Vietnam never produced any Oda
 Nobunaga. The fighting was quite focused on the authority over the land, and 
 when the French began colonization, the spirit of intellect by the Vietnamese was 
 that of ideology, of their conceptualizations of the republic, the state, democracy, 
-and communism. Comparison between these two nations' development over the past thousand 
+and communism. Comparison of these two nations' development over the past thousand 
 years, of course, cannot be reduced to the concepts of "loyalty" and "honor". Besides 
 from geography playing a pivotal factor, the mores of the two nations, based around 
 conceptualizations of honor that place importance on excellence and of loyalty that 
