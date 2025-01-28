@@ -3677,6 +3677,16 @@ cannot have their actions constantly justified by the artificial axiom.
 
 ## More on philosophies of self-interest #54 
 
-"Loyalty" and "honor" are two words describing two ideals, overlapping in 
+"Loyalty" and "honor" are words describing two ideals, overlapping in 
 characteristics with each other, that help in humankind's understanding of 
-human beings in contexts of consideration. 
+human beings in contexts of consideration. Unlike the specificities that 
+agents of governmental law attempt to produce, "loyalty" and "honor" are 
+concepts that are practiced in a variety of ways, based on the spatiotemporal 
+specifics and the sphere of influence. And just as how governmental law proves 
+time and again to be insufficient in addressing injustice, via the delicate 
+balance between meritocratic institutions and "equal rights", so much that 
+the government is expected to cater to crime and drug lords in some regions 
+of the world, and corporate lords in other regions, out of their insufficiency 
+compared to the greater grasp of control through power of wealth and terror 
+that the lords can deliver, the concepts of "loyalty" and "honor" can only 
+serve as the backbones to the multi-faceted ways of understanding and acting. 
