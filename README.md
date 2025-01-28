@@ -3706,11 +3706,15 @@ and the means of rule enabled by that achievement are supposed to be justified
 solely by that achievement. This reasoning is a big category in the antibody that 
 disapproves of the notion of meritocratic as being as infallible as omnipotence. 
 In it, there is the idea that competition itself is supposed to be the domineering 
-determinant in what is "right" or "wrong", which then subordinates the system of 
+determinant in what is "right" or "wrong", which then subordinates the system for 
 righteousness, that which is supposed to hover over all of human beings, to simply 
-becoming a tool for particular human beings. The circularity of wrongdoing, viewed 
-in ways such as the most deplorable yet preventable tragedies and comedies that 
-depict the foolish and wicked as very entertaining forces, out of irrationality, 
-that is, their thinking and actions that do not fit the conceptualization of good 
-in the form of linear chains of reasoning. 
-
+becoming a tool for particular human beings. The frequent retelling is on the 
+circularity of wrongdoing, viewed in ways such as the most deplorable yet preventable 
+tragedies and comedies that depict the foolish and wicked as very entertaining forces, 
+out of irrationality, that is, their thinking and actions that do not fit the 
+conceptualization of good in the form of linear chains of reasoning. The circularity 
+of wrongdoing is frequently told in a factual kind of way, with undertones signifying 
+an apathy on the premise of helplessness for the inevitable wickedness of human 
+beings in their oscillating movements of attempting to correcting actions by 
+other actions, and then to narrate on these actions using labels of "good" and 
+"bad", by the typical basis of their being the good. 
