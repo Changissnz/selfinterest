@@ -3759,7 +3759,7 @@ material, they oftentimes have to metaphorically break down barriers for demande
 products to circulate. Traders are less psychologically resigned to principles, with 
 aims concerning two major categories of objectives: capital profit and human connections. 
 The competent trader is a master of relativity, from having to re-adjust their prices 
-and to interact with different peoples. Through this mastery of the relative, the big 
+and interact with different peoples. Through this mastery of the relative, the big 
 trader is a ruler of trade, reinforced by the loyalties of others for them. The trader 
 that grows successful is also one of reputed honor, in some aspects, such as maintenance 
 of agreements when faced with adversarial commercial conditions. Merchants are interesting, 
