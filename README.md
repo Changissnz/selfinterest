@@ -3763,7 +3763,7 @@ with different peoples. Through this mastery of the relative, the big trader is
 a ruler of trade, by the loyalties of others for them. The trader that grows 
 successful is also one of reputable honor, in some aspects, such as maintenance of 
 agreements when faced with adversarial commercial conditions. Merchants are interesting, 
-as a case study, because their loyalties are not immediately known, and their honor 
+as case studies, because their loyalties are not immediately known, and their honor 
 is very much tied to human connections and profit. Whereas the bureaucrat may 
 be just as immoral as the merchant, the bureaucrat is fixed in place, having to 
 be an agent for their bureaucracy. The honor that the bureaucrat claims to have 
