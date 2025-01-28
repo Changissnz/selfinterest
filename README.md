@@ -3695,7 +3695,7 @@ This is ironic since the development of the good, by governmental law, into
 specifics can be only out of the reason to account for the specific circumstances,
 by reference strictly to the fundamental notion of good; however complete the specifics 
 of the law may be, human beings can circumvent the specifics by use of their economical 
-decisions, or pit one violator against another violator. And the concepts of "loyalty" 
+decisions, or pitting one violator against another violator. And the concepts of "loyalty" 
 and "honor" are susceptible to being open to interpretation by those that see the 
 concepts as all-encompassing labels, and without institutionalized constructs 
 to structure the lives of human beings into outlets and behaviorial patterns, 
@@ -3704,8 +3704,8 @@ beings can fight for in their striving to attain the status, since by the achiev
 of the status, circularly, the means of competition used to reach that achievement 
 and the means of rule enabled by that achievement are supposed to be justified 
 solely by that achievement. This reasoning is a big category in the antibody that 
-disapproves of the notion of meritocratic being as infallible as omnipotence. 
-In it, there is the idea that competition itself is supposed to be the domineering 
+disapproves of the notion of merit being as infallible as omnipotence. In it, 
+there is the idea that competition itself is supposed to be the domineering 
 determinant in what is "right" or "wrong", which then subordinates the system for 
 righteousness, that which is supposed to hover over all of human beings, to simply 
 becoming a tool for particular human beings. The frequent retelling is on the 
@@ -3749,7 +3749,7 @@ Both "loyalty" and "honor" are part of human activity for the purpose of combatt
 unwanted change. Loyalty, being a personal attachment, favors the familiar and the 
 incumbents. And honor judges the magnitude and quality of what is present with that 
 of the past. As such, the honorable are superior to the loyal in improvement by 
-innovation and fighting corruption. For example, merchants constitute a comprehensive 
+innovation and fighting corruption. Merchants constitute a comprehensive 
 class of human beings, in the sense that they are constantly balancing "loyalty" with 
 "honor". Merchants are traders, and rightfully, there are reservations about activities 
 of trading, for traitors are traitors because they trade values of material and information 
