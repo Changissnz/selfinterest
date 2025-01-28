@@ -3779,7 +3779,7 @@ this is proven by their early adoption of firearms technology, namely the arqueb
 The Japanese have a cultural appreciation for quality, from their iconic swords to 
 technologies that, at first mimicked that of their Western European associates, then 
 surpassed them in many ways. The feudal period of Vietnam never produced any Oda 
-Nobunaga. The fighting was quited focused on the authority over the land, and 
+Nobunaga. The fighting was quite focused on the authority over the land, and 
 when the French began colonization, the spirit of intellect by the Vietnamese was 
 that of ideology, of their conceptualizations of the republic, the state, democracy, 
 and communism. Comparison between these two nations' development over the past thousand 
