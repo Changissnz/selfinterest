@@ -3677,3 +3677,6 @@ cannot have their actions constantly justified by the artificial axiom.
 
 ## More on philosophies of self-interest #54 
 
+"Loyalty" and "honor" are two words describing two ideals, overlapping in 
+characteristics with each other, that help in humankind's understanding of 
+human beings in contexts of consideration. 
