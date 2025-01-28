@@ -3742,6 +3742,6 @@ their conscience and stain their ideals. Honor is, therefore, superior to loyalt
 in preserving moral integrity. On matters of restriction, the honorable are 
 restricted to acting by a set of principles. In other words, the psyche of the 
 honorable is governed by artificial axioms that are fixtures to their modus 
-operandi. The loyal, on the other hand, do act act for the metaphysical artificial 
-axiom, but are predictable by their restriction to serving their associates and 
-superiors. Loyalty is personal. 
+operandi. The loyal, on the other hand, do not act for the metaphysical artificial 
+axiom, although are nevertheless predictable by their restriction to serving their 
+associates and superiors. Loyalty is personal. 
