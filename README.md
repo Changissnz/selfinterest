@@ -3757,15 +3757,35 @@ against their professed loyalties. The greatest benefit bestowed upon the trader
 that since they are demanded to interact with other human beings for exchange of 
 material, they oftentimes have to metaphorically break down barriers for demanded 
 products to circulate. Traders are less psychologically resigned to principles, with 
-aims concerning two major categories of objectives: profit and human connections. 
+aims concerning two major categories of objectives: capital profit and human connections. 
 The competent trader is a master of relativity, from having to re-adjust their prices 
 and to interact with different peoples. Through this mastery of the relative, the big 
 trader is a ruler of trade, reinforced by the loyalties of others for them. The trader 
-that grows successful is also one of reputable honor, in some aspects, such as maintenance 
+that grows successful is also one of reputed honor, in some aspects, such as maintenance 
 of agreements when faced with adversarial commercial conditions. Merchants are interesting, 
 as case studies, because their loyalties are not immediately known, and their honor 
 is very much tied to human connections and profit. Whereas the bureaucrat may 
 be just as immoral as the merchant, the bureaucrat is fixed in place, having to 
 be an agent for their bureaucracy. The honor that the bureaucrat claims to have 
 had before their entrance into the bureaucracy may be genuine in spirit, but becomes 
-operationally institutionalized in practice. 
+operationally institutionalized in practice. In the national context, the cases of 
+Vietnam and Japan have a lot to offer for discussion on "loyalty" and "honor". 
+The Japanese military honor code, Bushido, is inarguably greater for discipline and 
+industry than that of the Vietnamese. Historically, the region of Vietnam has a 
+very internalist spirit. Their close proximity to other southeast Asian nations and 
+to the subcontinent China keeps them well preoccupied when they are not busy bickering 
+amongst themselves. The Japanese are protectionists moreso than internalists. And 
+this is proven by their early adoption of firearms technology, namely the arquebus. 
+The Japanese have a cultural appreciation for quality, from their iconic swords to 
+technologies that, at first mimicked that of their Western European associates, then 
+surpassed them in many ways. The feudal period of Vietnam never produced any Oda 
+Nobunaga. The fighting was quited focused on the authority over the land, and 
+when the French began colonization, the spirit of intellect by the Vietnamese was 
+that of ideology, of their conceptualizations of the republic, the state, democracy, 
+and communism. Comparison between these two nations' development over the past thousand 
+years, of course, cannot be reduced to the concepts of "loyalty" and "honor". Besides 
+from geography playing a pivotal factor, the mores of the two nations, based around 
+conceptualizations of honor that place importance on excellence and of loyalty that 
+often turned racist, these two nations took very different trajectories, demonstrated 
+by their scientific and industrial prowesses historically till now. 
+
