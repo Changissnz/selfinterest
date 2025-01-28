@@ -3764,4 +3764,8 @@ a ruler of trade, by the loyalties of others for them. The trader that grows
 successful is also one of honor, in some aspects, such as maintaining agreements 
 when faced with adversarial commercial conditions. Merchants are interesting, as 
 a case study, because their loyalties are not immediately known, and their honor 
-is very much tied to human connections and profit. 
+is very much tied to human connections and profit. Whereas the bureaucrat may 
+be just as immoral as the merchant, the bureaucrat is fixed in place, having to 
+be an agent for their bureaucracy. The honor that the bureaucrat claims to have 
+before their entrance into the bureaucracy may be genuine in spirit, but becomes 
+operationally institutionalized in practice. 
