@@ -3692,11 +3692,11 @@ compared to the greater grasp of control through power of wealth and terror
 that the lords can deliver, the concepts of "loyalty" and "honor" can only 
 serve as the backbones to the multi-faceted ways of understanding and acting. 
 This is ironic since the development of the good, by governmental law, into 
-specifics can be only out of the reason to account for the specific circumstances 
-out of the fundamental notion of good; however complete the specifics of the 
-law may be, the economical decisions by human beings can circumvent the specifics, 
-or pit one violator against another violator. And the concepts of "loyalty" and 
-"honor" are susceptible to being open to interpretation by those that see the 
+specifics can be only out of the reason to account for the specific circumstances,
+by reference strictly to the fundamental notion of good; however complete the specifics 
+of the law may be, human beings can circumvent the specifics by use of their economical 
+decisions, or pit one violator against another violator. And the concepts of "loyalty" 
+and "honor" are susceptible to being open to interpretation by those that see the 
 concepts as all-encompassing labels, and without institutionalized constructs 
 to structure the lives of human beings into outlets and behaviorial patterns, 
 the concepts are as good as material gold without an owner, something human 
