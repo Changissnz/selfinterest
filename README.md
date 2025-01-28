@@ -3777,7 +3777,7 @@ to the subcontinent China keeps them well preoccupied when they are not busy bic
 amongst themselves. The Japanese are protectionists moreso than internalists. And 
 this is proven by their early adoption of firearms technology, namely the arquebus. 
 The Japanese have a cultural appreciation for quality, from their iconic swords to 
-technologies that, at first mimicked that of their Western European associates, then 
+other technologies that, at first mimicked that of their Western European associates, then 
 surpassed them in many ways. The feudal period of Vietnam never produced any Oda 
 Nobunaga. The fighting was quite focused on the authority over the land, and 
 when the French began colonization, the spirit of intellect by the Vietnamese was 
