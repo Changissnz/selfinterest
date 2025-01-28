@@ -3753,7 +3753,7 @@ loyal in improvement by innovation and fighting corruption. Merchants constitute
 comprehensive class of human beings, in the sense that they are constantly balancing 
 "loyalty" with "honor". Merchants are traders, and rightfully, there are reservations 
 about activities of trading, for traitors are traitors because they trade values of 
-material and information against their professed loyalties. The greatest benefit 
+material and information against their professed loyalties. The greatest privilege 
 bestowed upon the trader is that since they are demanded to interact with other human 
 beings for exchange of material, they oftentimes have to metaphorically break down 
 barriers for demanded products to circulate. Traders are less psychologically resigned 
