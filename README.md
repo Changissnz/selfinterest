@@ -3761,11 +3761,11 @@ categories of objectives: profit and human connections. The competent trader is
 a master of relativity, from having to re-adjust their prices and to interact 
 with different peoples. Through this mastery of the relative, the big trader is 
 a ruler of trade, by the loyalties of others for them. The trader that grows 
-successful is also one of honor, in some aspects, such as maintenance of agreements 
-when faced with adversarial commercial conditions. Merchants are interesting, as 
-a case study, because their loyalties are not immediately known, and their honor 
+successful is also one of reputable honor, in some aspects, such as maintenance of 
+agreements when faced with adversarial commercial conditions. Merchants are interesting, 
+as a case study, because their loyalties are not immediately known, and their honor 
 is very much tied to human connections and profit. Whereas the bureaucrat may 
 be just as immoral as the merchant, the bureaucrat is fixed in place, having to 
 be an agent for their bureaucracy. The honor that the bureaucrat claims to have 
-before their entrance into the bureaucracy may be genuine in spirit, but becomes 
+had before their entrance into the bureaucracy may be genuine in spirit, but becomes 
 operationally institutionalized in practice. 
