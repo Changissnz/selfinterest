@@ -3704,7 +3704,7 @@ beings can fight for in their striving to attain the status, since by the achiev
 of the status, circularly, the means of competition used to reach that achievement 
 and the means of rule enabled by that achievement are supposed to be justified 
 solely by that achievement. This reasoning is a big category in the antibody that 
-disapproves of the notion of meritocratic as being as infallible as omnipotence. 
+disapproves of the notion of meritocratic being as infallible as omnipotence. 
 In it, there is the idea that competition itself is supposed to be the domineering 
 determinant in what is "right" or "wrong", which then subordinates the system for 
 righteousness, that which is supposed to hover over all of human beings, to simply 
@@ -3749,8 +3749,19 @@ Both "loyalty" and "honor" are part of human activity for the purpose of combatt
 unwanted change. Loyalty, being a personal attachment, favors the familiar and the 
 incumbents. And honor judges the magnitude and quality of what is present with that 
 of the past. As such, the honorable are superior to the loyal in improvement by 
-innovation and fighting corruption. Merchants constitute a comprehensive class of 
-human beings, in the sense that they are constantly balancing "loyalty" with "honor". 
-Merchants are traders, and rightfully, there are reservations about activities of 
-trading, for traitors are traitors because they trade values of material and information 
-against their professed loyalties. 
+innovation and fighting corruption. For example, merchants constitute a comprehensive 
+class of human beings, in the sense that they are constantly balancing "loyalty" with 
+"honor". Merchants are traders, and rightfully, there are reservations about activities 
+of trading, for traitors are traitors because they trade values of material and information 
+against their professed loyalties. The greatest benefit bestowed upon the trader is 
+that since they are demanded to interact with other human beings, they oftentimes have 
+to metaphorically break down barriers for demanded products to circulate. Traders 
+are less psychologically resigned to principles, with aims concerning two major 
+categories of objectives: profit and human connections. The competent trader is 
+a master of relativity, from having to re-adjust their prices and to interact 
+with different peoples. Through this mastery of the relative, the big trader is 
+a ruler of trade, by the loyalties of others for them. The trader that grows 
+successful is also one of honor, in some aspects, such as maintaining agreements 
+when faced with adversarial commercial conditions. Merchants are interesting, as 
+a case study, because their loyalties are not immediately known, and their honor 
+is very much tied to human connections and profit. 
