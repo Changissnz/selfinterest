@@ -3760,9 +3760,9 @@ are less psychologically resigned to principles, with aims concerning two major
 categories of objectives: profit and human connections. The competent trader is 
 a master of relativity, from having to re-adjust their prices and to interact 
 with different peoples. Through this mastery of the relative, the big trader is 
-a ruler of trade, by the loyalties of others for them. The trader that grows 
-successful is also one of reputable honor, in some aspects, such as maintenance of 
-agreements when faced with adversarial commercial conditions. Merchants are interesting, 
+a ruler of trade, reinforced by the loyalties of others for them. The trader that 
+grows successful is also one of reputable honor, in some aspects, such as maintenance 
+of agreements when faced with adversarial commercial conditions. Merchants are interesting, 
 as case studies, because their loyalties are not immediately known, and their honor 
 is very much tied to human connections and profit. Whereas the bureaucrat may 
 be just as immoral as the merchant, the bureaucrat is fixed in place, having to 
