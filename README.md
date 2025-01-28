@@ -3732,7 +3732,10 @@ by not remaining loyal to what has become a hindrance, a force corrupting to the
 independence. A human being with unquestioning loyalty is one whose honor is 
 exclusively associated, in all aspects, to that loyalty. A prejudiced honor is a 
 betrayal to the universal understanding of honor, but the "social creature", the 
-"political animal" that is the human being is one that has much difficulty in tending 
-to their locality as in understanding the universal; as such, the typical human 
-being cannot be expected to be honorable without external cause, or to be loyal 
-when there are better options, and this is not only because of selfishness.
+"political animal" that is the human being is one that has as much difficulty in 
+ruling their locality as in understanding the universal; as such, the typical 
+human being cannot be expected to be honorable without external cause, or to be 
+loyal when there are better options, and this is not only because of selfishness. 
+When one betrays to break a loyalty, another human being is the recipient of the 
+betrayal. And when one betrays to break an honor, they betray the goodness of 
+their conscience and stain their ideals. 
