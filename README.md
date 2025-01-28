@@ -3785,7 +3785,7 @@ that of ideology, of their conceptualizations of the republic, the state, democr
 and communism. Comparison of these two nations' development over the past thousand 
 years, of course, cannot be reduced to the concepts of "loyalty" and "honor". Besides 
 from geography playing a pivotal factor, the mores of the two nations, based around 
-conceptualizations of honor that place importance on excellence and of loyalty that 
+conceptualizations of honor that placed importance on excellence and of loyalty that 
 often turned racist, these two nations took very different trajectories, demonstrated 
 by their scientific and industrial prowesses historically till now. 
 
