@@ -3695,13 +3695,17 @@ This is ironic since the development of the good, by governmental law, into
 specifics can be only out of the reason to account for the specific circumstances 
 out of the fundamental notion of good; however complete the specifics of the 
 law may be, the economical decisions by human beings can circumvent the specifics, 
-or pit one violator against another violator. And concepts such "loyalty" and 
+or pit one violator against another violator. And the concepts of "loyalty" and 
 "honor" are susceptible to being open to interpretation by those that see the 
 concepts as all-encompassing labels, and without institutionalized constructs 
 to structure the lives of human beings into outlets and behaviorial patterns, 
 the concepts are as good as material gold without an owner, something human 
-beings fight for in their striving to attain the status, since by the achievement 
+beings can fight for in their striving to attain the status, since by the achievement 
 of the status, circularly, the means of competition used to reach that achievement 
 and the means of rule enabled by that achievement are supposed to be justified 
 solely by that achievement. This reasoning is a big category in the antibody that 
-disapproves of the notion of meritocratic as being as infallible as omnipotence.
+disapproves of the notion of meritocratic as being as infallible as omnipotence. 
+In it, there is the idea that competition itself is supposed to be the determinant 
+in what is "right" or "wrong", which then subordinates the system of righteousness, 
+that which is supposed to hover over all of human beings, to simply becoming a tool 
+for particular human beings. 
