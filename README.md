@@ -3841,31 +3841,33 @@ in their lines of work and the roles they must uphold. The implementation
 of meritocratic procedures, especially those on performance, have the 
 greatest potential to effect difference by change. Self-interest cannot 
 possibly accept defeat after defeat, due to human beings' motivation of 
-dominance if not stability and equality. Meritocratic processes are, in 
-fact, unfair on the premise that not all human beings are born equally 
-capable in action and identical in identity; to compensate for these 
-differences, many societies implement the workaround of deeming every 
-human being equal solely on the criteria that they exist. There are 
-also group identities, such as class, familial bloodlines, and occupation 
-to further distinguish individual human beings. Some noteworthy instances 
-demonstrate how self-interest does not always align with merit of 
-performance. The 1492 expulsion of Jews from Spain, due to reasons that 
-include their financial success that outsized that of the predominantly 
-Catholic populace there, resulted in many Jews having to leave Spain 
-or to convert to Catholicism, in which some still practiced Judaism as 
-crypto-Jews. The 1972 expulsion of Indians from Uganda was also due to 
-a perception of the minority demographic becoming too commercially 
-influential. The young mathematician Evariste Galois, of potential unmet 
-to expand on his already pioneering mathematics, lost his life in a 
-physical duel (1832), a fate that demonstrates that merit in one human 
-activity is not a default cause for merit in a distinct activity. The 
-downside of merit is that human beings must somehow design judgment of 
-it, in ways that coincide with satisfaction of self-interest. The case 
-of Oda Nobunaga is what occurs when the merit of political status can no 
-longer be found by civil consensus. Oda Nobunaga launched a campaign, in 
-the 1560's, to unify all of Japan, this being possible only by violent 
+dominance if not stability and equality. Meritocracies that fail to account 
+for their exclusions, therefore, will encounter opposition to their 
+decisive status. Meritocratic processes are, in fact, unfair on the 
+premise that not all human beings are born equally capable in action 
+and identical in identity; to compensate for these differences, many 
+societies implement the workaround of deeming every human being equal 
+solely on the criteria that they exist. There are also group identities, 
+such as class, familial bloodlines, and occupation to further distinguish 
+individual human beings. Some noteworthy instances demonstrate how 
+self-interest does not always align with merit of performance. The 
+1492 expulsion of Jews from Spain, due to reasons that include their 
+financial success that outsized that of the predominantly Catholic 
+populace there, resulted in many Jews having to leave Spain or to convert 
+to Catholicism, in which some still practiced Judaism as crypto-Jews. 
+The 1972 expulsion of Indians from Uganda was also due to a perception 
+of the minority demographic becoming too commercially influential. 
+The young mathematician Evariste Galois, of potential unmet to expand 
+on his already pioneering mathematics, lost his life in a physical duel 
+(1832), a fate that demonstrates how merit in one human activity is not 
+a default cause for merit in a distinct activity. The downside of merit 
+is that human beings must somehow design judgment of it, in ways that 
+coincide with satisfaction of self-interest. The case of Oda Nobunaga 
+is what occurs when the merit of political status can no longer be 
+found by civil consensus. Oda Nobunaga launched a campaign, in the 
+1560's, to unify all of Japan, this being possible only by violent 
 confrontation with lords from other regions of the islands, each believing 
-that they rightfully have the merit to continue rule without having to be 
+that they rightfully had the merit to continue rule without having to be 
 subservient to Nobunaga. 
 
 ## More on philosophies of self-interest #56 
