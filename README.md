@@ -3724,7 +3724,7 @@ immediately subject to rejection by the weakness of enabling relativity, when
 in such cases, relativity enables unpredictable re-defining of the societal 
 norms, of representatives and attitudes. In real life, human beings have loyalties 
 that center around the family structure and their individual identities of ethnic/
-national/religious affilation. These loyalties do not go away so easily, especially 
+national/ religious affilation. These loyalties do not go away so easily, especially 
 in areas where an individual's livelihood is tied to forms of institutionalized 
 servitude. A human being that remains loyal may, in fact, be dishonorable for 
 supporting what has turned ghastly wrong. And another human being can be honorable 
