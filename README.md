@@ -3807,17 +3807,18 @@ correspondence of certain qualities to the gradient of zero (non-ideal) to one
 or revere the metrical criteria. A human being, acting by their self-interest, 
 first judges their own capabilities and their potential, and will conform to 
 some extent. The metrical criteria is an artificial axiom for a human being's 
-judgment of merit. When open information is considered to be the fair form of 
-knowledge in the setting of judgment, and fairness is demanded, the metrical 
-criteria of scores for the judged is wholly presented to them, as objective 
-proof of the method. In cases such as these, the metrical criteria helps 
-industrialize human beings towards respecting if not satisfying the mark. 
-Through the motives and objectives that self-interest operates for, the 
-metrical criteria established could be quite impossible for a majority to 
-satisfy. This is especially true for matters of aesthetics, in which 
-judgment is focused not on the nature of performance through time, this 
-being functional merit. Because judgment of aesthetics is focused on the 
-combinatorial interaction between the recognized norm of appearance and 
+judgment of merit, and pre-eminent ones help to shape human beings' reception 
+of the facts, despite their possible rejection of these artificial axioms. When 
+open information is considered to be the fair form of knowledge in the setting 
+of judgment, and fairness is demanded, the metrical criteria of scores for the 
+judged is wholly presented to them, as objective proof of the method. In cases 
+such as these, the metrical criteria helps industrialize human beings towards 
+respecting if not satisfying the mark. Through the motives and objectives that 
+self-interest operates for, the metrical criteria established could be quite 
+impossible for a majority to satisfy. This is especially true for matters of 
+aesthetics, in which judgment is focused not on the nature of performance through 
+time, this being functional merit. Because judgment of aesthetics is focused on 
+the combinatorial interaction between the recognized norm of appearance and 
 preferred extraordinaries, naturally, there are only artificial axioms, 
 nothing close to the axiom of natural law, to ascribe the ideal. However, 
 perception to yield quantifiable information on the traits of the object 
