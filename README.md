@@ -3794,5 +3794,13 @@ historically till now.
 ## More on philosophies of self-interest #55 
 
 The socio-economic constructs that human beings are responsible for, in their 
-co-existence with one another, cannot possibly be strictly meritocratic without 
-resistance.  
+co-existences, cannot possibly be strictly meritocratic without resistance. 
+Objective judgments of merit require consensus on the metrical criteria. How 
+that criteria is devised is not innately required to be transparent. In the 
+computational sense, the rigidity of the metrical criteria, due to observance 
+of frequent forms and preferred styles, is not encouraging of alternative 
+means to produce what is to be judged. Due to this attribute of the metrical 
+criteria, the recognition of merit in artistic works exemplifies the concept 
+of cultural relativism, that is, the metrical criteria is based on the cultural 
+correspondence of certain qualities to the gradient of zero (non-ideal) to one 
+(ideal). 
