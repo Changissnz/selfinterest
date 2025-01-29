@@ -3858,4 +3858,14 @@ a perception of the minority demographic becoming too commercially
 influential. The young mathematician Evariste Galois, of potential unmet 
 to expand on his already pioneering mathematics, lost his life in a 
 physical duel (1832), a fate that demonstrates that merit in one human 
-activity is not a default cause for merit in a distinct activity. 
+activity is not a default cause for merit in a distinct activity. The 
+downside of merit is that human beings must somehow design judgment of 
+it, in ways that coincide with satisfaction of self-interest. The case 
+of Oda Nobunaga is what occurs when the merit of political status can no 
+longer be found by civil consensus. Oda Nobunaga launched a campaign, in 
+the 1560's, to unify all of Japan, this being possible only by violent 
+confrontation with lords from other regions of the islands, each believing 
+that they rightfully have the merit to continue rule without having to be 
+subservient to Nobunaga. 
+
+## More on philosophies of self-interest #56 
