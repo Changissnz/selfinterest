@@ -3825,4 +3825,5 @@ can be accurate, but this is not the same as the label of "aesthetic".
 Matters predominantly deemed subjective do not have any associated metrical 
 criteria of strong consensus; in the various fields of human activity, 
 there are a few broad categories for these matters, such as the independent 
-arts and politics. 
+arts and politics, where the force of self-interest argues for their truth 
+of relative to be that of the objective. 
