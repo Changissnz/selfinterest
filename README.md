@@ -3827,4 +3827,9 @@ Matters predominantly deemed subjective do not have any associated metrical
 criteria of strong consensus; in the various fields of human activity, 
 there are a few broad categories for these matters, such as the independent 
 arts and politics, where the force of self-interest argues for their truth 
-of relative to be that of the objective. 
+of relative to be that of the objective. It is because of the strong subjectivity 
+that is a default of the arts and politics, where expression and rule can 
+produce acceptable results in various ways, that human beings, over the 
+progress of time, have accumulated artificial axioms of decorum and operation, 
+garnering social acceptability and lessening potential chaos, that become 
+second-nature to their approach for their wanted outputs. 
