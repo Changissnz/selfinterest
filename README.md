@@ -3863,7 +3863,7 @@ on his already pioneering mathematics, lost his life in a physical duel
 a default cause for merit in a distinct activity. The downside of merit 
 is that human beings must somehow design judgment of it, in ways that 
 coincide with satisfaction of self-interest. The case of Oda Nobunaga 
-is what occurs when the merit of political status can no longer be 
+was what occurred when the merit of political status was no longer 
 found by civil consensus. Oda Nobunaga launched a campaign, in the 
 1560's, to unify all of Japan, this being possible only by violent 
 confrontation with lords from other regions of the islands. Each believed 
