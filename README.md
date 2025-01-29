@@ -3857,7 +3857,7 @@ populace there, resulted in many Jews having to leave Spain or to convert
 to Catholicism, in which some still practiced Judaism as crypto-Jews. 
 The 1972 expulsion of Indians from Uganda was also due to a perception 
 of the minority demographic becoming too commercially influential. In 
-both of these two events, the principle of qualitative existence (the 
+the decisions of these two events, the principle of qualitative existence (the 
 minority identity) was a greater factor than the merit of performance.
 The young mathematician Evariste Galois, of potential unmet to expand 
 on his already pioneering mathematics, lost his life in a physical duel 
