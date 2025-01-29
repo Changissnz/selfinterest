@@ -3848,7 +3848,7 @@ differences, many societies implement the workaround of deeming every
 human being equal solely on the criteria that they exist. There are 
 also group identities, such as class, familial bloodlines, and occupation 
 to further distinguish individual human beings. Some noteworthy instances 
-that demonstrate how self-interest does not always align with merit of 
+demonstrate how self-interest does not always align with merit of 
 performance. The 1492 expulsion of Jews from Spain, due to reasons that 
 include their financial success that outsized that of the predominantly 
 Catholic populace there, resulted in many Jews having to leave Spain 
