@@ -3803,4 +3803,8 @@ means to produce what is to be judged. Due to this attribute of the metrical
 criteria, the recognition of merit in artistic works exemplifies the concept 
 of cultural relativism, that is, the metrical criteria is based on the cultural 
 correspondence of certain qualities to the gradient of zero (non-ideal) to one 
-(ideal). 
+(ideal). The practice of conformity is also an effect from the cause to satisfy 
+or revere the metrical criteria. A human being, acting by their self-interest, 
+first judges their own capabilities and their potential, and will conform to 
+some extent. The metrical criteria is an artificial axiom for a human being's 
+judgment of merit. 
