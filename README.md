@@ -3822,7 +3822,7 @@ preferred extraordinaries, naturally, there are only artificial axioms,
 nothing close to the axiom of natural law, to ascribe the ideal. However, 
 perception to yield quantifiable information on the traits of the object 
 can be accurate, but this is not the same as the label of "aesthetic". 
-Matters predominantly deemed subjective do not have an associated metrical 
+Matters predominantly deemed subjective do not have any associated metrical 
 criteria of strong consensus; in the various fields of human activity, 
-there are a few broad categories for these matters, such as the arts and 
-politics. 
+there are a few broad categories for these matters, such as the independent 
+arts and politics. 
