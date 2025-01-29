@@ -3866,7 +3866,7 @@ coincide with satisfaction of self-interest. The case of Oda Nobunaga
 is what occurs when the merit of political status can no longer be 
 found by civil consensus. Oda Nobunaga launched a campaign, in the 
 1560's, to unify all of Japan, this being possible only by violent 
-confrontation with lords from other regions of the islands, each believing 
+confrontation with lords from other regions of the islands. Each believed 
 that they rightfully had the merit to continue rule without having to be 
 subservient to Nobunaga. 
 
