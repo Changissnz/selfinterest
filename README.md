@@ -3832,4 +3832,9 @@ a default attribute of the arts and politics, where expression and rule can
 produce acceptable results in various ways, that human beings, over the 
 progress of time, have accumulated artificial axioms of decorum and operation, 
 garnering social acceptability and lessening potential chaos, that become 
-second-nature to their approach for their wanted outputs. 
+second-nature to their approach for their wanted outputs. In turn, traditions 
+are retained on how politics is supposed to work, and the kinds of artistic 
+expression that can never be of the orthodox to certain regions. Artificial 
+axioms of tradition are so reinforced in some areas that many human beings 
+no longer feel the need to mention the fact that they are second nature, 
+in their lines of work and the roles they must uphold. 
