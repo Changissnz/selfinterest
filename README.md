@@ -3817,8 +3817,12 @@ metrical criteria established could be quite impossible for a majority to
 satisfy. This is especially true for matters of aesthetics, in which 
 judgment is focused not on the nature of performance through time, this 
 being functional merit. Because judgment of aesthetics is focused on the 
-combinatorial interaction between the recognized norm for human beings 
-and preferred extraordinaries, naturally, there are only artificial axioms 
-to ascribe the ideal, nothing close to the axiom of natural law. However, 
+combinatorial interaction between the recognized norm of appearance and 
+preferred extraordinaries, naturally, there are only artificial axioms, 
+nothing close to the axiom of natural law, to ascribe the ideal. However, 
 perception to yield quantifiable information on the traits of the object 
 can be accurate, but this is not the same as the label of "aesthetic". 
+Matters predominantly deemed subjective do not have an associated metrical 
+criteria of strong consensus; in the various fields of human activity, 
+there are a few broad categories for these matters, such as the arts and 
+politics. 
