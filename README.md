@@ -3837,4 +3837,25 @@ are retained on how politics is supposed to work, and the kinds of artistic
 expression that can never be of the orthodox to certain regions. Artificial 
 axioms of tradition are so reinforced in some areas that many human beings 
 no longer feel the need to mention the fact that they are second nature, 
-in their lines of work and the roles they must uphold. 
+in their lines of work and the roles they must uphold. The implementation 
+of meritocratic procedures, especially those on performance, have the 
+greatest potential to effect difference by change. Self-interest cannot 
+possibly accept defeat after defeat, due to human beings' motivation of 
+dominance if not stability and equality. Meritocratic processes are, in 
+fact, unfair on the premise that not all human beings are born equally 
+capable in action and identical in identity; to compensate for these 
+differences, many societies implement the workaround of deeming every 
+human being equal solely on the criteria that they exist. There are 
+also group identities, such as class, familial bloodlines, and occupation 
+to further distinguish individual human beings. Some noteworthy instances 
+that demonstrate how self-interest does not always align with merit of 
+performance. The 1492 expulsion of Jews from Spain, due to reasons that 
+include their financial success that outsized that of the predominantly 
+Catholic populace there, resulted in many Jews having to leave Spain 
+or to convert to Catholicism, in which some still practiced Judaism as 
+crypto-Jews. The 1972 expulsion of Indians from Uganda was also due to 
+a perception of the minority demographic becoming too commercially 
+influential. The young mathematician Evariste Galois, of potential unmet 
+to expand on his already pioneering mathematics, lost his life in a 
+physical duel (1832), a fate that demonstrates that merit in one human 
+activity is not a default cause for merit in a distinct activity. 
