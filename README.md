@@ -3816,7 +3816,7 @@ such as these, the metrical criteria helps industrialize human beings towards
 respecting if not satisfying the mark. Through the motives and objectives that 
 self-interest operates for, the metrical criteria established could be quite 
 impossible for a majority to satisfy. This is especially true for matters of 
-aesthetics, in which judgment is focused not on the nature of performance through 
+aesthetics, in which judgment is focused not on the nature of function through 
 time, this being functional merit. Because judgment of aesthetics is focused on 
 the combinatorial interaction between the recognized norm of appearance and 
 preferred extraordinaries, naturally, there are only artificial axioms, 
@@ -3832,11 +3832,11 @@ a default attribute of the arts and politics, where expression and rule can
 produce acceptable results in various ways, that human beings, over the 
 progress of time, have accumulated artificial axioms of decorum and operation, 
 garnering social acceptability and lessening potential chaos, that become 
-second-nature to their approach for their wanted outputs. In turn, traditions 
+second-nature to their approach for these activities. In turn, traditions 
 are retained on how politics is supposed to work, and the kinds of artistic 
 expression that can never be of the orthodox to certain regions. Artificial 
 axioms of tradition are so reinforced in some areas that many human beings 
-no longer feel the need to mention the fact that they are second nature, 
+no longer feel the need to mention the fact that these artificial axioms are second nature, 
 in their lines of work and the roles they must uphold. The implementation 
 of meritocratic procedures, especially those on performance, have the 
 greatest potential to effect difference by change. Self-interest cannot 
@@ -3845,7 +3845,7 @@ dominance if not stability and equality. Meritocracies that fail to account
 for their exclusions, therefore, will encounter opposition to their 
 decisive status. Meritocratic processes are, in fact, unfair on the 
 premise that not all human beings are born equally capable in action 
-and identical in identity; to compensate for these differences, many 
+and identical in identification; to compensate for these differences, many 
 societies implement the workaround of deeming every human being equal 
 solely on the criteria that they exist. There are also group identities, 
 such as class, familial bloodlines, and occupation to further distinguish 
