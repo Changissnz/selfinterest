@@ -3851,7 +3851,7 @@ solely on the criteria that they exist. There are also group identities,
 such as class, familial bloodlines, and occupation to further distinguish 
 individual human beings. Some noteworthy instances demonstrate how 
 self-interest does not always align with merit of performance. The 
-1492 expulsion of Jews from Spain, due to reasons that include their 
+1492 expulsion of Jews from Spain, due to reasons such as their 
 financial success that outsized that of the predominantly Catholic 
 populace there, resulted in many Jews having to leave Spain or to convert 
 to Catholicism, in which some still practiced Judaism as crypto-Jews. 
