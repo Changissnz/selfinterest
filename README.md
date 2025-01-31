@@ -3889,8 +3889,10 @@ since any human activity of thought or action is technically a change from
 the past. This fact is a consequence of the greater truth that stems from 
 perception: the past, the present, and the future are each distinct categories 
 of spatiotemporal contexts. There are perspectives on the wholesomeness of 
-this truth. Man, in his confidence of ignorance, when no longer driven by 
-his self-interest to engage in much pondering and debating, is satisfied 
-with the idiom that "history repeats itself", an idiom that encourages 
-self-fulfilling courses of future action, due in ways to the excellence 
-of human beings in activities of patterned construction and replication. 
+this truth. On the idea of some people fearing "change", the only rationale 
+for the fear is that it is an effect from their belief in the negative gains 
+they are to suffer if that "change" were to be actualized. Man, in his confidence 
+of ignorance, when no longer driven by his self-interest to engage in much pondering 
+and debating, is satisfied with the idiom that "history repeats itself", an idiom 
+that encourages self-fulfilling courses of future action, due in ways to the 
+excellence of human beings in activities of patterned construction and replication. 
