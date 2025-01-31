@@ -3974,4 +3974,16 @@ A misogynist does not believe in the love from feminine nature, due to their
 incredulity at the structured causality chains that help to orchestrate the 
 occurrence of man meeting woman, for the possibility to continue on as lovers. 
 And these causality chains very much rest on merits revolving around socio-economic 
-status, not too different from political pragmatics. 
+status, not too different from political pragmatics. The progressions of a 
+civilization, through advancements in industry and reform to its civil codes, 
+correspond to less violent political activity by its populace. Many men no 
+longer need to carry firearms, out of their self-interest for self-defense, due 
+to the relativity of their peers also not carrying firearms. The politicker 
+no longer needs to be vocal or physical to an adversary; instead, through 
+word of mouth, the politicker influences another politicker and another 
+such that networks are formed to impoverish and persecute the adversary. 
+Herein these statements on civilization, one can see how human beings 
+engage in tradeoffs, and still suffer the same in states of emotion, 
+due in great part to the same thematic motives that drive self-interest, 
+with the undeniable improvements being the means for the objectives that 
+serve those motives. 
