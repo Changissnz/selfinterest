@@ -3976,7 +3976,7 @@ occurrence of man meeting woman, for the possibility to continue on as lovers.
 And these causality chains very much rest on merits revolving around socio-economic 
 status, not too different from political pragmatics. The progressions of a 
 civilization, through advancements in industry and reform to its civil codes, 
-correspond to less violent political activity by its populace. Many men no 
+correspond to less violent political activity by its populace. Most men no 
 longer need to carry firearms, out of their self-interests for self-defense, due 
 to the relativity of their peers also not carrying firearms. The politicker 
 no longer needs to be vocal or physical to an adversary; instead, through 
