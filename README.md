@@ -3913,3 +3913,7 @@ knowing the specifics of the priorities from self-interest, and that is the dema
 of self-interest are the preferences in choice. There can be many options presented 
 to the self, but by the innate autonomy to accept or reject alongside there not 
 being any known consequences from the decision, the self chooses its preferences. 
+The finiteness of a human being gives reason to their prioritization. And so, an 
+objective that a human being fails to achieve, thus forsaking some of their 
+responsibilities from demand, can be explained by them through the premise that 
+their finiteness makes them fallible. 
