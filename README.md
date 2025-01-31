@@ -3952,7 +3952,7 @@ has always been a prevalent theme. Consider this. A former friend becomes a poli
 agent, strikes deals with antagonists, and thinks that their newfound alliances 
 will spare them a fate quite the opposite of state-imposed death penalty. And the 
 former friend is promoted by society to a lord of sorts over a dominion where they 
-were once at most an equal in talent and the worse of the criminal, relatively 
+were once at most an equal in talent and the worst of the criminal, relatively 
 speaking. Chains of events such as these are surprising when one prioritizes 
 friendships over politics. When politics is the primary aim, the saying, "there 
 are no friends in politics", works as a more accurate wisdom on the nature of this 
@@ -3977,7 +3977,7 @@ And these causality chains very much rest on merits revolving around socio-econo
 status, not too different from political pragmatics. The progressions of a 
 civilization, through advancements in industry and reform to its civil codes, 
 correspond to less violent political activity by its populace. Many men no 
-longer need to carry firearms, out of their self-interest for self-defense, due 
+longer need to carry firearms, out of their self-interests for self-defense, due 
 to the relativity of their peers also not carrying firearms. The politicker 
 no longer needs to be vocal or physical to an adversary; instead, through 
 word of mouth, the politicker influences another politicker and another 
@@ -3988,6 +3988,6 @@ due in great part to the same thematic motives that drive self-interest,
 with the undeniable changes, arguably called improvements, being the means 
 for the objectives that serve those motives. It can be argued that human 
 beings are inconsiderate to inevitable suffering when they prioritize their 
-objectives. Priority matters for capability, and although capability is 
-relative, the utilization of capability against the incapable bears objective 
+objectives. Priority matters for capability, and although the status of capability 
+is relative, the utilization of capability against the incapable bears objective 
 effects, usually much to the chagrin of the incapable. 
