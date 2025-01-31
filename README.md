@@ -3908,8 +3908,8 @@ physical activity yielding unwanted results, is as devoid of rational thought on
 the negative consequences of their physical efforts, as their lack of mental efforts 
 had them be. The human being, incapable of physical activity past thresholds of a 
 combination of their mental restraints and physical aptitude, could be as demanding 
-as a king that cannot fight his own battles. There is a big point of complication in 
-knowing the specifics of the priorities from self-interest, and that is the demands 
+as a king that cannot fight his own battles. There is a big point of complication to 
+know the specifics of the priorities from self-interest, and that is the demands 
 of self-interest are the preferences in choice. There can be many options presented 
 to the self, but by the innate autonomy to accept or reject alongside there not 
 being any known consequences from the decision, the self chooses its preferences. 
