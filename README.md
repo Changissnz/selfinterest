@@ -3877,4 +3877,20 @@ subservient to Nobunaga.
 Human beings, given all the options conceived by their cognition and the 
 demands relayed to them of immediate and long-term dues, prioritize their 
 objectives, and this shifts their focus of thought and action into 
-constraints in the possibilities from their independent doings. 
+constraints for the possibilities from their independent doings. A failed 
+objective is reminded of in terms of the past, and in cases of self-interest 
+persisting to achieve that objective again, the objective is still there 
+for another attempt. The efforts undertaken by human beings, in arrangements 
+of individuals and group organizations, bear effects that can always be gauged 
+on gradients such as those centered around change and novelty (a change from 
+the norms of change). The idea of "change" may have a resonance in tone 
+perceived by some people in the lens of fear. This is a common occurrence, 
+since any human activity of thought or action is technically a change from 
+the past. This fact is a consequence of the greater truth that stems from 
+perception: the past, the present, and the future are each distinct categories 
+of spatiotemporal contexts. There are perspectives on the wholesomeness of 
+this truth. Man, in his confidence of ignorance, when no longer driven by 
+his self-interest to engage in much pondering and debating, is satisfied 
+with the idiom that "history repeats itself", an idiom that encourages 
+self-fulfilling courses of future action, due to the excellence of human 
+beings in activities of patterned construction and replication. 
