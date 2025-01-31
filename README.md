@@ -3925,5 +3925,5 @@ accountability, the human being that can prove, without reason for any other dou
 that the best of their abilities could not produce the wanted outcomes, even though 
 their abilities were for what was recognized as the best course of decisions, is 
 not at fault in other human beings' accounting of them. Even so, the previous 
-statement is complicated in the diversification of acting that then must be 
+statement is complicated by the diversification of acting that then must be 
 attributed back to it, in terms of what is "best" and what was "wanted". 
