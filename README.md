@@ -3962,7 +3962,7 @@ a combination of their naivety and stupidity, metaphorically drop their jaws at
 the sight of pretty women. Through experiences that heavily involve social status 
 and material possessions, certain males grow into men that are deeply dissatisfied 
 with the demographic of women. In societies where women are granted less rights in 
-ownership, there is the automatic assumption from these men that the perceived 
+ownership, there is the instant assumption from these men that the perceived 
 affection from these women is due to the motive of their wanting control over 
 the men's properties. Regardless of the property rights by gender, women's typically 
 weaker physical strength and household occupation gives credibility to some 
