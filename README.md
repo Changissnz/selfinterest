@@ -3899,7 +3899,7 @@ itself", an idiom that encourages self-fulfilling courses of future action, due 
 ways to the excellence of human beings in activities of patterned construction and 
 replication. The requirement of self-interest to act as an economical force, by 
 prioritizing the ordering of all that is to be done, the objectives, by importance 
-is an assumption of the human beings' lack of satisfaction with static conservation. 
+is what follows from the human beings' lack of satisfaction with static conservation. 
 For the human being, their self-interest demands their physical movement, mental 
 exercise, and purposes for achievement through action or possession of the material 
 not immediately attainable. The human being that is not demanded to think much will 
@@ -3929,7 +3929,7 @@ statement is complicated by the diversification of acting that then must be
 attributed back to it, in terms of what is "best" and what was "wanted". A 
 self, when not beholden to demands, is a self without purpose, walking around 
 with an eye for nothing and may stumble upon an unknown fortune, by which they 
-must perceive as pure coincidence when they have no contextual information on 
+must judge as pure coincidence when they have no contextual information on 
 how the happening occurred. Siddhartha Guatama, the Indian prince that gave up 
 his status, did so out of his demands. According to sources, Guatama grew weary 
 and insane of his royal life. Anyone that is aware of the potential extents of 
@@ -3942,9 +3942,9 @@ and that the better option for some people, gifted into privileged status, is
 to give up their roles of status when those roles are so intertwined with the putrid 
 anti-power of base and untempered demands, in order to live lives satisfying to 
 their souls, equivalently, in alignment with their self-interests. Human beings, 
-when considered purely as "political animals", pose the same danger in civilized 
-or barbarian societies, albeit the qualities of thinking and behaving are different 
-between the two kinds of societies, hence the different labels. And that danger is 
+when considered purely as "political animals", pose the same fundamental danger in 
+civilized or barbarian societies, albeit the qualities of thinking and behaving are 
+different between the two kinds of societies, hence the different labels. And that danger is 
 economical decisions for expected gains and losses, the process and execution both 
 impossible for the deliberate human being if not for the force of self-interest. 
 All kinds of ironic plots have occurred throughout human history, and politics 
