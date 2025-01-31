@@ -3920,8 +3920,8 @@ their finiteness makes them fallible. But because the premise is the kernel for
 all of individual human existence, any explanation that satisfies rigor of reason 
 must be one that cannot immediately state the premise as the sole cause, for there 
 were too many causes and effects that occurred, and those causes were likewise 
-options for the human being to decide on. In matters of transparent and fair 
+options for the human being to decide to act on. In matters of transparent and fair 
 accountability, the human being that can prove, without reason for any other doubt, 
 that the best of their abilities could not produce the wanted outcomes, even though 
-their abilities were for what is recognized as the best course of decisions, is 
+their abilities were for what was recognized as the best course of decisions, is 
 not at fault in other human beings' accountability of them. 
