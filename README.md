@@ -3926,4 +3926,4 @@ that the best of their abilities could not produce the wanted outcomes, even tho
 their abilities were for what was recognized as the best course of decisions, is 
 not at fault in other human beings' accountability of them. Even so, the previous 
 statement is complicated in the diversification of acting that then must be 
-attributed back in terms of what is "best" and what was "wanted". 
+attributed back to it, in terms of what is "best" and what was "wanted". 
