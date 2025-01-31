@@ -3182,7 +3182,7 @@ descriptors for this. When an organization or person circumvents the rules and/o
 boundaries, and is able to derail people's whims, additionally to dash these 
 people's hopes and dreams; this makes for an example of how political craft and 
 uncomprehensive legislation result in something unresolved by an impartial and 
-complete reasoning. When someone is keen to act by the statistics that they know, 
+complete reasoning. Someone is keen to act by the statistics that they know, 
 since the statistics are the starting material to form probability distributions, 
 in order to decide by the relational metric of what is best, and is surpised to 
 realize that they were deceived when their expectations were not met, such realization 
@@ -3356,7 +3356,7 @@ materialism to pose issues, although this does not indicate much on their unique
 every human being persists only because of certain material demands met. Intellectuals become 
 ascetics as protest against the striving for excess in material for their living, and thus 
 intersect their practices with many religions that denounce the worship of the material. 
-And for that, the intellectual becomes useless to industrial growth, for they feel disgusted 
+And for that, the intellectual becomes useless to commercial growth, for they feel disgusted 
 with the designs of man that tend to be sold by the numbers of currency coins, after being 
 branded luxury names, although they may appreciate the designs on a from-oneself basis, in 
 other words, there is merit to the products out of quality that outshines and overpowers 
@@ -3437,7 +3437,7 @@ that class. The exclusion of certain members from society speaks to that society
 relational posture amongst neighboring peers, as well as how members of that society 
 opine their views and push their products; this can be rephrased in economic terms, but 
 doing so would emphasize the labor and material more, when in many cases, the material 
-and labor were already there and what was lacking was will used for appreciating the spirit 
+and labor were already there and what was lacking was will for appreciating the spirit 
 of thought. Meritocratic procedures are a complicated subject when implemented to cover 
 the various ways that human beings exhibit intellect and physical skill. Suppose that 
 one individual, because of their intellect, was able to pass an entrance exam into an 
@@ -3925,7 +3925,7 @@ accountability, the human being that can prove, without reason for any other dou
 that the best of their abilities could not produce the wanted outcomes, even though 
 their abilities were for what was recognized as the best course of decisions, is 
 not at fault in other human beings' accounting of them. Even so, the previous 
-statement is complicated by the diversification of acting that then must be 
+statement is complicated by the diversification of action that then must be 
 attributed back to it, in terms of what is "best" and what was "wanted". A 
 self, when not beholden to demands, is a self without purpose, walking around 
 with an eye for nothing and may stumble upon an unknown fortune, by which they 
@@ -3963,7 +3963,7 @@ the sight of pretty women. Through experiences that heavily involve social statu
 and material possessions, certain males grow into men that are deeply dissatisfied 
 with the demographic of women. In societies where women are granted less rights in 
 ownership, there is the instant assumption from these men that the perceived 
-affection from these women is due to the motive of their wanting control over 
+affection from some women is due to the motive of their wanting control over 
 the men's properties. Regardless of the property rights by gender, women's typically 
 weaker physical strength and household occupation gives credibility to some 
 of their stereotypes. Women are not the upfront representative to causes, and 
