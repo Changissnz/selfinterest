@@ -3931,7 +3931,7 @@ self, when not beholden to demands, is a self without purpose, walking around
 with an eye for nothing and may stumble upon an unknown fortune, by which they 
 must perceive as pure coincidence, due to having no contextual information on 
 how the happening were to occur. Siddhartha Guatama, the Indian prince that 
-gave up his status, done so out of his demands. According to sources, Guatama 
+gave up his status, did so out of his demands. According to sources, Guatama 
 grew weary and insane of his royal life. Anyone that is aware of the potential 
 extents of moral compromise and depravity, a threatening staple in the 
 internal workings of any political body, would suppose Guatama gave up his 
