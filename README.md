@@ -3916,14 +3916,14 @@ being any known consequences from the decision, the self chooses its preferences
 The finiteness of a human being gives reason for their prioritization. And so, an 
 objective that a human being fails in upholding, thus forsaking some of their 
 responsibilities from demand, can be explained by them through the premise that 
-their finiteness makes them fallible. But because the premise is the kernel for 
-all of individual human existence, any explanation that satisfies rigor of reason 
+their finiteness makes them fallible. But because the premise is part of the kernel 
+for all of individual human existence, any explanation that satisfies rigor of reason 
 must be one that cannot immediately state the premise as the sole cause, for there 
 were too many causes and effects that occurred, and those causes were likewise 
 options for the human being to decide to act on. In matters of transparent and fair 
 accountability, the human being that can prove, without reason for any other doubt, 
 that the best of their abilities could not produce the wanted outcomes, even though 
 their abilities were for what was recognized as the best course of decisions, is 
-not at fault in other human beings' accountability of them. Even so, the previous 
+not at fault in other human beings' accounting of them. Even so, the previous 
 statement is complicated in the diversification of acting that then must be 
 attributed back to it, in terms of what is "best" and what was "wanted". 
