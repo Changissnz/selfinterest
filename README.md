@@ -3939,7 +3939,7 @@ royal life for something far more ethical. One of the greatest moral lessons
 in regards to Guatama, the founder of Buddhism, is that political power, 
 so heavily leaned towards the relativity of human beings ruling over human 
 beings, is disappointingly temporary, and that the better option for some 
-people, gifted into a privileged status, is that they give up roles of status 
+people, gifted into privileged status, is that they give up roles of status 
 when those roles are so intertwined with the putrid anti-power of base and 
 untempered demands, in order to live lives satisfying to their souls, equivalently, 
 in alignment with their self-interests. 
