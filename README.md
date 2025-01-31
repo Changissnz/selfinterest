@@ -3893,7 +3893,7 @@ this truth. On the idea of some people fearing "change", the only rationale
 for the fear is that it is an effect from their belief in the negative gains 
 they are to suffer if that "change" were to be actualized. Man, in his confidence 
 of ignorance or helplessness, when no longer driven by his self-interest to engage 
-in much pondering and debating, is satisfied with the idiom that "history repeats 
+in much pondering and debating, finds satisfaction in the idiom, "history repeats 
 itself", an idiom that encourages self-fulfilling courses of future action, due in 
 ways to the excellence of human beings in activities of patterned construction and 
 replication. The requirement of self-interest to act as an economical force, by 
@@ -3901,4 +3901,10 @@ prioritizing the ordering of all that is to be done, the objectives, by importan
 is an assumption of the human beings' lack of satisfaction with static conservation. 
 For the human being, their self-interest demands their physical movement, mental 
 exercise, and purposes of achievement through action or possession of the material 
-not immediately attainable. 
+not immediately attainable. The human being that is not demanded to think much will 
+then allocate their mental energies into physical activities, and in cases of their 
+physical activity yielding unwanted results, is as devoid of rational thought as the 
+lack of their mental efforts on the negative consequences of their physical efforts. 
+The human being, incapable of physical activity past thresholds of a combination of 
+their mental restraints and physical aptitude, could be as demanding as a king that 
+cannot fight his own battles. 
