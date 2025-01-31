@@ -2583,7 +2583,7 @@ but not by narrative fate, and these antagonists characteristic of idiocy,
 lunacy, and conventional sin. But this roughly equal understanding is not 
 comprised of the rule, equivalently the principle, of reason, but of judgment 
 on what is good or bad and other labeling schematics, thus being at least one 
-layer above the description via artificial axiom; there can be no judgment 
+layer above the description via artificial axiom; there cannot be judgment 
 without the experience of perception or a blind choice. Tragedy is one 
 category of suffering, and suffering is a topic very widely discussed 
 because, for the human being, it is a universal concept. Transcendentalism 
