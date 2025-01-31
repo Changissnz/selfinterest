@@ -3963,7 +3963,7 @@ the sight of pretty women. Through experiences that heavily involve social statu
 and material possessions, certain males grow into men that are deeply dissatisfied 
 with the demographic of women. In societies where women are granted less rights in 
 ownership, there is the automatic assumption from these men that the perceived 
-affection from these women are due to the motive of their wanting control over 
+affection from these women is due to the motive of their wanting control over 
 the men's properties. Despite the property rights by gender, women's typically 
 weaker physical strength and household occupation gives credibility to some 
 of their stereotypes. Women are not the upfront representative to causes, and 
