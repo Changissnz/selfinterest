@@ -3983,7 +3983,7 @@ no longer needs to be vocal or physical to an adversary; instead, through
 word of mouth, the politicker influences another politicker and another 
 such that networks are formed to impoverish and persecute the adversary. 
 Herein these statements on civilization, one can see how human beings 
-engage in tradeoffs, and still suffer the same in states of emotion, 
+engage in tradeoffs, and still suffer the same in states of emotions, 
 due in great part to the same thematic motives that drive self-interest, 
 with the undeniable changes, arguably called improvements, being the means 
 for the objectives that serve those motives. It can be argued that human 
