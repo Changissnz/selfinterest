@@ -3884,8 +3884,8 @@ for another attempt. The efforts undertaken by human beings, in arrangements
 of individuals and group organizations, bear effects that can always be gauged 
 on gradients of those centered around change and novelty (a change from 
 the norms of change). The idea of "change" may have a resonance in tone 
-perceived by some people in the lens of fear. This is a common occurrence out 
-of interpretation of the broadness of "change" into the existential specifics, 
+perceived by some people in the lens of fear. This is a common occurrence, out 
+of interpreting the broadness of "change" into the existential specifics, 
 since any human activity of thought or action is technically a change from 
 the past. This fact is a consequence of the greater truth that stems from 
 perception: the past, the present, and the future are each distinct categories 
