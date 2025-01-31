@@ -3226,11 +3226,11 @@ established written doctrine due to the reliance on the one representative
 text, the Bible. The Bible, through the events it describes, offers believers 
 the material for their moral compasses. Figures such as the mortal giant 
 Goliath and the sea monster Leviathan deliver meaning to believers on the 
-monstrosities at play. Metaphorically, in contemporary times, Goliath has 
-been a metaphor for particular organizations that are much too great in 
-scale that they have been forced into roles imposing on anyone or anything 
-else. The Leviathan gives believers a sense of some great and wretched 
-unknown that they must face, from time and again, such that the encounters 
+monstrosities at play. In contemporary times, Goliath has been a metaphor 
+for particular organizations that are much too great in scale that they 
+have been forced into roles imposing on anyone or anything else. The 
+Leviathan gives believers a sense of some great and wretched unknown 
+that they must face, from time and again, such that the encounters 
 may result in their end of life. The purported literal inaccuracies of 
 Christianity bear evidence to anyone, not just the believer, of how meaning 
 is delivered to them past their own life experiences. The primitive of 
