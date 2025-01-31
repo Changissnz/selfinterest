@@ -3873,3 +3873,8 @@ that they rightfully had the merit to continue rule without having to be
 subservient to Nobunaga. 
 
 ## More on philosophies of self-interest #56 
+
+Human beings, given all the options conceived by their cognition and the 
+demands relayed to them of immediate and long-term dues, prioritize their 
+objectives, and this shifts their focus of thought and action into 
+constraints in the possibilities from their independent doings. 
