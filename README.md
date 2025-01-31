@@ -3989,5 +3989,5 @@ with the undeniable changes, arguably called improvements, being the means
 for the objectives that serve those motives. It can be argued that human 
 beings are inconsiderate to inevitable suffering when they prioritize their 
 objectives. Priority matters for capability, and although capability is 
-relative, the utilization of capability over the incapable bears objective 
+relative, the utilization of capability against the incapable bears objective 
 effects, usually much to the chagrin of the incapable. 
