@@ -3968,10 +3968,10 @@ the men's properties. Despite the property rights by gender, women's typically
 weaker physical strength and household occupation gives credibility to some 
 of their stereotypes. Women are not the upfront representative to causes, and 
 instead resort to whispering narratives in others' ears for their own socio-economically 
-driven conspiracies. The archetypal female murderess uses poison instead of guns 
+driven conspiracies. The archetypal murderess uses poison instead of guns 
 and knives. Historically, there are more prostitutes that are female than male. 
-A misogynist does not believe in the love of feminine nature, due to the structured 
-causality chains that help to orchestrate the occurrence of man meeting woman, 
-for the possibility to continue on as lovers. And these causality chains very 
-much rest on merits revolving around socio-economic status, not too different 
-from political pragmatics. 
+A misogynist does not believe in the love from feminine nature, due to their 
+incredulity at the structured causality chains that help to orchestrate the 
+occurrence of man meeting woman, for the possibility to continue on as lovers. 
+And these causality chains very much rest on merits revolving around socio-economic 
+status, not too different from political pragmatics. 
