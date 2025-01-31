@@ -3943,16 +3943,17 @@ to give up their roles of status when those roles are so intertwined with the pu
 anti-power of base and untempered demands, in order to live lives satisfying to 
 their souls, equivalently, in alignment with their self-interests. Human beings, 
 when considered purely as "political animals", pose the same danger in civilized 
-or barbarian societies. And that danger is economical decisions for expected gains 
-and losses, the process and execution both impossible for the deliberate human 
-being if not for the force of self-interest. All kinds of ironic plots have 
-occurred throughout human history, and politics has always been a prevalent 
-theme. Consider this. A former friend becomes a political agent, strikes deals 
-with antagonists, and thinks that their newfound alliances will spare them a fate 
-quite the opposite of state-imposed death penalty. And the former friend is 
-promoted by society to a lord of sorts over a dominion where they were once 
-at most an equal in talent and the worse of the criminal, relatively speaking. 
-Chains of events such as these are surprising when one prioritizes friendships 
-over politics. When politics is the primary aim, the saying, "there are no 
-friends in politics", works as a more accurate wisdom on the nature of this 
+or barbarian societies, albeit the qualities of thinking and behaving are different 
+between the two kinds of societies, hence the different labels. And that danger is 
+economical decisions for expected gains and losses, the process and execution both 
+impossible for the deliberate human being if not for the force of self-interest. 
+All kinds of ironic plots have occurred throughout human history, and politics 
+has always been a prevalent theme. Consider this. A former friend becomes a political 
+agent, strikes deals with antagonists, and thinks that their newfound alliances 
+will spare them a fate quite the opposite of state-imposed death penalty. And the 
+former friend is promoted by society to a lord of sorts over a dominion where they 
+were once at most an equal in talent and the worse of the criminal, relatively 
+speaking. Chains of events such as these are surprising when one prioritizes 
+friendships over politics. When politics is the primary aim, the saying, "there 
+are no friends in politics", works as a more accurate wisdom on the nature of this 
 category of activity. 
