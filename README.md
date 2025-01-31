@@ -3926,4 +3926,20 @@ that the best of their abilities could not produce the wanted outcomes, even tho
 their abilities were for what was recognized as the best course of decisions, is 
 not at fault in other human beings' accounting of them. Even so, the previous 
 statement is complicated by the diversification of acting that then must be 
-attributed back to it, in terms of what is "best" and what was "wanted". 
+attributed back to it, in terms of what is "best" and what was "wanted". A 
+self, when not beholden to demands, is a self without purpose, walking around 
+with an eye for nothing and may stumble upon an unknown fortune, by which they 
+must perceive as pure coincidence, due to having no contextual information on 
+how the happening were to occur. Siddhartha Guatama, the Indian prince that 
+gave up his status, done so out of his demands. According to sources, Guatama 
+grew weary and insane of his royal life. Anyone that is aware of the potential 
+extents of moral compromise and depravity, a threatening staple in the 
+internal workings of any political body, would suppose Guatama gave up his 
+royal life for something far more ethical. One of the greatest moral lessons 
+in regards to Guatama, the founder of Buddhism, is that political power, 
+so heavily leaned towards the relativity of human beings ruling over human 
+beings, is disappointingly temporary, and that the better option for some 
+people, gifted into a privileged status, is that they give up roles of status 
+when those roles are so intertwined with the putrid power of base and untempered 
+demands, in order to live lives satisfying to their souls, equivalently, in 
+alignment with their self-interests. 
