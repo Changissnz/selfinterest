@@ -3956,4 +3956,17 @@ were once at most an equal in talent and the worse of the criminal, relatively
 speaking. Chains of events such as these are surprising when one prioritizes 
 friendships over politics. When politics is the primary aim, the saying, "there 
 are no friends in politics", works as a more accurate wisdom on the nature of this 
-category of activity. 
+category of activity. Misogyny is a consequence of certain kinds of prioritizations 
+by self-interest that must operate in the social construct. Young males, out of 
+a combination of their naivety and stupidity, metaphorically drop their jaws at 
+the sight of pretty women. Through experiences that heavily involve social status 
+and material possessions, certain males grow into men that are deeply dissatisfied 
+with the demographic of women. In societies where women are granted less rights in 
+ownership, there is the automatic assumption from these men that the perceived 
+affection from these women are due to the motive of their wanting control over 
+the men's properties. Despite the property rights by gender, women's typically 
+weaker physical strength and household occupation gives credibility to some 
+of their stereotypes. Women are not the upfront representative to causes, and 
+instead resort to whispering narratives in others' ears for their own socio-economically 
+driven conspiracies. The archetypal female murderess uses poison instead of guns 
+and knives. Historically, there are more prostitutes that are female than male. 
