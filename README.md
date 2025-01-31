@@ -3892,7 +3892,13 @@ of spatiotemporal contexts. There are perspectives on the wholesomeness of
 this truth. On the idea of some people fearing "change", the only rationale 
 for the fear is that it is an effect from their belief in the negative gains 
 they are to suffer if that "change" were to be actualized. Man, in his confidence 
-of ignorance, when no longer driven by his self-interest to engage in much pondering 
-and debating, is satisfied with the idiom that "history repeats itself", an idiom 
-that encourages self-fulfilling courses of future action, due in ways to the 
-excellence of human beings in activities of patterned construction and replication. 
+of ignorance or helplessness, when no longer driven by his self-interest to engage 
+in much pondering and debating, is satisfied with the idiom that "history repeats 
+itself", an idiom that encourages self-fulfilling courses of future action, due in 
+ways to the excellence of human beings in activities of patterned construction and 
+replication. The requirement of self-interest to act as an economical force, by 
+prioritizing the ordering of all that is to be done, the objectives, by importance 
+is an assumption of the human beings' lack of satisfaction with static conservation. 
+For the human being, their self-interest demands their physical movement, mental 
+exercise, and purposes of achievement through action or possession of the material 
+not immediately attainable. 
