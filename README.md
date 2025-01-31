@@ -3901,11 +3901,15 @@ replication. The requirement of self-interest to act as an economical force, by
 prioritizing the ordering of all that is to be done, the objectives, by importance 
 is an assumption of the human beings' lack of satisfaction with static conservation. 
 For the human being, their self-interest demands their physical movement, mental 
-exercise, and purposes of achievement through action or possession of the material 
+exercise, and purposes for achievement through action or possession of the material 
 not immediately attainable. The human being that is not demanded to think much will 
 then allocate their mental energies into physical activities, and in cases of their 
 physical activity yielding unwanted results, is as devoid of rational thought on 
 the negative consequences of their physical efforts, as their lack of mental efforts 
 had them be. The human being, incapable of physical activity past thresholds of a 
 combination of their mental restraints and physical aptitude, could be as demanding 
-as a king that cannot fight his own battles. 
+as a king that cannot fight his own battles. There is a big point of complication in 
+knowing the specifics of the priorities from self-interest, and that is the demands 
+of self-interest are the preferences in choice. There can many options presented 
+to the self, but by the innate autonomy to accept or reject alongside there not 
+being any known consequences to the decision, the self chooses its preferences. 
