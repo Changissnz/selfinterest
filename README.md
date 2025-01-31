@@ -3941,4 +3941,8 @@ relativity of human beings ruling over human beings, is disappointingly temporar
 and that the better option for some people, gifted into privileged status, is 
 to give up their roles of status when those roles are so intertwined with the putrid 
 anti-power of base and untempered demands, in order to live lives satisfying to 
-their souls, equivalently, in alignment with their self-interests. 
+their souls, equivalently, in alignment with their self-interests. Human beings, 
+when considered purely as "political animals", pose the same danger in civilized 
+or barbarian societies. And that danger is economical decisions for expected gains 
+and losses, the process and execution both impossible for the deliberate human 
+being if not for the force of self-interest. 
