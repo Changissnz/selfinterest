@@ -3985,5 +3985,9 @@ such that networks are formed to impoverish and persecute the adversary.
 Herein these statements on civilization, one can see how human beings 
 engage in tradeoffs, and still suffer the same in states of emotion, 
 due in great part to the same thematic motives that drive self-interest, 
-with the undeniable improvements being the means for the objectives that 
-serve those motives. 
+with the undeniable changes, arguably called improvements, being the means 
+for the objectives that serve those motives. It can be argued that human 
+beings are inconsiderate to inevitable suffering when they prioritize their 
+objectives. Priority matters for capability, and although capability is 
+relative, the utilization of capability over the incapable bears objective 
+effects, usually much to the chagrin of the incapable. 
