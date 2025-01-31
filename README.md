@@ -397,7 +397,7 @@ be adjectives such as “foolish”, “criminal”, “unruly”, and “dishon
 great followings for intended results such as great grievances, great inflation 
 of ego, et cetera. In a related field, there is drama, and the structurization 
 of sentient activity, namely the activity of human beings, into that which elicits 
-sentiment is dramatization. Without subjectivity, there can be no ethics. With 
+sentiment is dramatization. Without subjectivity, there cannot be ethics. With 
 subjectivity in the form of intense sentiment expressed in outward form by the 
 will, sometimes in opposition to the directionality of origin belonging to the 
 “self-interest”, ethics serves as the field that regulates through the encouragement 
@@ -421,7 +421,7 @@ for the cause of the “self-interest”.
 
 ## More on philosophies of self-interest #14 
 
-The previous note made the claim: "without subjectivity, there can be no 
+The previous note made the claim: "without subjectivity, there cannot be 
 ethics". Furthering the argument in favor of this claim, a very 
 well-known concept called the "sphere of influence" is used. So without 
 subjectivity, there is no need for ethics because ethics is what is 
