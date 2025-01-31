@@ -3892,5 +3892,5 @@ of spatiotemporal contexts. There are perspectives on the wholesomeness of
 this truth. Man, in his confidence of ignorance, when no longer driven by 
 his self-interest to engage in much pondering and debating, is satisfied 
 with the idiom that "history repeats itself", an idiom that encourages 
-self-fulfilling courses of future action, due to the excellence of human 
-beings in activities of patterned construction and replication. 
+self-fulfilling courses of future action, due in ways to the excellence 
+of human beings in activities of patterned construction and replication. 
