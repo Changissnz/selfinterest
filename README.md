@@ -4063,4 +4063,7 @@ to at least the Ancient Greek period, to don attire in uniforms, so as to mask
 individual meaning for the presentation of a whole of indistinguishable components. 
 The lack of perceptible expression is also expression, due to such reasons as 
 existence necessitating meaning for that existence, as well as the understanding 
-of expression in terms of at least one spectrum, each starting from null. 
+of expression in terms of at least one spectrum, each starting from null. This 
+is proven by the case of a non-vocal individual actually being a significant 
+influence; their expression is there in action, just not channeled by their 
+verbal communication. 
