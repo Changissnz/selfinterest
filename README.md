@@ -4077,7 +4077,7 @@ being pro-active by being presumptuous, are the ones at fault. But if the one we
 be deceptive through their actions, then by the basis of their being the one pro-active 
 for that quality of output, that one would be at fault. In both of these statements, 
 there are the judgments of deception as absolutely a fault, a break from the forthrightness 
-of the original, and pro-action being a stronger correlating category to deception than 
-null-action. Cases of those that do not reveal the actual meaning behind the supposed 
-deceptive expression are to be categorized as deception of innate appearance, then, for 
-completeness in consideration of how deception manifests. 
+of the actual, and pro-action being more willful to deception than null-action. Cases of 
+those that do not reveal the actual meaning behind the supposed deceptive expression 
+are to be categorized as deception of innate appearance, then, for completeness in 
+consideration of how deception manifests. 
