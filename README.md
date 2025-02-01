@@ -3997,5 +3997,5 @@ effects, usually much to the chagrin of the incapable.
 For all the glories and magnificence that human expression is alleged to 
 offer, there are certainly drawbacks. Also of certainty is human expression, 
 varying from region to region around Earth, having subjective qualities that 
-are coincidentally also some of the more revered qualities of the respective 
+are coincidentally some of the more revered qualities of the respective 
 region. 
