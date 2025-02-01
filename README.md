@@ -2586,8 +2586,8 @@ on what is good or bad and other labeling schematics, thus being at least one
 layer above the description via artificial axiom; there cannot be judgment 
 without the experience of perception or a blind choice. Tragedy is one 
 category of suffering, and suffering is a topic very widely discussed 
-because, for the human being, it is a universal concept. Transcendentalism 
-is one broad field of thought that has attempted to alleviate suffering 
+because for the human being, it is a universal concept. Transcendentalism 
+is a broad field of thought that has attempted to alleviate suffering 
 by sentient beings who, upon finding stability in certain environments 
 and labors, become disgruntled with the metaphysical maze of artificial 
 axioms, alleged by them to dictate their decisions, restricting their 
@@ -2625,7 +2625,7 @@ How can the self be thought of in ways that cannot be captured by
 conceiving understanding of the individual, from their self, in formats 
 of artificial axioms? There is an undeniable emotive body in any typical 
 human being; the straight-faced stoic is not spared from this condition, 
-and is praised for maintaining an air of resolute and tempered 
+and is praised only for maintaining an air of resolute and tempered 
 expression in conditions that would make an emotionalist berserk or 
 tearfully insane. The human being, a "social creature", and by this 
 label predictable in aspects concerning their sociality and social 
@@ -2769,7 +2769,7 @@ political ego, for the business tied to the economics of power instituted throug
 governmental and enterprising operation on an axis of stability; this is the objective 
 of the rule. The rule is to bring order to human beings, the "social creatures" 
 that they are. Through the rule effective in and of itself, and also persisting 
-through changes, improvements and reforms to rule can be made. There is the "human 
+through changes, improvements and reforms to rule may be made. There is the "human 
 factor" in the rule. Invoking the rule brings to mind social interactions such 
 as at least one and their utility of the rule, and at least one to others responsible 
 for upholding the rule. The artificial axiom, with its mathematical connotation, 
@@ -3991,3 +3991,11 @@ beings are inconsiderate to inevitable suffering when they prioritize their
 objectives. Priority matters for capability, and although the status of capability 
 is relative, the utilization of capability against the incapable bears objective 
 effects, usually much to the chagrin of the incapable. 
+
+## More on philosophies of self-interest #57 
+
+For all the glories and magnificence that human expression is alleged to 
+offer, there are certainly drawbacks. Also of certainty is human expression, 
+varying from region to region around Earth, having subjective qualities that 
+are coincidentally also some of the more revered qualities of the respective 
+region. 
