@@ -264,7 +264,7 @@ by the “self” for the “self-interest” thought of by the “self” to be
 already defined, the “interest” of the “self” is what the “self”, itself, 
 is as immortally connected to as what cannot be defined in the scientific 
 terms of the material. Objectives of “self-interest” can change, while 
-“self-interest” is a constant with the freedom of varying outward expression. 
+“self-interest” is a constant of sentient existence, with the freedom of varying outward expression. 
 “Self-interest” is governed by internalist construct, not innately governed 
 by foreign metaphysical or physical forces, and is an element higher in level 
 to “motivation” in the hierarchy of cognition. As for utilitarianism, the 
@@ -368,7 +368,7 @@ for the practice. And ethics is, as per the wisdom that the human being is a “
 creature”, a fixture for the “social” creature of subjectivity before objectivity in 
 their priorities, the fixture as analysis in the form of cross-examinations and 
 introspections relatable to but not required to be related to the natural sciences, 
-since sentient being’s understanding of the natural sciences bears relevance outside 
+since sentient beings' understanding of the natural sciences bears relevance outside 
 of the manuscripts and natural phenomenon as practiced by sentient beings, practices 
 coinciding with natural phenomenon but differing to natural phenomenon by their sole 
 association to sentient will, so will has the effecting autonomy to heed natural 
@@ -397,7 +397,7 @@ be adjectives such as “foolish”, “criminal”, “unruly”, and “dishon
 great followings for intended results such as great grievances, great inflation 
 of ego, et cetera. In a related field, there is drama, and the structurization 
 of sentient activity, namely the activity of human beings, into that which elicits 
-sentiment is dramatization. Without subjectivity, there cannot be ethics. With 
+sentiment is dramatization. Without subjectivity, there can be no ethics. With 
 subjectivity in the form of intense sentiment expressed in outward form by the 
 will, sometimes in opposition to the directionality of origin belonging to the 
 “self-interest”, ethics serves as the field that regulates through the encouragement 
@@ -421,7 +421,7 @@ for the cause of the “self-interest”.
 
 ## More on philosophies of self-interest #14 
 
-The previous note made the claim: "without subjectivity, there cannot be 
+The previous note made the claim: "without subjectivity, there can be no
 ethics". Furthering the argument in favor of this claim, a very 
 well-known concept called the "sphere of influence" is used. So without 
 subjectivity, there is no need for ethics because ethics is what is 
@@ -444,7 +444,7 @@ distortion in appearance if it was likened to a single variable in the manner
 of use for conventional algebraic expressions in mathematics. The collective, 
 meaning the mass of human beings, after reaching consensus on the predominant 
 initiatives, although the specific form and the specific movement of each of 
-the collective does not have to coincide and only required to overlap in 
+the collective do not have to coincide and only required to overlap in 
 judgment of similarity, consists of individuals with self-interests that 
 overlap. This phenomenon, in every case of a united collective, goes back by 
 reason to how the "self" understands the "self" along with "interest" for 
@@ -473,7 +473,8 @@ being is claimed to have done some particular things. Because the sphere of
 influence labeled that particular human being a specific adjective, members 
 of the sphere of influence, in turn, believe the human being to have done those 
 particular things, without anything close to being as real as the direct experience 
-that can be recalled by cognitive instruments of healthy structure, such as human brains.
+that can be recalled by cognitive instruments of healthy structure, such as 
+functioning human brains.
 
 ## More on philosophies of self-interest #15
 
