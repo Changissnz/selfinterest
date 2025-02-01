@@ -4016,8 +4016,11 @@ Competent manifestations of deception could be due to pertinent unknowns remaini
 unknowns, thus exponentiating doubt that could drastically distort the interpreter's 
 cognitive faculties, and to the fluidity of changing circumstances that manipulate 
 the interpreter's priorities in the context of the deception. In simple cases, 
-where one knows the objective of an adversarial other, and exactly the answer for 
-that objective, there occurs some dynamics that could be considered dishonest. 
-They choose the setting they think is appropriate to express to the adversarial 
-other their understanding of the matter, in the form of their wanted response 
-for what they believe is that adversarial other's objective. 
+where one knows the objective and exactly the answer for that objective of an 
+adversarial other, behind their metaphorical mask, there occurs some dynamics that 
+could be considered dishonest. They choose the setting they think is appropriate 
+to express to the adversarial other their understanding of the matter, in the form 
+of their wanted response for what they believe is that adversarial other's objective. 
+For all practical matters of grave adversarial concern, the choice setting of the 
+change-of-face is the outward determinant in the signifying of bi-directional adversarial 
+relations between the two. 
