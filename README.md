@@ -4059,11 +4059,13 @@ in motive, through temporal continuity, are counter-analytic to the task of stat
 ascription of a particular self-interest to light or dark motives. An expression 
 is as significant as the immediate meaning and the ends out of that meaning. Due 
 primarily to this statement, it has become common for militaries, dating back 
-to at least the Ancient Greek period, to don attire in uniforms, so as to mask 
+to at least the Ancient Greek period, to don attire in uniform, so as to mask 
 individual meaning for the presentation of a whole of indistinguishable components. 
 The lack of perceptible expression is also expression, due to such reasons as 
 existence necessitating meaning for that existence, as well as the understanding 
 of expression in terms of at least one spectrum, each starting from null. This 
 is proven by the case of a non-vocal individual actually being a significant 
 influence; their expression is there in action, just not channeled by their 
-verbal communication. 
+verbal communication. There are no universal guidelines for responses to deceptive 
+expression. Without this kind of expression bearing effects deemed negative, by 
+consensus, the guidelines would be judged as dictatorial. 
