@@ -4068,4 +4068,11 @@ is proven by the case of a non-vocal individual actually being a significant
 influence; their expression is there in action, just not channeled by their 
 verbal communication. There are no universal guidelines for responses to deceptive 
 expression. Without this kind of expression bearing effects deemed negative, by 
-consensus, the guidelines would be judged as dictatorial. 
+consensus, the guidelines would be judged as something along the lines of dictatorial. 
+When one is deceptive by "innate appearance", others will have faulty presumptions 
+on that that one. The others interpret that one as something other than their actual 
+from-oneself. For purposes of accountability, the others, out of their being pro-active 
+by being presumptuous, are the ones at fault. But if the one were to be deceptive 
+through their actions, then by the basis of their being the one pro-active, that 
+one would be at fault. In both of these statements, there is the judgment of deception 
+as absolutely a fault. 
