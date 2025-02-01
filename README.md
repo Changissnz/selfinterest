@@ -4049,7 +4049,7 @@ complacency instead of vigilance, since this category of metaphysical bodies is 
 as quick in transforming into the information that is the corresponding object. The 
 characteristics of light and dark motives that have been stated are both incomplete 
 and not entirely accurate. In practice, light motives can become predisposed to 
-association with existential aspects to the self, such as home, family, and significant 
+associating with existential aspects to the self, such as home, family, and significant 
 other. Associations such as these do constrain the focus of these motives towards 
 objects and identities, and since any object or identity is merely a candidate in 
 a seemingly infinite set of candidates, these motives become coupled with bias. A universal 
@@ -4061,3 +4061,6 @@ is as significant as the immediate meaning and the ends out of that meaning. Due
 primarily to this statement, it has become common for militaries, dating back 
 to at least the Ancient Greek period, to don attire in uniforms, so as to mask 
 individual meaning for the presentation of a whole of indistinguishable components. 
+The lack of perceptible expression is also expression, due to such reasons as 
+existence necessitating meaning for that existence, as well as the understanding 
+of expression in terms of at least one spectrum, each starting from null. 
