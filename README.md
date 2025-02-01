@@ -4021,6 +4021,8 @@ adversarial other, behind their metaphorical mask, there occurs some dynamics th
 could be considered dishonest. They choose the setting they think is appropriate 
 to express to the adversarial other their understanding of the matter, in the form 
 of their wanted response for what they believe is that adversarial other's objective. 
-For all practical matters of grave adversarial concern, the choice setting of the 
-change-of-face is the outward determinant in the signifying of bi-directional adversarial 
-relations between the two. 
+The term "understanding", used to describe this decision, is not those lines of 
+thinking required to satisfy a comprehensive knowledge of a matter. For all practical 
+matters of grave adversarial concern, the choice setting of the change-of-face is 
+the outward determinant in the signifying of bi-directional adversarial relations 
+between the two. 
