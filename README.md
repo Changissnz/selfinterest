@@ -344,15 +344,15 @@ choice, free from the spatiotemporal setting, for the “self”. Utilitarian
 initiatives can fall through or take detours into other initiatives. There 
 is a difference in the manipulability present. “Self-interest” and utilitarianism 
 are partly evident through the expression. But the “interest” to the “self” is 
-of a lower level of difference than the objective/s of the “self”, due to chosen 
+of a lower level of difference than to the objective/s of the “self”, due to chosen 
 utility to the “self”. The “interest” and the “self” are separate only in wording, 
 in the context of “self-interest”. But with utilitarianism, there is the “self”, 
 their chosen utility given their span/s of choice, and their objective. The degree 
-of change in expression by the self-interested has a higher potential of difference 
+of change in expression for the self-interested has a higher potential of difference 
 than that of the utilitarian, one who thinks and acts as a subject of the spatiotemporal 
 setting, although not necessarily for objectives that lie in any spatiotemporal setting. 
 In manipulation, “self-interest” remains as a force but expresses by something not 
-from the original, free from it, due to effects of the external’s changes of the 
+from the original, free from it, due to effects from the external’s changes of the 
 will’s directionality. The self-interested that decides on being utilitarian thinks 
 and acts in ways not of the original to “self-interest”, if manipulated, and thus 
 fails to be utilitarian in the required identity of the original. And the utilitarian 
