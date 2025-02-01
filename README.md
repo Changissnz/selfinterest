@@ -4060,4 +4060,4 @@ ascription of a particular self-interest to light or dark motives. An expression
 is as significant as the immediate meaning and the ends out of that meaning. Due 
 primarily to this statement, it has become common for militaries, dating back 
 to at least the Ancient Greek period, to don attire in uniforms, so as to mask 
-individual meaning for the presentatio of an indistinguishable whole. 
+individual meaning for the presentation of a whole of indistinguishable components. 
