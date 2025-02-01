@@ -4031,8 +4031,10 @@ the human being. And the motive, as what comes out of motivation, is broad and s
 heavily contaminated with the passions that in order for the motive to have any 
 significance for the human being, the human being must formulate objectives to 
 pacify the imbalance in motivation because of that motive. As with many expansive 
-concept, motive can be split into dichotomies of dark and light. The dark motives 
-include fear, hate, and vengeance. The light motives revolve around peace. And 
-thus, by these examples of motives, there is a point to be made on these metaphysical 
-bodies: they have no directed meaning, in and of themselves, and the human being 
-is aware of them only by their feeling of the presence. 
+concept, motive can be split into dichotomies of dark and light. In one orthodox 
+classification, the dark motives include fear, hate, and vengeance. The light motives 
+revolve around peace. And thus, by these examples of motives, there is a point to be 
+made on these metaphysical bodies: they have no directed meaning, in and of themselves, 
+and the human being is aware of them only by their feeling of the presence. Yet, 
+self-interest is indeed affected by the presence of these metaphysical bodies, since 
+said bodies do skew the directionality of the dependency that is the will. 
