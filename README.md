@@ -345,11 +345,11 @@ initiatives can fall through or take detours into other initiatives. There
 is a difference in the manipulability present. “Self-interest” and utilitarianism 
 are partly evident through the expression. But the “interest” to the “self” is 
 of a lower level of difference than the objective/s of the “self”, due to chosen 
-utility, to the “self”. The “interest” and the “self” are separate only in wording, 
+utility to the “self”. The “interest” and the “self” are separate only in wording, 
 in the context of “self-interest”. But with utilitarianism, there is the “self”, 
 their chosen utility given their span/s of choice, and their objective. The degree 
-of change in expression for the self-interested has a higher potential of difference 
-to that of the utilitarian, one who thinks and acts as a subject of the spatiotemporal 
+of change in expression by the self-interested has a higher potential of difference 
+than that of the utilitarian, one who thinks and acts as a subject of the spatiotemporal 
 setting, although not necessarily for objectives that lie in any spatiotemporal setting. 
 In manipulation, “self-interest” remains as a force but expresses by something not 
 from the original, free from it, due to effects of the external’s changes of the 
@@ -4077,7 +4077,9 @@ being pro-active by being presumptuous, are the ones at fault. But if the one we
 be deceptive through their actions, then by the basis of their being the one pro-active 
 for that quality of output, that one would be at fault. In both of these statements, 
 there are the judgments of deception as absolutely a fault, a break from the forthrightness 
-of the actual, and pro-action being more willful to deception than null-action. Cases of 
+of the actual, and pro-action being more willful than null-action to deception. Cases of 
 those that do not reveal the actual meaning behind the supposed deceptive expression 
 are to be categorized as deceivers by innate appearance, then, for completeness in 
 consideration of how deception manifests. 
+
+## More on philosophies of self-interest #58 
