@@ -4012,7 +4012,7 @@ the binary response of knowing or not knowing what the substance is. Deception b
 action, specifically that of human beings, has a difficulty in interpretation 
 in proportion to the hardness of the information games at play. Therein the 
 information games lies the deception in compartmentalized and shifty forms. 
-Competent manifestations of deception could be due to the unknown remaining the 
-unknown, thus exponentiating doubt that could drastically distort the interpreter's 
+Competent manifestations of deception could be due to pertinent unknowns remaining 
+unknowns, thus exponentiating doubt that could drastically distort the interpreter's 
 cognitive faculties, and to the fluidity of changing circumstances that manipulate 
 the interpreter's priorities in the context of the deception. 
