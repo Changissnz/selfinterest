@@ -4030,7 +4030,7 @@ the will dependent on the motivation, is the last metaphysical driver of motive 
 the human being. And the motive, as what comes out of motivation, is broad and so 
 heavily contaminated with the passions that in order for the motive to have any 
 significance for the human being, the human being must formulate objectives to 
-pacify the imbalance in motivation because of that motive. As with many expansive 
+pacify the imbalance in their motivation because of that motive. As with any expansive 
 concept, motive can be split into dichotomies of dark and light. In one orthodox 
 classification, the dark motives include fear, hate, and vengeance. The light motives 
 revolve around peace. And thus, by these examples of motives, there is a point to be 
@@ -4052,8 +4052,9 @@ and not entirely accurate. In practice, light motives can become predisposed to
 association with existential aspects to the self, such as home, family, and significant 
 other. Associations such as these do constrain the focus of these motives towards 
 objects and identities, and since any object or identity is merely a candidate in 
-a seemingly infinite set of candidates, the motives are coupled with bias. A universal 
+a seemingly infinite set of candidates, these motives become coupled with bias. A universal 
 problem for human existence, worthy to note so as to demonstrate the complication of 
 purist application of "light" or "dark" into personal settings. And the possible changes 
 in motive, through temporal continuity, are counter-analytic to the task of static 
-ascription of a particular self-interest to light or dark motives. 
+ascription of a particular self-interest to light or dark motives. An expression 
+is as significant as the immediate meaning and the ends out of that meaning. 
