@@ -4021,8 +4021,18 @@ adversarial other, behind their metaphorical mask, there occurs some dynamics th
 could be considered dishonest. They choose the setting they think is appropriate 
 to express to the adversarial other their understanding of the matter, in the form 
 of their wanted response for what they believe is that adversarial other's objective. 
-The term "understanding", used to describe this decision, is not those lines of 
-thinking required to satisfy a comprehensive knowledge of a matter. For all practical 
-matters of grave adversarial concern, the choice setting of the change-of-face is 
-the outward determinant in the signifying of bi-directional adversarial relations 
-between the two. 
+As clarification, the term "understanding", used to describe this decision, is not 
+those lines of thinking required to satisfy a comprehensive knowledge of the matter. 
+For all practical matters of grave adversarial concern, the choice setting of the 
+change-of-face is the outward determinant in the signifying of bi-directional adversarial 
+relations between the two. Self-interest, being that force dependent on the will and 
+the will dependent on the motivation, is the last metaphysical driver of motive for 
+the human being. And the motive, as what comes out of motivation, is broad and so 
+heavily contaminated with the passions that in order for the motive to have any 
+significance for the human being, the human being must formulate objectives to 
+pacify the imbalance in motivation because of that motive. As with many expansive 
+concept, motive can be split into dichotomies of dark and light. The dark motives 
+include fear, hate, and vengeance. The light motives revolve around peace. And 
+thus, by these examples of motives, there is a point to be made on these metaphysical 
+bodies: they have no directed meaning, in and of themselves, and the human being 
+is aware of them only by their feeling of the presence. 
