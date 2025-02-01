@@ -4054,4 +4054,6 @@ other. Associations such as these do constrain the focus of these motives toward
 objects and identities, and since any object or identity is merely a candidate in 
 a seemingly infinite set of candidates, the motives are coupled with bias. A universal 
 problem for human existence, worthy to note so as to demonstrate the complication of 
-purist application of "light" or "dark" into personal settings. 
+purist application of "light" or "dark" into personal settings. And the possible changes 
+in motive, through temporal continuity, are counter-analytic to the task of static 
+ascription of a particular self-interest to light or dark motives. 
