@@ -4037,4 +4037,8 @@ revolve around peace. And thus, by these examples of motives, there is a point t
 made on these metaphysical bodies: they have no directed meaning, in and of themselves, 
 and the human being is aware of them only by their feeling of the presence. Yet, 
 self-interest is indeed affected by the presence of these metaphysical bodies, since 
-said bodies do skew the directionality of the dependency that is the will. 
+said bodies do skew the directionality of the dependency that is the will. The dark 
+motives, especially, tends to raise more division between self-interest and certain 
+elements of the external world, such as other people. The light motives, on the other 
+hand, are not predisposed to that dynamic, yet can be condoning of ignorance instead 
+of innocence and apathy instead of impartiality. 
