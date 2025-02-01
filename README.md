@@ -4070,9 +4070,14 @@ verbal communication. There are no universal guidelines for responses to decepti
 expression. Without this kind of expression bearing effects deemed negative, by 
 consensus, the guidelines would be judged as something along the lines of dictatorial. 
 When one is deceptive by "innate appearance", others will have faulty presumptions 
-on that that one. The others interpret that one as something other than their actual 
-from-oneself. For purposes of accountability, the others, out of their being pro-active 
-by being presumptuous, are the ones at fault. But if the one were to be deceptive 
-through their actions, then by the basis of their being the one pro-active, that 
-one would be at fault. In both of these statements, there is the judgment of deception 
-as absolutely a fault. 
+on that one. The others interpret that one as something contrary to their actual 
+what-is; the interpretation is not completely contained in meaning with that of 
+the what-is, in other words. For purposes of accountability, the others, out of their 
+being pro-active by being presumptuous, are the ones at fault. But if the one were to 
+be deceptive through their actions, then by the basis of their being the one pro-active, 
+that one would be at fault. In both of these statements, there are the judgments of 
+deception as absolutely a fault, a break from the forthrightness of the original, and 
+that pro-action is to be a stronger correlating category to deception than null-action. 
+Cases of those that do not reveal the actual meaning behind the supposed deceptive 
+expression are to be categorized as deception of innate appearance, then, for completeness 
+in consideration of how deception manifests. 
