@@ -4039,6 +4039,11 @@ and the human being is aware of them only by their feeling of the presence. Yet,
 self-interest is indeed affected by the presence of these metaphysical bodies, since 
 said bodies do skew the directionality of the dependency that is the will. The dark 
 motives, especially, tends to raise more division between self-interest and certain 
-elements of the external world, such as other people. The light motives, on the other 
-hand, are not predisposed to that dynamic, yet can be condoning of ignorance instead 
-of innocence and apathy instead of impartiality. 
+elements of the external world, such as other people. In cases where the dark motives 
+are influences that domineer self-interest, there is the immediate transformation of 
+the dark motives into their object, such as another human being, and from that 
+transformation, the formulation of the objective on how to deal with the object ensues. 
+The light motives, on the other hand, are not predisposed to that dynamic, yet can be 
+condoning of ignorance instead of innocence, apathy instead of impartiality, and 
+complacency instead of ignorance, since this category of metaphysical bodies are not 
+as quick in transforming into the information that is the corresponding object.  
