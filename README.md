@@ -4019,4 +4019,5 @@ the interpreter's priorities in the context of the deception. In simple cases,
 where one knows the objective of an adversarial other, and exactly the answer for 
 that objective, there occurs some dynamics that could be considered dishonest. 
 They choose the setting they think is appropriate to express to the adversarial 
-other their understanding of the matter. 
+other their understanding of the matter, in the form of their wanted response 
+for what they believe is that adversarial other's objective. 
