@@ -4057,4 +4057,7 @@ problem for human existence, worthy to note so as to demonstrate the complicatio
 purist application of "light" or "dark" into personal settings. And the possible changes 
 in motive, through temporal continuity, are counter-analytic to the task of static 
 ascription of a particular self-interest to light or dark motives. An expression 
-is as significant as the immediate meaning and the ends out of that meaning. 
+is as significant as the immediate meaning and the ends out of that meaning. Due 
+primarily to this statement, it has become common for military members, dating back 
+to at least the Ancient Greek period, to don attire in uniforms, so as to mask 
+individual meaning for the presentatio of an indistinguishable whole. 
