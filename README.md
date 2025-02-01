@@ -3996,6 +3996,22 @@ effects, usually much to the chagrin of the incapable.
 
 For all the glories and magnificence that human expression is alleged to 
 offer, there are certainly drawbacks. Also of certainty is human expression, 
-varying from region to region around Earth, having subjective qualities that 
-are coincidentally some of the more revered qualities of the respective 
-region. 
+varying in representation from region to region around Earth, has subjective 
+qualities that are coincidentally some of the more revered qualities of the 
+respective region, the cultural identifiers, per se. The ubiquitous field of 
+deception, deliberate in action or innate by appearance, produces falsehoods 
+of information inaccurately comprehended by interpreters. Deception by innate 
+appearance is, despite the frequent potential for physical violence, as in the 
+case of the camouflaged predatory snake, comprehended by objective measures. 
+Challenges exist for measurements of this category of deception, due to both 
+retellings from personal experiences and the necessary technology for measures. 
+For example, the sheer number of chemicals toxic to human beings is already 
+overwhelming, if not for an encyclopediac knowledge of toxicology, and many 
+of these chemicals are not detectable by the five senses. But at least there is 
+the binary response of knowing or not knowing what the substance is. Deception by 
+action, specifically that of human beings, has a difficulty in interpretation 
+because of information games. Competent manifestations of deception could be due 
+to the unknown remaining the unknown, thus exponentiating doubt that could 
+drastically distort the interpreter's cognitive faculties, and to the fluidity 
+of changing circumstances that manipulate the interpreter's priorities in the 
+context of the deception. 
