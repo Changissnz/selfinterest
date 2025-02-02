@@ -4011,7 +4011,7 @@ overwhelming, if not for an encyclopediac knowledge of toxicology, and many
 of these chemicals are not detectable by the five senses. But at least there is 
 the binary response of knowing or not knowing what the substance is. Deception by 
 action, specifically that of human beings, has a difficulty in interpretation 
-in proportion to the hardness of the information games at play. Therein the 
+proportional to the hardness of the information games at play. Therein the 
 information games lies the deception in compartmentalized and shifty forms. 
 Competent manifestations of deception could be due to pertinent unknowns remaining 
 unknowns, thus exponentiating doubt that could drastically distort the interpreter's 
