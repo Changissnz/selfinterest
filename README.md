@@ -1039,7 +1039,7 @@ living", over acquiring full memory and awareness of the essence of the philosop
 through more formal ways, is quite common for areas in which the written word 
 does not have a strong mark in pushing the student of that particular philosophy.
 The written word is more of an introductory reference, a note that remains in 
-case of the school's upheaval. The written word simple does not have the adequacy 
+case of the school's upheaval. The written word simply does not have the adequacy 
 of expressing formulated effective methodologies for all cases of the generic 
 problem/s the philosophy is designed to solve for. Preference for the independence 
 of "practicing" over "studying" the philosophy carries an implication. The "self" 
@@ -1072,7 +1072,7 @@ the personal experience. But the greater performance is strongly associated with
 the practitioner's identity, and not entirely with the philosophical prescriptions 
 they were supposed to adhere to as devoted students of the school. In the extreme 
 cases, the practitioner aims for their self-empowerment, for power in excess by 
-relativistic comparison, and the student after becoming a teacher also becomes 
+relativistic comparison, and the student after becoming a teacher becomes 
 more dogmatic, loyal to the foundational principles that they were educated 
 under. 
 
