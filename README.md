@@ -474,7 +474,7 @@ influence labeled that particular human being a specific adjective, members
 of the sphere of influence, in turn, believe the human being to have done those 
 particular things, without anything close to being as real as the direct experience 
 that can be recalled by cognitive instruments of healthy structure, such as 
-functioning human brains.
+functioning human brains (roughly speaking).
 
 ## More on philosophies of self-interest #15
 
@@ -483,7 +483,7 @@ understanding and believing it. This is a duality that adds to the
 complexity of the duality between the subjective and the objective. The 
 first body is the objective that can be represented as the subjective, for 
 a version of the objective that has the validity of being subject to challenge 
-from sentient will or comparison with alternatives on scales selected by 
+from sentient will or compared with alternatives on scales selected by 
 "self-interest". For something to be objective does not necessitate that something 
 to be about the axiom, or for the axiom. The objective, by "self-interest", is a 
 design constructed by the axiom for a wanted truth to be actualized, typically 
@@ -545,7 +545,7 @@ perspective, may also be influenced by the judgment of that same "self" in the p
 of a particular sphere of influence. Judgments of the qualities belonging to a sphere 
 of influence are by use of probabilistic means, and can be misconceived as 
 absolutist or dualist due only to the specific categorical labels considered 
-by judgment. "Transcendence" is a label for "spiritualistic" or "emotive" 
+in judgment. "Transcendence" is a label for "spiritualistic" or "emotive" 
 phenomenon that breaks out of containment, the sphere of influence or something 
 directly connected to the sphere of influence, for timespans not so temporary. 
 The "transcendence" is typically metaphysical when related to "self-interest" 
@@ -990,7 +990,7 @@ knowledge is power, only somewhere in the equation. The understanding
 of power typically adopts the forms of broad concepts first, then 
 becomes implemented into the specificities of decorum belonging to 
 human beings under that power. As an example of why knowledge and power 
-is not one and the same, memorize this scenario. A human being, out 
+are not one and the same, memorize this scenario. A human being, out 
 of their self-interest, believes in sharing and promoting certain 
 knowledges, as a testament to their goodwill, only to get shot in 
 the face. Moral relativism exists in this scenario if and only if 
