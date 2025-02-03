@@ -3834,7 +3834,7 @@ produce acceptable results in various ways, that human beings, over the
 progress of time, have accumulated artificial axioms of decorum and operation, 
 garnering social acceptability and lessening potential chaos, that become 
 second-nature to their approach for these activities. In turn, traditions 
-are retained on how politics is supposed to work, and the kinds of artistic 
+are retained on how politics is supposed to work and the kinds of artistic 
 expression that can never be of the orthodox to certain regions. Artificial 
 axioms of tradition are so reinforced in some areas that many human beings 
 no longer feel the need to mention the fact that these artificial axioms are second nature, 
@@ -4077,10 +4077,10 @@ the what-is, in other words. For purposes of accountability, the others, out of 
 being pro-active by being presumptuous, are the ones at fault. But if the one were to 
 be deceptive through their actions, then by the basis of their being the one pro-active 
 for that quality of output, that one would be at fault. In both of these statements, 
-there are the judgments of deception as absolutely a fault, a break from the forthrightness 
-of the actual, and pro-action being more willful than null-action to deception. Cases of 
-those that do not reveal the actual meaning behind the supposed deceptive expression 
-are to be categorized as deceivers by innate appearance, then, for completeness in 
-consideration of how deception manifests. 
+there are the judgments of deception as absolutely a fault, a break from the desired 
+forthrightness of the actual, and pro-action being more willful than null-action to 
+deception. Cases of those that do not reveal the actual meaning behind the supposed 
+deceptive expression are to be categorized as deceivers by innate appearance, then, 
+for completeness in consideration of how deception manifests. 
 
 ## More on philosophies of self-interest #58 
