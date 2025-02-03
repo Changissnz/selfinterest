@@ -1297,23 +1297,23 @@ important reminder on the effecting potency of the individual in their preferenc
 The sphere of influence acts as a radius of effective power an individual 
 has with respect to their vicinity. Any individual that uses the language of 
 ideals to propagate their own vision onto the rest of the world discovers a 
-harsh lesson in the reality of constraints that contains them because of the 
+harsh lesson in the reality of constraints that contain them because of the 
 spatio-temporal limits, their sphere of influence. Their words of ideals can 
 only go so far without there being misinterpretation. Furthermore, their words 
 of ideals must manifest themselves in forms of examples instead of the purity 
 that is incontrovertible yet also not specified enough to bear actual effect. 
 Through paradigms such as the sphere of influence, what one individual believes 
-is a selfish intrusion, masquerading under the language of ideals, onto themself 
-is according to the definitions of another individual based on their 
-self-interest, for the order, that is, the greater good that is for collective 
-instead of individual gain. The sphere of influence is an abstract structure that 
-allows one individual to impose practices, stemming from their self-interest, and 
-another individual to have to abide by those practices. This abstract structure 
-is, in effect, one of the cornerstone paradigms for understanding the economizing 
-of power according to self-interest, a force that may attempt to supercede in 
-relevance of authority to the self-interests of others, or a force that, through 
-the pragmatism of utmost consideration for the social construct, drives an 
-individual to pretend one way to satisfy their aims of another wanted outcome. 
+is a selfish intrusion, masquerading under the language of ideals, according to 
+the definitions of another individual based on their self-interest, for the order, 
+that is, the greater good that is for collective instead of individual gain. 
+The sphere of influence is an abstract structure that allows one individual to 
+impose practices, stemming from their self-interest, and another individual to 
+have to abide by those practices. This abstract structure is, in effect, one of 
+the cornerstone paradigms for understanding the economizing of power according 
+to self-interest, a force that may attempt to supercede in relevance of authority 
+to the self-interests of others, or a force that, through the pragmatism of 
+utmost consideration for the social construct, drives an individual to pretend 
+one way to satisfy their aims of another wanted outcome. 
 
 ## More on philosophies of self-interest #29 
 
@@ -1373,7 +1373,7 @@ knowledge of it lacks in truthful substance, the narratives can only be structur
 to yield answers in the veins of probability or answers that are imprecise due to 
 their reliance on metaphorical reasoning. One whose self-interest operates under 
 fear is equivalently, one that has decided to de-emphasize their faculty of reason 
-to proceed by their preferred answer. The example of the emotive body that is 
+to proceed by their original answer. The example of the emotive body that is 
 fear makes for a comprehensive discussion on the vulnerabilities of those that 
 operate purely on their self-interest without the guardrails of default reasoning, 
 the only surefire class of decision-making that can yield replicable and rationalizable 
@@ -1494,7 +1494,7 @@ yet still declared by human societies to be of the same correctness given the so
 construct; the quality of openness in interpreting the artificial axiom is itself 
 probably an axiom on par with natural law, due to the many special cases stemming from 
 the sheer number of possibilities from spatiotemporal preference in choice. Conventionally, 
-any science outside of the fundamental hard sciences (that is what natural law is) 
+any science outside of the fundamental hard sciences (that is what natural law is understood as) 
 cannot be anymore than a soft science due to the freedoms of negotiating and 
 formulating the rules in ways arbitrary to nature yet seemingly most fitting for 
 the belief systems that the corresponding society adheres to. Social constructs, 
