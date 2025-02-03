@@ -668,7 +668,7 @@ depending on the qualities of containment revolving around and intrinsic to it. 
 any sphere of influence has a fluid quality to it. Perception of a social construct 
 can be objective in the detail of fact, but when preference is required, there is 
 always judgment. In the social setting, the lack of axiom is for no matter that can 
-be entirely of the axiom, and that is why protests of any social construct always have 
+be entirely of the axiom, and that is why protests against any social construct always have 
 a ridiculous nature to them. To protest something is to decry or denounce by a negativity 
 similar to ridiculing something, as an equating rule in judgments regarding the disapproval 
 of the social construct. Ridicule is to trade perceived absurdity for another statement, 
@@ -4023,7 +4023,7 @@ could be considered dishonest. They choose the setting they think is appropriate
 to express to the adversarial other their understanding of the matter, in the form 
 of their wanted response for what they believe is that adversarial other's objective. 
 As clarification, the term "understanding", used to describe this decision, is not 
-those lines of thinking required to satisfy a comprehensive knowledge of the matter. 
+those lines of thinking required to satisfy a comprehensive and accurate knowledge of the matter. 
 For all practical matters of grave adversarial concern, the choice setting of the 
 change-of-face is the outward determinant in the signifying of bi-directional adversarial 
 relations between the two. Self-interest, being that force dependent on the will and 
