@@ -4186,8 +4186,12 @@ for unexpected effects, since the human being can know another's as-is through t
 senses and still never come close to knowing that other's motives and objectives, an 
 important part of their what-is. A human being can be misconstrued, estimated in all 
 the ways that lead to falsehoods of belief on them, due to their de facto and de jure 
-roles in the greater context of their society. A human being that is recognized as a 
-great man in a field is somewhat expected by others to consistently demonstrate their 
-excellence in that field. For this inferential reason, an excellent scientist by 
-reputation is expected to be more consistent in being an outstanding performer than 
-the work of a politician. 
+roles in the greater context of their society (part of their as-is). A human being that 
+is recognized as a great man in a field is somewhat expected by others to consistently 
+demonstrate their excellence in that field. By this inferential reason, an excellent 
+scientist by reputation is expected to be more consistent in being an outstanding performer 
+than the politician. The roles assigned to a human being and recognized by other human 
+beings encourages presumptions about that human being, and these presumptions may, in 
+turn, completely negligent on the domineering motives (part of the what-is) of that human 
+being, so that entertaining that human being as one that has certain objective is 
+far-fetched by the partial reasoning. 
