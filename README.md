@@ -4116,4 +4116,10 @@ rational agent by arguments that stress their sources of livelihood through main
 integration with their social construct and improvement if not maintenance of their 
 occupations, deals with doubt by inferential reasoning. Temporal beliefs to act 
 and think in confidence, if just for the moment in cases where the inferences are 
-both essentially incorrect and proved to be incorrect. 
+both essentially incorrect and proved to be incorrect. So the human being is a 
+social agent, due to the two primary reasons that they have to exist in some kind 
+of social construct and their interactions with and perceptions from other human beings. 
+And so, the human being cannot literally be a snake in their specifics of practice. 
+The social construct of the human being and the presumptions from an other of that 
+human being is that human being's camouflage. The human being has many methodologies 
+to inflict harm. 
