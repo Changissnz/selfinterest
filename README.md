@@ -4110,7 +4110,7 @@ from-oneself attribute. Human beings have a memory rich due not to the vast stor
 the human brain, for the human brain's capacity of accurate recollection pales in comparison 
 with that of the metallic determination of digital and electronic computers, due in part 
 to the sways and leanings that produce associative memory. An individual, past their 
-physical appearance, is one accounted for by other human beings, through the use of 
+physical appearance, is one considered by other human beings, partly through 
 accounting and narration. One that knows an individual through such things as hearsay 
 and their recorded heritage will already have formed presumptions on that individual, 
 before any potential direct experience with them. The human being, fundamentally a 
