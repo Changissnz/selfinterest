@@ -4084,3 +4084,31 @@ deceptive expression are to be categorized as deceivers by innate appearance, th
 for completeness in consideration of how deception manifests. 
 
 ## More on philosophies of self-interest #58 
+
+Human beings are frequently likened to other animals, through use of metaphors that 
+place emphatic importance on the individuals' specific traits, a trade-off in literal 
+accuracy for an understanding of their modus operandi. The use of animal metaphors to 
+describe certain human beings is also reinforced by historical stereotypes about 
+animal traits; the eagle is a creature of raw power and capability, the lion is a king 
+of his pride, the fox is a canine of trickery, et cetera. The units of human language 
+suffer from the weakness of not being able to produce meaning without the corresponding 
+phenomena, and the phenomena must be represented in some form if not outright experienced 
+by an individual, for any individual to be able to produce understanding of meaning on 
+the units. Perhaps this fact also serves as a cause for deception through action of 
+communication via human language. The mention of the snake, in section 57, was to 
+describe the category of deception by innate appearance. But the example is too literal 
+to reproduce the exactness of deception by the snake, hiding in camouflage with its 
+surroundings, with the human being deceptive by innate appearance. There is the appearance, 
+this being the literal exemplification of innate of the human being, that can be deceptive. 
+For example, a human being that has done something out of the ordinary, such as a grisly 
+crime, that is amongst those that are their ethnicity and gender, will be difficult for 
+analysts to differentiate them from the others as the one solely responsible. But the 
+human being is understood by an observer not only through their outward appearance, their 
+from-oneself attribute. Human beings have a memory rich due not to the vast storage of 
+the human being, for the human brain's capacity of accurate recollection pales in comparison 
+with that of the metallic determination of digital and electronic computer, due in part 
+to the sways and leanings that produce associative memory. An individual, past their 
+physical appearance, is one accounted for by other human beings, through the use of 
+accounting and narration. One that knows an individual through such things as hearsay 
+and their heritage will already have formed presumptions on that individual, before 
+any potential direct experience with them. 
