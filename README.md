@@ -4091,34 +4091,33 @@ accuracy for a description of their modus operandi. The use of animal metaphors 
 describe certain human beings is also reinforced by historical stereotypes about 
 animal traits; the eagle is a creature of raw power and capability, the lion is a king 
 of his pride, the fox is a canine of trickery, et cetera. The units of human language 
-suffer from the weakness of not being able to produce meaning without the corresponding 
-phenomena, and the phenomena must be represented in some form if not outright experienced 
-by an individual, for any individual to be able to produce understanding of meaning on 
-the units. Perhaps this fact also serves as a cause for deception through action of 
-communication via human language. To address possible miscomprehension of this fact, 
-fabrication of a phenomenon by human beings is essentially fallacy by misrepresenting 
+suffer from the weakness of not being able to produce comprehendible meaning without 
+knowledge of the corresponding phenomena, and the phenomena must be represented in some 
+form if not outright experienced by an individual, for any individual to be able to produce 
+understanding of meaning on the units. Perhaps this fact also serves as a cause for deception 
+through action of communication via human language. To address possible miscomprehension of 
+this fact, fabrication of a phenomenon by human beings is essentially fallacy by misrepresenting 
 the actuality behind it. The mention of the snake, in section 57, was to describe the 
 category of deception by innate appearance. But the example is too literal to reproduce 
 the exactness of deception by the snake, hiding in camouflage with its surroundings, 
 with the human being deceptive by innate appearance. There is the appearance, this being 
 the literal exemplification of innate of the human being, that can be deceptive. For 
 example, a human being that has done something out of the ordinary, such as a grisly 
-crime, that is amongst those that are their ethnicity and gender, will be difficult for 
-analysts to differentiate from the others as the one solely responsible. But the 
-human being is understood by an observer not only through their outward appearance, their 
-from-oneself attribute. Human beings have a memory rich due not to the vast storage of 
-the human brain, for the human brain's capacity of accurate recollection pales in comparison 
-with that of the metallic determination of digital and electronic computers, due in part 
-to the sways and leanings that produce associative memory. An individual, past their 
-physical appearance, is one considered by other human beings, partly through 
-accounting and narration. One that knows an individual through such things as hearsay 
-and their recorded heritage will already have formed presumptions on that individual, 
-before any potential direct experience with them. The human being, fundamentally a 
-rational agent by arguments that stress their sources of livelihood through maintaining 
-integration with their social construct and improvement if not maintenance of their 
-occupations, uses inferential reasoning to deal with doubt. Temporal beliefs to act 
-and think in confidence, if just for the moment in cases where the inferences are 
-both essentially incorrect and proved to be incorrect. So the human being is a 
+crime, that is amongst those that are their ethnicity and gender, will be more difficult for 
+analysts to differentiate from the others, based on physical appearance, as the one solely 
+responsible. But the human being is understood by an observer not only through their outward 
+appearance, their from-oneself attribute. Human beings have a memory rich due not to the vast 
+storage of the human brain, for the human brain's capacity of accurate recollection pales in 
+comparison with that of the metallic determination of digital and electronic computers, due 
+in part to the sways and leanings that produce associative memory. An individual, past their 
+physical appearance, is one considered partly through accounting and narration by other human beings. 
+One that knows an individual through such things as hearsay and their recorded heritage will 
+already have formed presumptions on that individual, before any potential direct experience 
+with them. The human being, fundamentally a rational agent by arguments that stress their 
+sources of livelihood through maintaining integration with their social construct and improvement 
+if not maintenance of their occupations, uses inferential reasoning to deal with doubt. Temporal 
+beliefs to act and think in confidence, if just for the moment in cases where the inferences 
+are both essentially incorrect and proved to be incorrect. So the human being is a 
 social agent, due to the two primary reasons that they have to exist in some kind 
 of social construct and their interactions with and perceptions from other human beings. 
 And so, the human being cannot literally be a snake in their specifics of practice. 
