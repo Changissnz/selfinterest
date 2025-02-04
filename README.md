@@ -4096,13 +4096,13 @@ phenomena, and the phenomena must be represented in some form if not outright ex
 by an individual, for any individual to be able to produce understanding of meaning on 
 the units. Perhaps this fact also serves as a cause for deception through action of 
 communication via human language. To address possible miscomprehension of this fact, 
-fabrication of a phenomenon by human beings is essentially fallacy alongside the intent 
-to deceive the actuality behind it. The mention of the snake, in section 57, was to 
-describe the category of deception by innate appearance. But the example is too literal 
-to reproduce the exactness of deception by the snake, hiding in camouflage with its 
-surroundings, with the human being deceptive by innate appearance. There is the appearance, 
-this being the literal exemplification of innate of the human being, that can be deceptive. 
-For example, a human being that has done something out of the ordinary, such as a grisly 
+fabrication of a phenomenon by human beings is essentially fallacy by misrepresenting 
+the actuality behind it. The mention of the snake, in section 57, was to describe the 
+category of deception by innate appearance. But the example is too literal to reproduce 
+the exactness of deception by the snake, hiding in camouflage with its surroundings, 
+with the human being deceptive by innate appearance. There is the appearance, this being 
+the literal exemplification of innate of the human being, that can be deceptive. For 
+example, a human being that has done something out of the ordinary, such as a grisly 
 crime, that is amongst those that are their ethnicity and gender, will be difficult for 
 analysts to differentiate them from the others as the one solely responsible. But the 
 human being is understood by an observer not only through their outward appearance, their 
@@ -4151,8 +4151,8 @@ purposes of maintaining a hard divide between the two categories, consider the o
 innate appearance to be the kernel of knowledge that another human being uses to 
 understand them and decide on their forecasts of them. This kernel of knowledge is not 
 truthful enough in cases of deception, and the use of this kernel as the base to further 
-action could very well inadvertently help the deceptive human being in benefitting without 
-or with their additional deceptive actions. And a human being's deception by action could 
+action could very well inadvertently benefit the deceptive human being with or without 
+their additional deceptive actions. And a human being's deception by action could 
 lead to their innate appearance, received as information by another human being, becoming 
 deceptive to that other human being. The term "innate", as used in this categorization, 
 should not be interpreted strictly in a biological or visual sense, for as already elaborated 
