@@ -4140,5 +4140,5 @@ these two titles carry, that human being is associated with capabilities outside
 their direct doings. The innate appearance of a human being has qualities not entirely 
 of a perceptible form. This is the conclusion due to the quality of associative memory 
 that human cognition operates with, as well as the inferences that human beings make 
-about others due to pertaining information that is either incorrect or be interpreted 
-as incorrect beliefs. 
+about others due to pertaining information that is either essentially incorrect or be 
+interpreted into incorrect beliefs. 
