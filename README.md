@@ -4104,7 +4104,7 @@ with the human being deceptive by innate appearance. There is the appearance, th
 the literal exemplification of innate of the human being, that can be deceptive. For 
 example, a human being that has done something out of the ordinary, such as a grisly 
 crime, that is amongst those that are their ethnicity and gender, will be difficult for 
-analysts to differentiate them from the others as the one solely responsible. But the 
+analysts to differentiate from the others as the one solely responsible. But the 
 human being is understood by an observer not only through their outward appearance, their 
 from-oneself attribute. Human beings have a memory rich due not to the vast storage of 
 the human brain, for the human brain's capacity of accurate recollection pales in comparison 
