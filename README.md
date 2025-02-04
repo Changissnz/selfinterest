@@ -4145,6 +4145,16 @@ of a human being is that of attempted understanding of them in terms of social a
 relations. This is the conclusion due to the quality of associative memory that human cognition 
 operates with, as well as the inferences that human beings make about others due to pertaining 
 information that is either essentially incorrect or interpreted into incorrect beliefs. 
-
-## More on philosophies of self-interest #59 
-
+The deception category of innate appearance for the human being is expected to have a 
+convolutionary relation with the category of deception in action. For the intents and 
+purposes of maintaining a hard divide between the two categories, consider the one of 
+innate appearance to be the kernel of knowledge that another human being uses to 
+understand them and decide on their forecasts of them. This kernel of knowledge is not 
+truthful enough in cases of deception, and the use of this kernel as the base to further 
+action could very well inadvertently help the deceptive human being in benefitting without 
+or without further deceptive actions. And a human being's deception by action could lead 
+to their innate appearance, received as information by another human being, becoming 
+deceptive to that other human being. The term "innate", as used in this categorization, 
+should not be interpreted in a biological or visual sense, for as already elaborated on, 
+the associations of social significance that can be attached to a human being are what 
+influences another human being's perception of them, this their "innate appearance". 
