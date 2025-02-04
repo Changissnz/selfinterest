@@ -4095,7 +4095,9 @@ suffer from the weakness of not being able to produce meaning without the corres
 phenomena, and the phenomena must be represented in some form if not outright experienced 
 by an individual, for any individual to be able to produce understanding of meaning on 
 the units. Perhaps this fact also serves as a cause for deception through action of 
-communication via human language. The mention of the snake, in section 57, was to 
+communication via human language. To address possible miscomprehension of this fact, 
+fabrication of a phenomenon by human beings is essentially fallacy alongside the intent 
+to deceive the actuality behind it. The mention of the snake, in section 57, was to 
 describe the category of deception by innate appearance. But the example is too literal 
 to reproduce the exactness of deception by the snake, hiding in camouflage with its 
 surroundings, with the human being deceptive by innate appearance. There is the appearance, 
@@ -4105,8 +4107,8 @@ crime, that is amongst those that are their ethnicity and gender, will be diffic
 analysts to differentiate them from the others as the one solely responsible. But the 
 human being is understood by an observer not only through their outward appearance, their 
 from-oneself attribute. Human beings have a memory rich due not to the vast storage of 
-the human being, for the human brain's capacity of accurate recollection pales in comparison 
-with that of the metallic determination of digital and electronic computer, due in part 
+the human brain, for the human brain's capacity of accurate recollection pales in comparison 
+with that of the metallic determination of digital and electronic computers, due in part 
 to the sways and leanings that produce associative memory. An individual, past their 
 physical appearance, is one accounted for by other human beings, through the use of 
 accounting and narration. One that knows an individual through such things as hearsay 
@@ -4127,21 +4129,22 @@ be deceptive, due to interpretations of them that do not focus on that human bei
 inherent traits, qualities that help to form the understanding of their from-oneself. 
 The innate appearance of the human being deceptive to an interpreter implies the 
 interpreter's knowledge of that human being's attributes of as-is and what-is is 
-inaccurate. The networked arrangements of human societies makes the human being's 
-innate appearance have impact that extends outside of direct interaction with them, 
-unlike the pertinence of the camouflaged snake, a creature relevant to a human being due only 
-to the two simple categories of direct physical interaction with them, in which the 
-human being may die by that snake's direct doing, and the snake's physical qualities of 
-interest, such as its venom. For the first category of the snake's relevance, the 
-parallel to the human being is complicated by the possibilities of human existence. The 
-roles of an executioner, a judge, and a legislator demand different actions. A human 
-being could be a representative or a commander, and from the degree of prestige that 
-these two titles carry, that human being is associated with capabilities outside of 
-their direct doings. The innate appearance of a human being has qualities not entirely 
-of a perceptible form. This is the conclusion due to the quality of associative memory 
-that human cognition operates with, as well as the inferences that human beings make 
-about others due to pertaining information that is either essentially incorrect or be 
-interpreted into incorrect beliefs. 
+inaccurate. The "political animal" and "social creature" perspectives of the human 
+being make perception of them not constrained to their qualities visually perceived. 
+The networked arrangements of human societies make the human being's innate appearance 
+have impact that extends outside of direct interaction with them, unlike the pertinence 
+of the camouflaged snake, a creature relevant to a human being due only to the two simple 
+categories of direct physical interaction with them, in which the human being may die by 
+that snake's direct doing, and the snake's physical qualities of interest, such as its 
+venom. For the first category of the snake's relevance, the parallel to the human being 
+is complicated by the possibilities of human existence. The roles of an executioner, a 
+judge, and a legislator demand different actions. A human being could be a representative 
+or a commander, and from the degree of prestige that these two titles carry, that human 
+being is associated with capabilities outside of their direct doings. The innate appearance 
+of a human being is that of attempted understanding of them in terms of social and narrative 
+relations. This is the conclusion due to the quality of associative memory that human cognition 
+operates with, as well as the inferences that human beings make about others due to pertaining 
+information that is either essentially incorrect or interpreted into incorrect beliefs. 
 
 ## More on philosophies of self-interest #59 
 
