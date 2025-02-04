@@ -4112,6 +4112,8 @@ physical appearance, is one accounted for by other human beings, through the use
 accounting and narration. One that knows an individual through such things as hearsay 
 and their recorded heritage will already have formed presumptions on that individual, 
 before any potential direct experience with them. The human being, fundamentally a 
-rational agent by arguments of their sources of livelihood, through maintaining 
+rational agent by arguments that stress their sources of livelihood through maintaining 
 integration with their social construct and improvement if not maintenance of their 
-occupations, deals with doubt by inferential reasoning. 
+occupations, deals with doubt by inferential reasoning. Temporal beliefs to act 
+and think in confidence, if just for the moment in cases where the inferences are 
+both essentially incorrect and proved to be incorrect. 
