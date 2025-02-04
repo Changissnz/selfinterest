@@ -4181,4 +4181,13 @@ and may view their peers from youth and their current affiliations to be somethi
 this being possible only when the from-oneself attribute is not the only attribute in 
 consideration. The as-is attribute of a human being gives another human being cause, 
 out of their understanding, to consider that human being in terms of utility and 
-positive usefulness of utility. 
+positive usefulness of utility. And the what-is attribute occasionally is the cause 
+for unexpected effects, since the human being can know another's as-is through their five 
+senses and still never come close to knowing that other's motives and objectives, an 
+important part of their what-is. A human being can be misconstrued, estimated in all 
+the ways that lead to falsehoods of belief on them, due to their de facto and de jure 
+roles in the greater context of their society. A human being that is recognized as a 
+great man in a field is somewhat expected by others to consistently demonstrate their 
+excellence in that field. For this inferential reason, an excellent scientist by 
+reputation is expected to be more consistent in being an outstanding performer than 
+the work of a politician. 
