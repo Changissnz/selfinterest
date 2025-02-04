@@ -4142,3 +4142,6 @@ of a perceptible form. This is the conclusion due to the quality of associative 
 that human cognition operates with, as well as the inferences that human beings make 
 about others due to pertaining information that is either essentially incorrect or be 
 interpreted into incorrect beliefs. 
+
+## More on philosophies of self-interest #59 
+
