@@ -4174,4 +4174,9 @@ human beings of status seldom speak and act solely for the expression of their
 from-oneself attribute, and the ones that are of a low status along certain metrics 
 also practice liberties of not confining their expression to this attribute, although 
 typical limitations such as money force the virtues of these ones to be geared towards 
-outlets subject to judgments by those of status. 
+outlets subject to judgments by those of status. The aristocrat never views the commoner 
+in the same light as them, and the aristocrat's egalitarian policies must be causes out 
+of their pragmatics. Even the bureaucrat of democratic institutions has metrics to 
+differentiate, and may view their peers from youth and their contemporary affiliations 
+to be something other, this only being possible when the from-oneself attribute is 
+not the only attribute in consideration. 
