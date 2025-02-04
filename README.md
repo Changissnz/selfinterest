@@ -4152,9 +4152,9 @@ innate appearance to be the kernel of knowledge that another human being uses to
 understand them and decide on their forecasts of them. This kernel of knowledge is not 
 truthful enough in cases of deception, and the use of this kernel as the base to further 
 action could very well inadvertently help the deceptive human being in benefitting without 
-or without further deceptive actions. And a human being's deception by action could lead 
-to their innate appearance, received as information by another human being, becoming 
+or with their additional deceptive actions. And a human being's deception by action could 
+lead to their innate appearance, received as information by another human being, becoming 
 deceptive to that other human being. The term "innate", as used in this categorization, 
-should not be interpreted in a biological or visual sense, for as already elaborated on, 
-the associations of social significance that can be attached to a human being are what 
-influences another human being's perception of them, this their "innate appearance". 
+should not be interpreted strictly in a biological or visual sense, for as already elaborated 
+on, the associations of social significance and inferred truths that can be attached to a human 
+being are what influences another human being's perception of them, this their "innate appearance". 
