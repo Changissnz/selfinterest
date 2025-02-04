@@ -4157,3 +4157,8 @@ deceptive to that other human being. The term "innate", as used in this categori
 should not be interpreted strictly in a biological or visual sense, for as already elaborated 
 on, the associations of social significance and inferred truths that can be attached to a human 
 being are what influences another human being's perception of them, this their "innate appearance". 
+
+## More on philosophies of self-interest #58 
+
+One of the perks of civilization is that there are more opportunities for human beings 
+to project their images without use of violence. 
