@@ -4133,8 +4133,12 @@ unlike the pertinence of the camouflaged snake, a creature relevant to a human b
 to the two simple categories of direct physical interaction with them, in which the 
 human being may die by that snake's direct doing, and the snake's physical qualities of 
 interest, such as its venom. For the first category of the snake's relevance, the 
-parallel to the human being is complicated by the possibilities of human action. The 
+parallel to the human being is complicated by the possibilities of human existence. The 
 roles of an executioner, a judge, and a legislator demand different actions. A human 
-being could be a representative or a commander, and by the prestige that these two 
-titles carry, that human being is associated with capabilities outside of their 
-direct doings. 
+being could be a representative or a commander, and from the degree of prestige that 
+these two titles carry, that human being is associated with capabilities outside of 
+their direct doings. The innate appearance of a human being has qualities not entirely 
+of a perceptible form. This is the conclusion due to the quality of associative memory 
+that human cognition operates with, as well as the inferences that human beings make 
+about others due to pertaining information that is either incorrect or be interpreted 
+as incorrect beliefs. 
