@@ -4116,7 +4116,7 @@ and their recorded heritage will already have formed presumptions on that indivi
 before any potential direct experience with them. The human being, fundamentally a 
 rational agent by arguments that stress their sources of livelihood through maintaining 
 integration with their social construct and improvement if not maintenance of their 
-occupations, deals with doubt by inferential reasoning. Temporal beliefs to act 
+occupations, uses inferential reasoning to deal with doubt. Temporal beliefs to act 
 and think in confidence, if just for the moment in cases where the inferences are 
 both essentially incorrect and proved to be incorrect. So the human being is a 
 social agent, due to the two primary reasons that they have to exist in some kind 
@@ -4130,7 +4130,7 @@ inherent traits, qualities that help to form the understanding of their from-one
 The innate appearance of the human being deceptive to an interpreter implies the 
 interpreter's knowledge of that human being's attributes of as-is and what-is is 
 inaccurate. The "political animal" and "social creature" perspectives of the human 
-being make perception of them not constrained to their qualities visually perceived. 
+being make perception of them not constrained to their perceptible qualities. 
 The networked arrangements of human societies make the human being's innate appearance 
 have impact that extends outside of direct interaction with them, unlike the pertinence 
 of the camouflaged snake, a creature relevant to a human being due only to the two simple 
