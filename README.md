@@ -4122,4 +4122,19 @@ of social construct and their interactions with and perceptions from other human
 And so, the human being cannot literally be a snake in their specifics of practice. 
 The social construct of the human being and the presumptions from an other of that 
 human being is that human being's camouflage. The human being has many methodologies 
-to inflict harm. 
+to inflict harm. In the more abstract sense, the human being's innate appearance can 
+be deceptive, due to interpretations of them that do not focus on that human being's 
+inherent traits, qualities that help to form the understanding of their from-oneself. 
+The innate appearance of the human being deceptive to an interpreter implies the 
+interpreter's knowledge of that human being's attributes of as-is and what-is is 
+inaccurate. The networked arrangements of human societies makes the human being's 
+innate appearance have impact that extends outside of direct interaction with them, 
+unlike the pertinence of the camouflaged snake, a creature relevant to a human being due only 
+to the two simple categories of direct physical interaction with them, in which the 
+human being may die by that snake's direct doing, and the snake's physical qualities of 
+interest, such as its venom. For the first category of the snake's relevance, the 
+parallel to the human being is complicated by the possibilities of human action. The 
+roles of an executioner, a judge, and a legislator demand different actions. A human 
+being could be a representative or a commander, and by the prestige that these two 
+titles carry, that human being is associated with capabilities outside of their 
+direct doings. 
