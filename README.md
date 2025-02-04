@@ -4161,22 +4161,24 @@ being are what influences another human being's perception of them, this their "
 ## More on philosophies of self-interest #58 
 
 One of the perks of civilization is that there are more opportunities for human beings 
-to project their images without use of violence. The from-oneself attribute of one 
+to project their images without use of physical violence. The from-oneself attribute of one 
 human being is not too different from any other human being. There are three points 
 to the from-oneself: the human being's existence as life, the human being's appearance, 
 and the human being's mortality. The human being's capabilities and accomplishments 
 are entirely dismissed from this attribute. There is no image other than the human 
 being's physical appearance that is projected. The clothing that a human being wears 
 is expression for some objective, such as warmth and status, and so, is not a point 
-of the from-oneself attribute. This attribute is one in the semblance of humility 
-and humanity, unlike the attributes of the as-is and what-is. Due to this truth, 
-human beings of status seldom speak and act solely for the expression of their 
-from-oneself attribute, and the ones that are of a low status along certain metrics 
-also practice liberties of not confining their expression to this attribute, although 
-typical limitations such as money force the virtues of these ones to be geared towards 
-outlets subject to judgments by those of status. The aristocrat never views the commoner 
-in the same light as them, and the aristocrat's egalitarian policies must be causes out 
-of their pragmatics. Even the bureaucrat of democratic institutions has metrics to 
-differentiate, and may view their peers from youth and their contemporary affiliations 
-to be something other, this only being possible when the from-oneself attribute is 
-not the only attribute in consideration. 
+of the from-oneself attribute. This attribute is one in the semblance of humility, 
+unlike the attributes of the as-is and what-is. Due to this truth, human beings of 
+status seldom speak and act solely for the expression of their from-oneself attribute, 
+and the ones that are of a low status along certain metrics also practice liberties of 
+not confining their expression to this attribute, although typical limitations such as 
+money force the virtues of these ones to be geared towards outlets subject to judgments 
+by those of status. The aristocrat never views the commoner in the same light as them, 
+and the aristocrat's possible egalitarian policies must be causes out of their pragmatics. 
+Even the bureaucrat of democratic institutions has cognitive metrics to differentiate, 
+and may view their peers from youth and their current affiliations to be something other, 
+this being possible only when the from-oneself attribute is not the only attribute in 
+consideration. The as-is attribute of a human being gives another human being cause, 
+out of their understanding, to consider that human being in terms of utility and 
+positive usefulness of utility. 
