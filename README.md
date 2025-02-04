@@ -4153,7 +4153,7 @@ understand them and decide on their forecasts of them. This kernel of knowledge 
 truthful enough in cases of deception, and the use of this kernel as the base to further 
 action could very well inadvertently benefit the deceptive human being with or without 
 their additional deceptive actions. And a human being's deception by action could 
-lead to their innate appearance, received as information by another human being, becoming 
+lead to their innate appearance, received as information by another human being, to be 
 deceptive to that other human being. The term "innate", as used in this categorization, 
 should not be interpreted strictly in a biological or visual sense, for as already elaborated 
 on, the associations of social significance and inferred truths that can be attached to a human 
