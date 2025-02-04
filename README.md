@@ -4087,7 +4087,7 @@ for completeness in consideration of how deception manifests.
 
 Human beings are frequently likened to other animals, through use of metaphors that 
 place emphatic importance on the individuals' specific traits, a trade-off in literal 
-accuracy for an understanding of their modus operandi. The use of animal metaphors to 
+accuracy for a description of their modus operandi. The use of animal metaphors to 
 describe certain human beings is also reinforced by historical stereotypes about 
 animal traits; the eagle is a creature of raw power and capability, the lion is a king 
 of his pride, the fox is a canine of trickery, et cetera. The units of human language 
@@ -4110,5 +4110,8 @@ with that of the metallic determination of digital and electronic computer, due 
 to the sways and leanings that produce associative memory. An individual, past their 
 physical appearance, is one accounted for by other human beings, through the use of 
 accounting and narration. One that knows an individual through such things as hearsay 
-and their heritage will already have formed presumptions on that individual, before 
-any potential direct experience with them. 
+and their recorded heritage will already have formed presumptions on that individual, 
+before any potential direct experience with them. The human being, fundamentally a 
+rational agent by arguments of their sources of livelihood, through maintaining 
+integration with their social construct and improvement if not maintenance of their 
+occupations, deals with doubt by inferential reasoning. 
