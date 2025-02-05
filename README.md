@@ -4234,4 +4234,7 @@ Revolution of 1905 serves as an example of the absolutist possibility in attribu
 in which all that are connected to what is believed to be fault, are declared to 
 be guilty. Differences, both nuanced and stark, culminated in exacerbation of class 
 war between the aristocrats and the commoners, build-ups in tension that led to 
-armed conflict. 
+armed conflict. Civilization encourages liberties not found in wartime situations. 
+Accumulation of wealth and acquiring fame are two of the common categories of de 
+jure power that can be used by a human being to project their image in their desired 
+perfection and scale of recipients to the image.  
