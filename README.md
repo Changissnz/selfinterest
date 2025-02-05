@@ -4235,7 +4235,7 @@ to what was believed to be fault, were declared to be guilty, and the human repr
 of rule were vehemently opposed. Differences, both nuanced and stark, culminated into 
 exacerbation of class war between aristocrats and commoners, build-ups in tension released 
 into armed conflict. Civilization encourages liberties not found in wartime situations. 
-Accumulation of wealth and acquiring fame are two of the common categories of de jure 
+Accumulation of wealth and acquisition of fame are two of the common categories of de jure 
 power that can be used by a human being to project their image, in their desired perfection 
 and scale of recipients to the image. The saying, "all war is a symptom of man's failure 
 as a thinking animal" by John Steinbeck, is a generalized effect due to the lack of 
