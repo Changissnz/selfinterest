@@ -4203,6 +4203,11 @@ life. The roles assigned to a human being and recognized by other human beings e
 presumptions about that human being, and these presumptions may, in turn, be completely 
 negligent of the domineering motives (part of the what-is) in that human being, so that 
 entertaining that human being as one that has certain objectives is far-fetched by the partial 
-reasoning. The feat of understanding another human being cannot ever be of the whole of 
-their existence. The motives, alone, of a human being cannot be objectively recognized in 
-real-time. 
+reasoning. The feat of understanding another human being cannot ever be on the whole of 
+their existence since birth. The motives, alone, of a human being cannot be objectively 
+recognized in real-time. Furthermore, there are cases in which "understanding" is the 
+term used by human beings to refer to another human being's compliance with some matter, 
+typically as a social relation. The usage of this word, in these contexts, is perfect 
+for linguistic expression in authoritative settings, where the command structure is 
+what is most important, while any human sentiments are viewed as unseemly, perhaps 
+cause for exploitation of weakness in opportune circumstances. 
