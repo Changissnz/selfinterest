@@ -4190,8 +4190,13 @@ roles in the greater context of their society (part of their as-is). A human bei
 is recognized as a great man in a field is somewhat expected by others to consistently 
 demonstrate their excellence in that field. By this inferential reason, an excellent 
 scientist by reputation is expected to be more consistent in being an outstanding performer 
-than the politician. The roles assigned to a human being and recognized by other human 
+than the politician, since the work of a politician produces effects in which they are 
+not entirely responsible for but nevertheless, somehow is attributed the effects from their 
+rule through commands and policies. In fact, the politician can only be an exemplar of the 
+Great Man theory in the sense of social representation, whereas the discoveries of a scientist 
+may coincidentally lead to them being a social representative, by the institutional light of 
+prestige shone on them. The roles assigned to a human being and recognized by other human 
 beings encourages presumptions about that human being, and these presumptions may, in 
-turn, completely negligent on the domineering motives (part of the what-is) of that human 
+turn, be completely negligent on the domineering motives (part of the what-is) of that human 
 being, so that entertaining that human being as one that has certain objective is 
 far-fetched by the partial reasoning. 
