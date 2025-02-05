@@ -4187,7 +4187,7 @@ senses and still never come close to knowing that other's motives and objectives
 important part of their what-is. A human being can be misconstrued, estimated in all 
 the ways that lead to falsehoods of belief on them, due to their de facto and de jure 
 roles in the greater context of their society (part of their as-is). A human being that 
-is recognized as a great man in a field is somewhat expected by others to consistently 
+is recognized as a great one in a field is somewhat expected by others to consistently 
 demonstrate their excellence in that field. By this inferential reason, an excellent 
 scientist by reputation is expected to be more consistent in being an outstanding performer 
 than the politician, since the work of a politician produces effects in which they are 
