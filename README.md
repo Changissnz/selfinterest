@@ -4191,12 +4191,16 @@ is recognized as a great man in a field is somewhat expected by others to consis
 demonstrate their excellence in that field. By this inferential reason, an excellent 
 scientist by reputation is expected to be more consistent in being an outstanding performer 
 than the politician, since the work of a politician produces effects in which they are 
-not entirely responsible for but nevertheless, somehow is attributed the effects from their 
+not entirely responsible for but nevertheless, somehow is credited these effects from their 
 rule through commands and policies. In fact, the politician can only be an exemplar of the 
 Great Man theory in the sense of social representation, whereas the discoveries of a scientist 
-may coincidentally lead to them being a social representative, by the institutional light of 
-prestige shone on them. The roles assigned to a human being and recognized by other human 
-beings encourages presumptions about that human being, and these presumptions may, in 
-turn, be completely negligent on the domineering motives (part of the what-is) of that human 
-being, so that entertaining that human being as one that has certain objective is 
-far-fetched by the partial reasoning. 
+may coincidentally lead to their becoming a social representative, by the institutional light of 
+prestige shone on them. This is a perspective that assumes the will of each human being 
+is that for what the human being comprehends as their self-interest, and the notion of 
+the human being's lack of autonomy that could be dualistically be considered selflessness 
+is, in fact, a denial of their self-interest, placing them on the same level as botanical 
+life. The roles assigned to a human being and recognized by other human beings encourage 
+presumptions about that human being, and these presumptions may, in turn, be completely 
+negligent on the domineering motives (part of the what-is) of that human being, so that 
+entertaining that human being as one that has certain objective is far-fetched by the partial 
+reasoning. 
