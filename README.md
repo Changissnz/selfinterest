@@ -4237,7 +4237,7 @@ exacerbation of class war between aristocrats and commoners, build-ups in tensio
 into armed conflict. Civilization encourages liberties not found in wartime situations. 
 Accumulation of wealth and acquisition of fame are two of the common categories of de jure 
 power that can be used by a human being to project their image, in their desired perfection 
-and scale of recipients to the image. The saying, "all war is a symptom of man's failure 
+and limited scale of recipients to the image. The saying, "all war is a symptom of man's failure 
 as a thinking animal" by John Steinbeck, is a generalized effect due to the lack of 
 effectiveness in some images projected from human beings, especially those representative 
 of peace, prosperity, and egalitarianism. The proponents of physical war no longer see the 
