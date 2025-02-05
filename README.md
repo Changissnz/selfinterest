@@ -4227,7 +4227,7 @@ inexperienced in the specific kinds of monstrosities at play, calmly signs a doc
 demonstrative of the power of the pen over the sword after that signing produces a 
 legitimacy for causes such as war and impoverishment. By the practice of correspondence 
 theory, the politician in these cases can never be any more guilty than the most 
-innocent person connected to the faults authorized by their legislation. And 
+innocent acting person responsible for the faults authorized by their legislation. And 
 the ire that is directed against them must be due to their being the upfront human 
 representation of these disapproved causes. The Russian Revolution of 1905 serves 
 as an example of the absolutist possibility in attribution, in which all that were connected 
