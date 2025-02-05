@@ -4217,4 +4217,4 @@ writing. However, there are plenty of examples in literary and film that have us
 kind of convolution to exemplify the gray-like morality of human beings, how human beings 
 are a subject of their environment and must constantly be one with nurture instead of 
 the nature that is a great part of their social construct they call "civilization, how 
-the "serf" is actually a superior fighter and lover than the "knight, et cetera. 
+the "serf" is actually a superior fighter and lover than the "knight", et cetera. 
