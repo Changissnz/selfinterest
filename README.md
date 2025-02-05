@@ -4208,39 +4208,39 @@ their existence since birth. The motives, alone, of a human being cannot be obje
 recognized in real-time. Furthermore, there are cases in which "understanding" is the 
 term used by human beings to refer to another human being's compliance with some matter, 
 typically as a social relation. This definition of this word, in these contexts, is 
-perfectly acceptable for linguistic expression in authoritative settings, where the command 
-structure is what is most important, while any human sentiments are viewed as unseemly, 
-perhaps cause for exploitation of weakness in opportune circumstances. Convolution of 
-the qualities of a human being's from-oneself, as-is, and what-is produces mixed meanings 
-of comprehending that human being. The proof of this statement is not done through this 
-writing. However, there are plenty of examples in literary and film that have used this 
-kind of convolution to exemplify the gray-like morality of human beings, how human beings 
-are a subject of their environment and must constantly be one with nurture instead of 
-the nature that is a great part of their social construct they call "civilization", how 
-the "serf" is actually a superior fighter and lover to the "knight", et cetera. For 
-another example, consider how much influence of hard and/or soft power the person of 
-status has, and the juxtaposing of this quality of theirs with their compliments and 
-other expressions of virtue-signaling promotes reason to cast doubt on them; it may be 
-believed that their as-is attribute only serves as a cover in order to not betray the 
-malice of their what-is to anyone else, save for a select few. And the politician that 
-speaks such noble words, seemingly inexperienced in the specific kinds of monstrosities 
-at play, calmly signs a document, demonstrative of the power of the pen over the sword 
-after that signing produces a legitimacy for causes such as war and impoverishment. 
-By the practice of correspondence theory, the politician in these cases can never be 
-any more guilty than the most innocent person connected to the faults authorized by 
-their legislation. And the ire that is directed against them must be due to their 
-being the upfront human representation of these disapproved causes. The Russian 
-Revolution of 1905 serves as an example of the absolutist possibility in attribution, 
-in which all that are connected to what is believed to be fault, are declared to 
-be guilty. Differences, both nuanced and stark, culminated into exacerbation of class 
-war between aristocrats and commoners, build-ups in tension that led to armed conflict. 
-Civilization encourages liberties not found in wartime situations. Accumulation of 
-wealth and acquiring fame are two of the common categories of de jure power that can 
-be used by a human being to project their image, in their desired perfection and scale 
-of recipients to the image. The saying, "all war is a symptom of man's failure as a 
-thinking animal" by Steinbeck, is a consequentialist generalization on the lack of effectiveness in 
-some images projected from human beings, especially those representative of peace, prosperity, 
-and egalitarianism. The proponents of physical war no longer see the value in these images, 
+is fit for authoritative settings, where the command structure is what is most important, 
+while any human sentiments are viewed as unseemly, perhaps cause for exploitation of weakness 
+in opportune circumstances. Convolution of the qualities of a human being's from-oneself, 
+as-is, and what-is produces mixed meanings of comprehending that human being. The proof 
+of this statement is not done through this writing. However, there are plenty of examples 
+in literary and film that have used this kind of convolution to exemplify the gray-like 
+morality of human beings, how human beings are a subject of their environment and must 
+constantly be one with nurture instead of the nature that is a great part of their social 
+construct they call "civilization", how the "serf" is actually a superior fighter and 
+lover to the "knight", et cetera. For another example, consider how much influence 
+of hard and/or soft power the person of status has, and the juxtaposing of this quality 
+of theirs with their compliments and other expressions of virtue-signaling promotes 
+reason to cast doubt on them; it may be believed that their as-is attribute only 
+serves as a cover in order to not betray the malice of their what-is to anyone else, 
+save for a select few. And the politician that speaks such noble words, seemingly 
+inexperienced in the specific kinds of monstrosities at play, calmly signs a document, 
+demonstrative of the power of the pen over the sword after that signing produces a 
+legitimacy for causes such as war and impoverishment. By the practice of correspondence 
+theory, the politician in these cases can never be any more guilty than the most 
+innocent person connected to the faults authorized by their legislation. And 
+the ire that is directed against them must be due to their being the upfront human 
+representation of these disapproved causes. The Russian Revolution of 1905 serves 
+as an example of the absolutist possibility in attribution, in which all that are connected 
+to what is believed to be fault, are declared to be guilty. Differences, both nuanced 
+and stark, culminated into exacerbation of class war between aristocrats and commoners, 
+build-ups in tension that led to armed conflict. Civilization encourages liberties not 
+found in wartime situations. Accumulation of wealth and acquiring fame are two of the 
+common categories of de jure power that can be used by a human being to project their 
+image, in their desired perfection and scale of recipients to the image. The saying, 
+"all war is a symptom of man's failure as a thinking animal" by Steinbeck, is a 
+consequentialist generalization on the lack of effectiveness in some images projected 
+from human beings, especially those representative of peace, prosperity, and 
+egalitarianism. The proponents of physical war no longer see the value in these images, 
 composed of select qualities from the from-oneself, as-is, and what-is of some human 
 beings, and furthermore, see no use for pacifist occupations. In physical war, the what-is 
 attribute becomes less pertinent than the as-is (an explanation for the inhumanity), and 
