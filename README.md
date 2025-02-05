@@ -4167,7 +4167,7 @@ to the from-oneself: the human being's existence as life, the human being's appe
 and the human being's mortality. The human being's capabilities and accomplishments 
 are entirely dismissed from this attribute. There is no image other than the human 
 being's physical appearance that is projected. The clothing that a human being wears 
-is expression for some objective, such as warmth and status, and so, is not a point 
+is expression for some objective, such as warmth or status, and so, is not 
 of the from-oneself attribute. This attribute is one in the semblance of humility, 
 unlike the attributes of the as-is and what-is. Due to this truth, human beings of 
 status seldom speak and act solely for the expression of their from-oneself attribute, 
