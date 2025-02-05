@@ -4238,15 +4238,14 @@ found in wartime situations. Accumulation of wealth and acquiring fame are two o
 common categories of de jure power that can be used by a human being to project their 
 image, in their desired perfection and scale of recipients to the image. The saying, 
 "all war is a symptom of man's failure as a thinking animal" by Steinbeck, is a 
-consequentialist generalization on the lack of effectiveness in some images projected 
-from human beings, especially those representative of peace, prosperity, and 
-egalitarianism. The proponents of physical war no longer see the value in these images, 
-composed of select qualities from the from-oneself, as-is, and what-is of some human 
-beings, and furthermore, see no use for pacifist occupations. In physical war, the what-is 
-attribute becomes less pertinent than the as-is (an explanation for the inhumanity), and 
-knowledge of the as-is is valuable only for the pragmatics of exacerbating harm to the 
-enemy, as far as death, in other words, minimizing the enemy's instances of from-oneself. 
-Human beings' projections of image are enabled by the rich communicative styles developed 
-by human beings, and can only continue on so long as the degree of positive reception to 
-these images, indicative of compatibilities between the expected and the promises, passes 
-a satisfactory threshold. 
+generalized effect due to the lack of effectiveness in some images projected from 
+human beings, especially those representative of peace, prosperity, and egalitarianism. 
+The proponents of physical war no longer see the value in these images, composed of select 
+qualities from the from-oneself, as-is, and what-is of some human beings, and furthermore, 
+see no use for pacifist occupations. In physical war, the what-is attribute becomes less 
+pertinent than the as-is (an explanation for the inhumanity), and knowledge of the as-is 
+is valuable only for the pragmatics of exacerbating harm to the enemy, as far as death, 
+in other words, minimizing the enemy's instances of from-oneself. Human beings' projections 
+of image are enabled by the rich communicative styles developed by human beings, and can 
+only continue on so long as the degree of positive reception to these images, indicative 
+of compatibilities between the expected and the promises, passes a satisfactory threshold. 
