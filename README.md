@@ -4208,12 +4208,12 @@ their existence since birth. The motives, alone, of a human being cannot be obje
 recognized in real-time. Furthermore, there are cases in which "understanding" is the 
 term used by human beings to refer to another human being's compliance with some matter, 
 typically as a social relation. This definition of this word, in these contexts, is 
-is fit for authoritative settings, where the command structure is what is most important, 
-while any human sentiments are viewed as unseemly, perhaps cause for exploitation of weakness 
+fit for authoritative settings, where the command structure is what is most important, 
+while most human sentiments are viewed as unseemly, perhaps cause for exploitation of their weaknesses 
 in opportune circumstances. Convolution of the qualities of a human being's from-oneself, 
 as-is, and what-is produces mixed meanings from comprehending that human being. The proof 
 of this statement is not done through this writing. However, there are plenty of examples 
-in literary and film that have used this kind of convolution to exemplify the gray-like 
+in literature and film that have used this kind of convolution to exemplify the gray-like 
 morality of human beings, how human beings are a subject of their environment and must 
 constantly be one with nurture instead of the nature that is a great part of their social 
 construct they call "civilization", how the "serf" is actually a superior fighter and 
