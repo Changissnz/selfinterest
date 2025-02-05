@@ -4232,7 +4232,7 @@ the ire that is directed against them must be due to their being the upfront hum
 representation of these disapproved causes. The Russian Revolution of 1905 serves 
 as an example of the absolutist possibility in attribution, in which all that were connected 
 to what was believed to be fault, were declared to be guilty, and the human representatives 
-of rule were vehemently opposed. Differences, both nuanced and stark, culminated into 
+of rule were most vehemently opposed. Differences, both nuanced and stark, culminated into 
 exacerbation of class war between aristocrats and commoners, build-ups in tension released 
 into armed conflict. Civilization encourages liberties not found in wartime situations. 
 Accumulation of wealth and acquisition of fame are two of the common categories of de jure 
