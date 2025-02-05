@@ -4188,7 +4188,7 @@ important part of their what-is. A human being can be misconstrued, estimated in
 the ways that lead to falsehoods of belief on them, due to their de facto and de jure 
 roles in the greater context of their society (part of their as-is). A human being that 
 is recognized as a great one in a field is somewhat expected by others to consistently 
-demonstrate their excellence in that field. By this inferential reason, an excellent 
+demonstrate their excellence in that field. An inference from this is that an excellent 
 scientist by reputation is expected to be more consistent in being an outstanding performer 
 than the politician, since the work of a politician produces effects in which they are 
 not entirely responsible for but nevertheless, somehow is credited these effects from their 
