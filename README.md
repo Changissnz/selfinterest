@@ -4222,4 +4222,11 @@ another example, consider how much influence of hard and/or soft power the perso
 status has, and the juxtaposing of this quality of theirs with their compliments and 
 other expressions of virtue-signaling promotes reason to cast doubt on them; it may be 
 believed that their as-is attribute only serves as a cover in order to not betray the 
-malice of their what-is to anyone else, save for a select few. 
+malice of their what-is to anyone else, save for a select few. And the politician that 
+speaks such noble words, seemingly unaware of the specific kinds of monstrosities at 
+play, calmly signs a document, demonstrative of the power of the pen over the sword 
+after that signing produces a legitimacy for causes such as war and impoverishment. 
+By the practice of correspondence theory, the politician in these cases can never be 
+any more guilty than the most innocent person connected to the faults sanctioned by 
+their legislation. And the ire that is directed against them must be due to their 
+being the upfront human representation to these disapproved causes. 
