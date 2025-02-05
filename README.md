@@ -4158,7 +4158,7 @@ should not be interpreted strictly in a biological or visual sense, for as alrea
 on, the associations of social significance and inferred truths that can be attached to a human 
 being are what influences another human being's perception of them, this their "innate appearance". 
 
-## More on philosophies of self-interest #58 
+## More on philosophies of self-interest #59 
 
 One of the perks of civilization is that there are more opportunities for human beings 
 to project their images without use of physical violence. The from-oneself attribute of one 
@@ -4249,3 +4249,5 @@ in other words, minimizing the enemy's instances of from-oneself. Human beings' 
 of image are enabled by the rich communicative styles developed by human beings, and can 
 only continue on so long as the degree of positive reception to these images, indicative 
 of compatibilities between the expected and the promises, passes a satisfactory threshold. 
+
+## More on philosophies of self-interest #59 
