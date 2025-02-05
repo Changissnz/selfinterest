@@ -4220,6 +4220,6 @@ the nature that is a great part of their social construct they call "civilizatio
 the "serf" is actually a superior fighter and lover than the "knight", et cetera. For 
 another example, consider how much influence of hard and/or soft power the person of 
 status has, and the juxtaposing of this quality of theirs with their compliments and 
-other expressions of virtue-signaling is reasonable to cast doubt on; it may be believed 
-that their as-is attribute only serves as a cover in order to not betray the malice of 
-their what-is to anyone else, save for a select few. 
+other expressions of virtue-signaling promotes reason to cast doubt on them; it may be 
+believed that their as-is attribute only serves as a cover in order to not betray the 
+malice of their what-is to anyone else, save for a select few. 
