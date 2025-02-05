@@ -4197,7 +4197,7 @@ Great Man theory in the sense of social representation, whereas the discoveries 
 may coincidentally lead to their becoming socially known, by the institutional light of 
 prestige shone on them. This is a perspective that assumes the will of each human being 
 is that for what the human being comprehends as their self-interest, and the notion of 
-the human being's lack of autonomy that could be dualistically be considered selflessness 
+the human being's lack of autonomy that could be dualistically considered selflessness 
 is, in fact, a denial of their self-interest, placing them on the same level as botanical 
 life. The roles assigned to a human being and recognized by other human beings encourage 
 presumptions about that human being, and these presumptions may, in turn, be completely 
@@ -4233,11 +4233,11 @@ representation of these disapproved causes. The Russian Revolution of 1905 serve
 as an example of the absolutist possibility in attribution, in which all that are connected 
 to what is believed to be fault, are declared to be guilty. Differences, both nuanced 
 and stark, culminated into exacerbation of class war between aristocrats and commoners, 
-build-ups in tension that led to armed conflict. Civilization encourages liberties not 
+build-ups in tension released into armed conflict. Civilization encourages liberties not 
 found in wartime situations. Accumulation of wealth and acquiring fame are two of the 
 common categories of de jure power that can be used by a human being to project their 
 image, in their desired perfection and scale of recipients to the image. The saying, 
-"all war is a symptom of man's failure as a thinking animal" by Steinbeck, is a 
+"all war is a symptom of man's failure as a thinking animal" by John Steinbeck, is a 
 generalized effect due to the lack of effectiveness in some images projected from 
 human beings, especially those representative of peace, prosperity, and egalitarianism. 
 The proponents of physical war no longer see the value in these images, composed of select 
@@ -4250,4 +4250,4 @@ of image are enabled by the rich communicative styles developed by human beings,
 only continue on so long as the degree of positive reception to these images, indicative 
 of compatibilities between the expected and the promises, passes a satisfactory threshold. 
 
-## More on philosophies of self-interest #59 
+## More on philosophies of self-interest #60 
