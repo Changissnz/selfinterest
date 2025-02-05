@@ -4211,7 +4211,7 @@ typically as a social relation. This definition of this word, in these contexts,
 is fit for authoritative settings, where the command structure is what is most important, 
 while any human sentiments are viewed as unseemly, perhaps cause for exploitation of weakness 
 in opportune circumstances. Convolution of the qualities of a human being's from-oneself, 
-as-is, and what-is produces mixed meanings of comprehending that human being. The proof 
+as-is, and what-is produces mixed meanings from comprehending that human being. The proof 
 of this statement is not done through this writing. However, there are plenty of examples 
 in literary and film that have used this kind of convolution to exemplify the gray-like 
 morality of human beings, how human beings are a subject of their environment and must 
@@ -4230,24 +4230,25 @@ theory, the politician in these cases can never be any more guilty than the most
 innocent person connected to the faults authorized by their legislation. And 
 the ire that is directed against them must be due to their being the upfront human 
 representation of these disapproved causes. The Russian Revolution of 1905 serves 
-as an example of the absolutist possibility in attribution, in which all that are connected 
-to what is believed to be fault, are declared to be guilty. Differences, both nuanced 
-and stark, culminated into exacerbation of class war between aristocrats and commoners, 
-build-ups in tension released into armed conflict. Civilization encourages liberties not 
-found in wartime situations. Accumulation of wealth and acquiring fame are two of the 
-common categories of de jure power that can be used by a human being to project their 
-image, in their desired perfection and scale of recipients to the image. The saying, 
-"all war is a symptom of man's failure as a thinking animal" by John Steinbeck, is a 
-generalized effect due to the lack of effectiveness in some images projected from 
-human beings, especially those representative of peace, prosperity, and egalitarianism. 
-The proponents of physical war no longer see the value in these images, composed of select 
-qualities from the from-oneself, as-is, and what-is of some human beings, and furthermore, 
-see no use for pacifist occupations. In physical war, the what-is attribute becomes less 
-pertinent than the as-is (an explanation for the inhumanity), and knowledge of the as-is 
-is valuable only for the pragmatics of exacerbating harm to the enemy, as far as death, 
-in other words, minimizing the enemy's instances of from-oneself. Human beings' projections 
-of image are enabled by the rich communicative styles developed by human beings, and can 
-only continue on so long as the degree of positive reception to these images, indicative 
-of compatibilities between the expected and the promises, passes a satisfactory threshold. 
+as an example of the absolutist possibility in attribution, in which all that were connected 
+to what was believed to be fault, were declared to be guilty, and the human representatives 
+of rule were vehemently opposed. Differences, both nuanced and stark, culminated into 
+exacerbation of class war between aristocrats and commoners, build-ups in tension released 
+into armed conflict. Civilization encourages liberties not found in wartime situations. 
+Accumulation of wealth and acquiring fame are two of the common categories of de jure 
+power that can be used by a human being to project their image, in their desired perfection 
+and scale of recipients to the image. The saying, "all war is a symptom of man's failure 
+as a thinking animal" by John Steinbeck, is a generalized effect due to the lack of 
+effectiveness in some images projected from human beings, especially those representative 
+of peace, prosperity, and egalitarianism. The proponents of physical war no longer see the 
+value in these images, composed of select qualities from the from-oneself, as-is, and what-is 
+of some human beings, and furthermore, see no use for pacifist occupations. In physical war, 
+the what-is attribute becomes less pertinent than the as-is (an explanation for the 
+inhumanity), and knowledge of the as-is is valuable only for the pragmatics of exacerbating 
+harm to the enemy, as far as death, in other words, minimizing the enemy's instances of 
+from-oneself. Human beings' projections of image are enabled by the rich communicative 
+styles developed by human beings, and can only continue on so long as the degree of positive 
+reception to these images, indicative of compatibilities between the expected and the promises, 
+passes a satisfactory threshold. 
 
 ## More on philosophies of self-interest #60 
