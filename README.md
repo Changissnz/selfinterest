@@ -4207,7 +4207,7 @@ reasoning. The feat of understanding another human being cannot ever be on the w
 their existence since birth. The motives, alone, of a human being cannot be objectively 
 recognized in real-time. Furthermore, there are cases in which "understanding" is the 
 term used by human beings to refer to another human being's compliance with some matter, 
-typically as a social relation. The usage of this word, in these contexts, is perfect 
-for linguistic expression in authoritative settings, where the command structure is 
-what is most important, while any human sentiments are viewed as unseemly, perhaps 
-cause for exploitation of weakness in opportune circumstances. 
+typically as a social relation. This definition of this word, in these contexts, is 
+perfectly acceptable for linguistic expression in authoritative settings, where the command 
+structure is what is most important, while any human sentiments are viewed as unseemly, 
+perhaps cause for exploitation of weakness in opportune circumstances. 
