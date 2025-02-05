@@ -4201,6 +4201,6 @@ the human being's lack of autonomy that could be dualistically be considered sel
 is, in fact, a denial of their self-interest, placing them on the same level as botanical 
 life. The roles assigned to a human being and recognized by other human beings encourage 
 presumptions about that human being, and these presumptions may, in turn, be completely 
-negligent on the domineering motives (part of the what-is) of that human being, so that 
-entertaining that human being as one that has certain objective is far-fetched by the partial 
+negligent of the domineering motives (part of the what-is) in that human being, so that 
+entertaining that human being as one that has certain objectives is far-fetched by the partial 
 reasoning. 
