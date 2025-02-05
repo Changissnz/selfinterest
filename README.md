@@ -4238,7 +4238,7 @@ into armed conflict. Civilization encourages liberties not found in wartime situ
 Accumulation of wealth and acquisition of fame are two of the common categories of de jure 
 power that can be used by a human being to project their image, in their desired perfection 
 and limited scale of recipients to the image. The saying, "all war is a symptom of man's failure 
-as a thinking animal" by John Steinbeck, is a generalized effect due to the lack of 
+as a thinking animal" by John Steinbeck, is a general effect due to the lack of 
 effectiveness in some images projected from human beings, especially those representative 
 of peace, prosperity, and egalitarianism. The proponents of physical war no longer see the 
 value in these images, composed of select qualities from the from-oneself, as-is, and what-is 
