@@ -4194,7 +4194,7 @@ than the politician, since the work of a politician produces effects in which th
 not entirely responsible for but nevertheless, somehow is credited these effects from their 
 rule through commands and policies. In fact, the politician can only be an exemplar of the 
 Great Man theory in the sense of social representation, whereas the discoveries of a scientist 
-may coincidentally lead to their becoming a social representative, by the institutional light of 
+may coincidentally lead to their becoming socially known, by the institutional light of 
 prestige shone on them. This is a perspective that assumes the will of each human being 
 is that for what the human being comprehends as their self-interest, and the notion of 
 the human being's lack of autonomy that could be dualistically be considered selflessness 
@@ -4203,4 +4203,6 @@ life. The roles assigned to a human being and recognized by other human beings e
 presumptions about that human being, and these presumptions may, in turn, be completely 
 negligent of the domineering motives (part of the what-is) in that human being, so that 
 entertaining that human being as one that has certain objectives is far-fetched by the partial 
-reasoning. 
+reasoning. The feat of understanding another human being cannot ever be of the whole of 
+their existence. The motives, alone, of a human being cannot be objectively recognized in 
+real-time. 
