@@ -4236,9 +4236,9 @@ be guilty. Differences, both nuanced and stark, culminated into exacerbation of 
 war between aristocrats and commoners, build-ups in tension that led to armed conflict. 
 Civilization encourages liberties not found in wartime situations. Accumulation of 
 wealth and acquiring fame are two of the common categories of de jure power that can 
-be used by a human being to project their image in their desired perfection and scale 
+be used by a human being to project their image, in their desired perfection and scale 
 of recipients to the image. The saying, "all war is a symptom of man's failure as a 
-thinking animal" by Steinbeck, is a generalization on the lack of effectiveness in 
+thinking animal" by Steinbeck, is a consequentialist generalization on the lack of effectiveness in 
 some images projected from human beings, such as those representative of peace, prosperity, 
 and egalitarianism. The proponents of physical war no longer see the value in these images, 
 composed of select qualities from the from-oneself, as-is, and what-is of some human 
