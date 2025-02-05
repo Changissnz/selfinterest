@@ -4198,8 +4198,8 @@ may coincidentally lead to their becoming socially known, by the institutional l
 prestige shone on them. This is a perspective that assumes the will of each human being 
 is that for what the human being comprehends as their self-interest, and the notion of 
 the human being's lack of autonomy that could be dualistically considered selflessness 
-is, in fact, a denial of their self-interest, placing them on the same level as the inanimate 
-elements. The roles assigned to a human being and recognized by other human beings encourage 
+is, in fact, a denial of their self-interest, placing them on the same level as botanical 
+life. The roles assigned to a human being and recognized by other human beings encourage 
 presumptions about that human being, and these presumptions may, in turn, be completely 
 negligent of the domineering motives (part of the what-is) in that human being, so that 
 entertaining that human being as one that has certain objectives is far-fetched by the partial 
