@@ -4255,7 +4255,7 @@ passes a satisfactory threshold.
 
 Self-interest's lack of containment, in order to persist in its host, is one of this 
 force's qualities that is supported by acclimation mechanisms. In the paradigm of 
-socio-economics, these acclimation mechanisms result in norms of culture and status. 
+socio-economics, these acclimation mechanisms result in norms for culture and status. 
 Individual human beings that set upon doing a task, in the style of repetition and 
 auxiliary activities to support that repetition, become versed in that task. Physical 
 strength can be enhanced, and cognitive abilities can be refined for more efficient 
