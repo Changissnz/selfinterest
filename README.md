@@ -4284,5 +4284,10 @@ general, since there is plenty of counter-argumentative evidence that acceptance
 strangers is more beneficial than standing by those people familiar, such as a citizen 
 of a nation that would rather rob or kill their fellow citizens than a foreigner, the 
 biblical story of brothers Abel and Cain where one died by the other's hand, and in 
-a historical legend somewhat similar to this biblical story, brother Romulus killing 
-Remus to establish Rome. 
+a historical legend somewhat similar to this biblical story, brother Romulus killed 
+Remus to establish Rome. On the matter of knowing principle, games involving decisions 
+and outcomes would be conducted with much doubt when one side does not have artificial 
+axioms to believe in about the other. On a related note, the grandeur of a general 
+statement, such as the previous, on what is to happen can always be contradicted without 
+there being specified application, but then there would not be much striking to state, 
+only that every aspect that can be dualized is equal throughout in quality. 
