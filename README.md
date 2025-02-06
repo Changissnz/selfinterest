@@ -4259,4 +4259,8 @@ socio-economics, these acclimation mechanisms result in norms for culture and st
 Individual human beings that set upon doing a task, in the style of repetition and 
 auxiliary activities to support that repetition, become versed in that task. Physical 
 strength can be enhanced, and cognitive abilities can be refined for more efficient 
-and accurate application. 
+and accurate application. A norm of a class of phenomena is established in ways that 
+lead to proclivities in perception of that phenomena, actions and appearances by human 
+beings geared around if not in official semblance of the norm. In this sense, the norm 
+can be either end of the extrema or the mean, and what distinguishes the norm is that 
+it is what is inadvertently or directly upheld by the corresponding human beings. 
