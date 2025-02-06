@@ -4290,5 +4290,5 @@ and outcomes would be conducted with much doubt when one side does not have arti
 axioms to believe in about the other. On a related note, the grandeur of a general 
 statement, such as the previous, on what is to happen, given some circumstances, can 
 always be contradicted without there being specified application, but then there would 
-not be anything striking to state, only that every aspect that can be dualized is equal 
-throughout in quality. 
+not be anything striking to state, only that every aspect that can be dualized should 
+be equal throughout in quality. 
