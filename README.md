@@ -4278,4 +4278,10 @@ describe these artificial axioms do, in fact, constitute security concerns to ar
 extents. For simplicity's sake in elaborating more on what exactly these security 
 concerns are, consider the fact that a stranger, someone not well-known to others by 
 similar cultural nurture and personal interactions, can blend in with these others by 
-knowing what artificial axioms (the norms) to practice. 
+knowing what artificial axioms (the norms) to practice, and the stranger just so happens 
+to have bad intentions. This example is one on a particular stranger, not strangers in 
+general, since there is plenty of counter-argumentative evidence that acceptance of 
+strangers carry benefits, such as a citizen of a nation that would rather rob or kill 
+their fellow citizens than a foreigner, the biblical story of brothers Abel and Cain 
+where one died by the other's hand, and in a historical legend somewhat similar to 
+this biblical story, brother Romulus killing Remus to establish Rome. 
