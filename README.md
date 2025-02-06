@@ -4275,4 +4275,7 @@ yet cannot be readily and wholly understood by transmitting the representation o
 metaphysical principles, typically through human language, to another. Social norms are 
 artificial axioms that characterize societies, and linguistic statements that accurately 
 describe these artificial axioms do, in fact, constitute security concerns to arbitrary 
-extents. 
+extents. For simplicity's sake in elaborating more on what exactly these security 
+concerns are, consider the fact that a stranger, someone not well-known to others by 
+similar cultural nurture and personal interactions, can blend in with these others by 
+knowing what artificial axioms (the norms) to practice. 
