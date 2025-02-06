@@ -4281,7 +4281,8 @@ similar cultural nurture and personal interactions, can blend in with these othe
 knowing what artificial axioms (the norms) to practice, and the stranger just so happens 
 to have bad intentions. This example is one on a particular stranger, not strangers in 
 general, since there is plenty of counter-argumentative evidence that acceptance of 
-strangers carry benefits, such as a citizen of a nation that would rather rob or kill 
-their fellow citizens than a foreigner, the biblical story of brothers Abel and Cain 
-where one died by the other's hand, and in a historical legend somewhat similar to 
-this biblical story, brother Romulus killing Remus to establish Rome. 
+strangers is more beneficial than standing by those people familiar, such as a citizen 
+of a nation that would rather rob or kill their fellow citizens than a foreigner, the 
+biblical story of brothers Abel and Cain where one died by the other's hand, and in 
+a historical legend somewhat similar to this biblical story, brother Romulus killing 
+Remus to establish Rome. 
