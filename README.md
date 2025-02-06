@@ -4288,6 +4288,7 @@ a historical legend somewhat similar to this biblical story, brother Romulus kil
 Remus to establish Rome. On the matter of knowing principle, games involving decisions 
 and outcomes would be conducted with much doubt when one side does not have artificial 
 axioms to believe in about the other. On a related note, the grandeur of a general 
-statement, such as the previous, on what is to happen can always be contradicted without 
-there being specified application, but then there would not be much striking to state, 
-only that every aspect that can be dualized is equal throughout in quality. 
+statement, such as the previous, on what is to happen, given some circumstances, can 
+always be contradicted without there being specified application, but then there would 
+not be anything striking to state, only that every aspect that can be dualized is equal 
+throughout in quality. 
