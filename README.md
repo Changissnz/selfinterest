@@ -4217,7 +4217,7 @@ in literature and film that have used this kind of convolution to exemplify the 
 morality of human beings, how human beings are a subject of their environment and must 
 constantly be one with nurture instead of the nature that is a great part of their social 
 construct they call "civilization", how the "serf" is actually a superior fighter and 
-lover to the "knight", et cetera. For another example, consider how much influence 
+lover than the "knight", et cetera. For another example, consider how much influence 
 of hard and soft power the person of status has, and juxtaposing of this quality 
 of theirs with their compliments and other expressions of virtue-signaling promotes 
 reason to cast doubt on them; it may be believed that their as-is attribute only 
