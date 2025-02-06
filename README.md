@@ -4272,4 +4272,7 @@ to protest against or for. Without linguistic terminology and other unifying sym
 members of social interactions compensate for the lack of common operands in expression 
 with instinct and intuition, those bodies that can produce accurate outputs in judgment 
 yet cannot be readily and wholly understood by transmitting the representation of their 
-metaphysical principles, typically through human language, to another. 
+metaphysical principles, typically through human language, to another. Social norms are 
+artificial axioms that characterize societies, and linguistic statements that accurately 
+describe these artificial axioms do, in fact, constitute security concerns to arbitrary 
+extents. 
