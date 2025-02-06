@@ -4263,4 +4263,13 @@ and accurate application. A norm of a class of phenomena is established in ways 
 lead to proclivities in perception of that phenomena, actions and appearances by human 
 beings geared around if not in official semblance of the norm. In this sense, the norm 
 can be either end of the extrema or the mean, and what distinguishes the norm is that 
-it is what is inadvertently or directly upheld by the corresponding human beings. 
+it is what is inadvertently or directly upheld by the corresponding human beings. On 
+the other hand, in many societies, a predominant number of human beings can be completely 
+clueless on the extrema and the mean, and the society seemingly operates completely 
+fine according to their official statements, with minumum organized protest obviously 
+because there is no mass awareness of the bounds and centralities of the class of a phenomena 
+to protest against or for. Without linguistic terminology and other unifying symbols, 
+members of social interactions compensate for the lack of common operands in expression 
+with instinct and intuition, those bodies that can produce accurate outputs in judgment 
+yet cannot be readily and wholly understood by transmitting the representation of their 
+metaphysical principles, typically through human language, to another. 
