@@ -4252,3 +4252,11 @@ reception to these images, indicative of compatibilities between the expected an
 passes a satisfactory threshold. 
 
 ## More on philosophies of self-interest #60 
+
+Self-interest's lack of containment, in order to persist in its host, is one of this 
+force's qualities that is supported by acclimation mechanisms. In the paradigm of 
+socio-economics, these acclimation mechanisms result in norms of culture and status. 
+Individual human beings that set upon doing a task, in the style of repetition and 
+auxiliary activities to support that repetition, become versed in that task. Physical 
+strength can be enhanced, and cognitive abilities can be refined for more efficient 
+and accurate application. 
