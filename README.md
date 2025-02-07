@@ -4268,7 +4268,7 @@ the other hand, in many societies, a predominant number of human beings can be c
 clueless on the extrema and the mean, and the society seemingly operates completely 
 fine according to their official statements, with minumum organized protest obviously 
 because there is no mass awareness of the bounds and centralities of the class of a phenomena 
-to protest against or for. Without linguistic terminology and other unifying symbols, 
+to protest against or for. Without shared linguistic terms and other unifying symbols, 
 members of social interactions compensate for the lack of common operands in expression 
 with instinct and intuition, those bodies that can produce accurate outputs in judgment 
 yet cannot be readily and wholly understood by transmitting the representation of their 
@@ -4281,14 +4281,14 @@ similar cultural nurture and personal interactions, can blend in with these othe
 knowing what artificial axioms (the norms) to practice, and the stranger just so happens 
 to have bad intentions. This example is one on a particular stranger, not strangers in 
 general, since there is plenty of counter-argumentative evidence that acceptance of 
-strangers is more beneficial than standing by those people familiar, such as a citizen 
+strangers can be more beneficial than standing by those people familiar, such as a citizen 
 of a nation that would rather rob or kill their fellow citizens than a foreigner, the 
 biblical story of brothers Abel and Cain where one died by the other's hand, and in 
-a historical legend somewhat similar to this biblical story, brother Romulus killed 
+a historical legend somewhat similar to this biblical story, brother Romulus killing 
 Remus to establish Rome. On the matter of knowing principle, games involving decisions 
 and outcomes would be conducted with much doubt when one side does not have artificial 
 axioms to believe in about the other. On a related note, the grandeur of a general 
-statement, such as the previous, on what is to happen, given some circumstances, can 
+statement, such as the previous on what is to happen given some circumstances, can 
 always be contradicted without there being specified application, but then there would 
 not be anything striking to state, only that every aspect that can be dualized should 
 be equal throughout in quality. 
