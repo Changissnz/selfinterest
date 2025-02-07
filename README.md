@@ -4280,7 +4280,7 @@ concerns are, consider the fact that a stranger, someone not well-known to other
 similar cultural nurture and personal interactions, can blend in with these others by 
 knowing what artificial axioms (the norms) to practice, and the stranger just so happens 
 to have bad intentions. This example is one on a particular stranger, not strangers in 
-general, since there is plenty of counter-argumentative evidence that acceptance of 
+general, since there is plenty of counter-argumentative cases that acceptance of 
 strangers can be more beneficial than standing by those people familiar, such as a citizen 
 of a nation that would rather rob or kill their fellow citizens than a foreigner, the 
 biblical story of brothers Abel and Cain where one died by the other's hand, and in 
