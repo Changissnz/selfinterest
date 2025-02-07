@@ -4339,7 +4339,7 @@ comes in many forms, with regards to contexts of human beings, so much that the
 only measurable characteristics of the concept are through the socio-economic labels, 
 belonging to one comprehensive labeling system that is correctly used, of specific 
 individuals. The field of socio-economics, being as ubiquitious in the applications of 
-human activity as it is, focuses much on the material possessions and financial status of 
+human activity as it is, focuses much on the material possessions and political status of 
 individuals in a region. Because of this focus, the practical uses of socio-economics is 
 usually not sufficient in the depth of description on the cultural hallmarks and spiritual 
 mores of a people. 
