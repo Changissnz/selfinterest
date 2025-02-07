@@ -4314,4 +4314,8 @@ This could be used to support the argument of the self-justifying quality of sel
 having a preference for the destinations of acclimation processes. But this argument also 
 has many examples against it, such as in national progressivism and innovation. The experiences 
 in both of these categories deal with divergences from norms and are rationalized as 
-necessary, out of the circumstances. 
+necessary, out of the circumstances. The difference in typical mass acceptance is that 
+national progressivism is accepted as the general trend and the specifics in hardships 
+due, in part, to divergences from more comfortable norms are the causes for personal 
+dissatisfaction. Innovative products have merit due to being improvements in solutions, 
+but have to be more difficult to integrate into the whole. 
