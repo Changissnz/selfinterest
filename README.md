@@ -4318,4 +4318,4 @@ necessary, out of the circumstances. The difference in typical mass acceptance i
 national progressivism is accepted as the general trend and the specifics in hardships 
 due, in part, to divergences from more comfortable norms are the causes for personal 
 dissatisfaction. Innovative products have merit due to being improvements in solutions, 
-but have to be more difficult to integrate into the whole. 
+but have to be more difficult to integrate into the whole for a different kind of whole. 
