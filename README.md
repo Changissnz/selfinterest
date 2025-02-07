@@ -4289,11 +4289,11 @@ Remus to establish Rome. On the matter of knowing principle, games involving dec
 and outcomes would be conducted with much doubt when one side does not have artificial 
 axioms to believe in about the other. On a related note, the grandeur of a general 
 statement, such as the previous on what is to happen given some circumstances, can 
-always be readily contradicted without there being specified application, but then there 
+always be readily contradicted if there is no specified application, but then there 
 would not be anything striking to state, only that every aspect that can be dualized 
 should be equal throughout in quality. The property of acclimation that is a part of 
 self-interest most definitely has a biological basis, and that is the finiteness of 
-human effort by calorie intake. The spirit, per se, that accepts or rejects 
+human effort from required caloric intake. The spirit, per se, that accepts or rejects 
 a point in an endeavour's travel as the wanted stasis is much more interesting in 
 exemplifying discussions, but alas, that would be subjective and beg for more questions. 
 Matters of aesthetic preferences and wanted experiences are also acclimative by self-interest. 
@@ -4307,4 +4307,6 @@ upset or solemn people. But eventually, every single attendant of healthy mental
 on in some way, and remembrances of that dead one are frequently phrased as them "living 
 on in the heart". In other words, there was acclimation to that death: the upset feelings 
 right after the event were neutralized to regain the comfort of peace, a possible source 
-of stability, to move on from that. 
+of stability, to move on from that. Acclimation produces a stable base for self-interest 
+to continue on in its own way, and if the acclimation becomes custom, questioning of the 
+matters for that acclimation would be labeled phrases such as "culturally offensive". 
