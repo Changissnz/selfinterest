@@ -4299,6 +4299,12 @@ exemplifying discussions, but alas, that would be subjective and beg for more qu
 Matters of aesthetic preferences and wanted experiences are also acclimative by self-interest. 
 A plausible theory for this is because human perception and judgment greatly take into 
 account the expected and the actual. The actualities surrounding a human being demand 
-their response in some form, and expectations can well be relegated to the realm of 
-motives instead of the objectives of self-interest, which are typically designed for 
-non-null possibilities. 
+their response in some form, and their expectations can well be relegated to the realm 
+of motives instead of the objectives of self-interest, which are typically designed for 
+non-null possibilities. Human beings can find the comfort of peace in their experiences so 
+long as they continue to live. For example, funeral events that honor the dead are rife with 
+upset or solemn people. But eventually, every single attendant of healthy mentality moves 
+on in some way, and remembrances of that dead one is frequently phrased as them "living 
+on in the heart". In other words, there is acclimation to that death, hence the upset 
+feelings right after the event were neutralized to regain the comfort of peace and 
+stability to move on from that. 
