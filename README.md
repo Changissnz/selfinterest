@@ -4297,8 +4297,8 @@ human effort from required caloric intake. The spirit, per se, that accepts or r
 a point in an endeavour's travel as the wanted stasis is much more interesting in 
 exemplifying discussions, but alas, that would be subjective and beg for more questions. 
 Matters of aesthetic preferences and wanted experiences are also acclimative by self-interest. 
-A plausible theory for this is because human perception and judgment greatly take into 
-account the expected and the actual. The actualities surrounding a human being demand 
+A plausible theory for this is because human cognition, of perception and judgment, greatly 
+take into account the expected and the actual. The actualities surrounding a human being demand 
 their response in some form, and their expectations can well be relegated to the realm 
 of motives instead of the objectives of self-interest, which are typically designed for 
 non-null possibilities. Human beings can find the comfort of peace in their experiences so 
