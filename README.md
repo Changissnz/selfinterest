@@ -4320,7 +4320,7 @@ due, in part, to divergences from more comfortable norms are the causes for pers
 dissatisfaction. Innovative products have merit due to being improvements in solutions, 
 but have to be more difficult to integrate into the whole for a different kind of whole. 
 The inability of a human being to find content in their surroundings is celebrated from 
-time to time. The idea of the best artists being tormented souls, in their waking lives, 
+time to time. The idea of the best artists being tortured souls, in their waking lives, 
 has a persuasion to it due to its rational-like characterization of the lives some of 
 these people led. The fledgling ancient Roman Republic is also an example of a 
 self-improving mentality that cannot possibly be indicative of an acclimation thorough 
