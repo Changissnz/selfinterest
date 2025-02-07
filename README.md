@@ -4293,6 +4293,12 @@ always be readily contradicted without there being specified application, but th
 would not be anything striking to state, only that every aspect that can be dualized 
 should be equal throughout in quality. The property of acclimation that is a part of 
 self-interest most definitely has a biological basis, and that is the finiteness of 
-human effort that rests on calorie intake. The spirit, per se, that accepts or rejects 
+human effort by calorie intake. The spirit, per se, that accepts or rejects 
 a point in an endeavour's travel as the wanted stasis is much more interesting in 
 exemplifying discussions, but alas, that would be subjective and beg for more questions. 
+Matters of aesthetic preferences and wanted experiences are also acclimative by self-interest. 
+A plausible theory for this is because human perception and judgment greatly take into 
+account the expected and the actual. The actualities surrounding a human being demand 
+their response in some form, and expectations can well be relegated to the realm of 
+motives instead of the objectives of self-interest, which are typically designed for 
+non-null possibilities. 
