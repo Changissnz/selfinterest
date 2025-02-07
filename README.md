@@ -4318,7 +4318,7 @@ necessary, out of the circumstances. The difference in typical mass acceptance i
 national progressivism is accepted as the general trend and the specifics in hardships 
 due, in part, to divergences from more comfortable norms are the causes for personal 
 dissatisfaction. Innovative products have merit due to being improvements in solutions, 
-but have to be more difficult to integrate into the whole for a different kind of whole. 
+but have to be more difficult to integrate into the whole to cause a different kind of whole. 
 The inability of a human being to find content in their surroundings is celebrated from 
 time to time. The idea of the best artists being tortured souls, in their waking lives, 
 has a persuasion to it due to its rational-like characterization of the lives some of 
