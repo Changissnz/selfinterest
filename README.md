@@ -4317,7 +4317,7 @@ in both of these categories deal with divergences from norms and are rationalize
 necessary, out of the circumstances. The difference in typical mass acceptance is that 
 national progressivism is accepted as the general trend and the specifics in hardships 
 due, in part, to divergences from more comfortable norms are the causes for personal 
-dissatisfaction. Innovative products have merit due to being improvements in solutions, 
+dissatisfaction. Innovative products have merit due to being specific improvements for solutions, 
 but have to be more difficult to integrate into the whole to cause a different kind of whole. 
 The inability of a human being to find content in their surroundings is celebrated from 
 time to time. The idea of the best artists being tortured souls, in their waking lives, 
