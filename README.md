@@ -4233,7 +4233,7 @@ representation of these disapproved causes. The Russian Revolution of 1905 serve
 as an example of the absolutist possibility in attribution, in which all that were connected 
 to what was believed to be fault, were declared to be guilty, and the human representatives 
 of rule were most vehemently opposed. Differences, both nuanced and stark, culminated into 
-exacerbation of class war between aristocrats and commoners, build-ups in tension released 
+exacerbation of class war between the aristocratic and commoner factions, build-ups in tension released 
 into armed conflict. Civilization encourages liberties not found in wartime situations. 
 Accumulation of wealth and acquisition of fame are two of the common categories of de jure 
 power that can be used by a human being to project their image, in their desired perfection 
