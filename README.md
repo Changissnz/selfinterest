@@ -4327,7 +4327,7 @@ self-improving mentality that cannot possibly be indicative of an acclimation th
 in certain aspects. A quote from Cicero in Haruspices goes, "and it is not numbers 
 that we are superior to the Spaniards, nor in personal strength to the Gauls, nor in 
 cunning to the Carthaginians, nor in arts to the Greeks". And yet, the incorporatist 
-state of Rome grew to accomodate all these peoples that did not perish under the 
+ancient state of Rome grew to accomodate all these peoples that did not perish under the 
 classic Roman gladius.
 
 ## More on philosophies of self-interest #61 
