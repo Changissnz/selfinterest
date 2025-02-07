@@ -4308,5 +4308,7 @@ on in some way, and remembrances of that dead one are frequently phrased as them
 on in the heart". In other words, there was acclimation to that death: the upset feelings 
 right after the event were neutralized to regain the comfort of peace, a possible source 
 of stability, to move on from that. Acclimation produces a stable base for self-interest 
-to continue on in its own way, and if the acclimation becomes custom, questioning of the 
+to continue on in its own way. And if the acclimation becomes custom, questioning of the 
 matters for that acclimation would be labeled phrases such as "culturally offensive". 
+This could be used to support the argument of the self-justifying quality of self-interest 
+having a preference for the destinations of acclimation processes. 
