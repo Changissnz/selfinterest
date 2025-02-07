@@ -4304,7 +4304,7 @@ of motives instead of the objectives of self-interest, which are typically desig
 non-null possibilities. Human beings can find the comfort of peace in their experiences so 
 long as they continue to live. For example, funeral events that honor the dead are rife with 
 upset or solemn people. But eventually, every single attendant of healthy mentality moves 
-on in some way, and remembrances of that dead one is frequently phrased as them "living 
-on in the heart". In other words, there was acclimation to that death, hence the upset 
-feelings right after the event were neutralized to regain the comfort of peace, a possible 
-source of stability, to move on from that. 
+on in some way, and remembrances of that dead one are frequently phrased as them "living 
+on in the heart". In other words, there was acclimation to that death: the upset feelings 
+right after the event were neutralized to regain the comfort of peace, a possible source 
+of stability, to move on from that. 
