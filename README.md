@@ -4233,7 +4233,7 @@ representation of these disapproved causes. The Russian Revolution of 1905 serve
 as an example of the absolutist possibility in attribution, in which all that were connected 
 to what was believed to be fault, were declared to be guilty, and the human representatives 
 of rule were most vehemently opposed. Differences, both nuanced and stark, culminated into 
-exacerbation of class war between the aristocratic and commoner factions, build-ups in tension released 
+exacerbation of class war between the aristocrat and commoner factions, build-ups in tension released 
 into armed conflict. Civilization encourages liberties not found in wartime situations. 
 Accumulation of wealth and acquisition of fame are two of the common categories of de jure 
 power that can be used by a human being to project their image, in their desired perfection 
@@ -4298,7 +4298,7 @@ a point in an endeavour's travel as the wanted stasis is much more interesting i
 exemplifying discussions, but alas, that would be subjective and beg for more questions. 
 Matters of aesthetic preferences and wanted experiences are also acclimative by self-interest. 
 A plausible theory for this is because human cognition, of perception and judgment, greatly 
-take into account the expected and the actual. The actualities surrounding a human being demand 
+takes into account the expected and the actual. The actualities surrounding a human being demand 
 their response in some form, and their expectations can well be relegated to the realm 
 of motives instead of the objectives of self-interest, which are typically designed for 
 non-null possibilities. Human beings can find the comfort of peace in their experiences so 
@@ -4331,3 +4331,4 @@ ancient state of Rome grew to accomodate all these peoples that did not perish u
 classic Roman gladius.
 
 ## More on philosophies of self-interest #61 
+
