@@ -4320,11 +4320,11 @@ due, in part, to divergences from more comfortable norms are the causes for pers
 dissatisfaction. Innovative products have merit due to being improvements in solutions, 
 but have to be more difficult to integrate into the whole for a different kind of whole. 
 The inability of a human being to find content in their surroundings is celebrated from 
-time to time. The idea of the best artists being tormented souls, during their in their 
-waking life, has a persuasion to it due to its rational-like characterization of the 
-lives some of these people led. The fledgling ancient Roman Republic is also an example 
-of the self-improving mentality that cannot possibly be indicative of an acclimation 
-thorough in certain aspects. A quote from Cicero in Haruspices goes, "and it is not numbers 
+time to time. The idea of the best artists being tormented souls, in their waking lives, 
+has a persuasion to it due to its rational-like characterization of the lives some of 
+these people led. The fledgling ancient Roman Republic is also an example of a 
+self-improving mentality that cannot possibly be indicative of an acclimation thorough 
+in certain aspects. A quote from Cicero in Haruspices goes, "and it is not numbers 
 that we are superior to the Spaniards, nor in personal strength to the Gauls, nor in 
 cunning to the Carthaginians, nor in arts to the Greeks". And yet, the incorporatist 
 state of Rome grew to accomodate all these peoples that did not perish under the 
