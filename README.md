@@ -4337,8 +4337,9 @@ provide the bases for stability that are, in turn, required by spheres of influe
 to efficiently operate and command relevance in the manner of projection. Stability 
 comes in many forms, with regards to contexts of human beings, so much that the 
 only measurable characteristics of the concept are through the socio-economic labels, 
-of one labeling system correctly used, of specific individuals. The field of socio-economics, 
-being as ubiquitious in the applications of human activity as it is, focuses much on 
-the material possessions and financial status of individuals in a region. Because of 
-this focus, the practical uses of socio-economics is usually not sufficient in the depth 
-of description on the cultural hallmarks and spiritual mores of a people. 
+belonging to one comprehensive labeling system that is correctly used, of specific 
+individuals. The field of socio-economics, being as ubiquitious in the applications of 
+human activity as it is, focuses much on the material possessions and financial status of 
+individuals in a region. Because of this focus, the practical uses of socio-economics is 
+usually not sufficient in the depth of description on the cultural hallmarks and spiritual 
+mores of a people. 
