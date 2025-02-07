@@ -4332,3 +4332,6 @@ classic Roman gladius.
 
 ## More on philosophies of self-interest #61 
 
+Norms, as artificial axioms, are not entirely for constructive purposes although they 
+provide the bases for stability that are, in turn, required by spheres of influence 
+to efficiently operate and command relevance in the manner of projection. 
