@@ -4289,6 +4289,10 @@ Remus to establish Rome. On the matter of knowing principle, games involving dec
 and outcomes would be conducted with much doubt when one side does not have artificial 
 axioms to believe in about the other. On a related note, the grandeur of a general 
 statement, such as the previous on what is to happen given some circumstances, can 
-always be contradicted without there being specified application, but then there would 
-not be anything striking to state, only that every aspect that can be dualized should 
-be equal throughout in quality. 
+always be readily contradicted without there being specified application, but then there 
+would not be anything striking to state, only that every aspect that can be dualized 
+should be equal throughout in quality. The property of acclimation that is a part of 
+self-interest most definitely has a biological basis, and that is the finiteness of 
+human effort that rests on calorie intake. The spirit, per se, that accepts or rejects 
+a point in an endeavour's travel as the wanted stasis is much more interesting in 
+exemplifying discussions, but alas, that would be subjective and beg for more questions. 
