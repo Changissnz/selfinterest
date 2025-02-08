@@ -4378,5 +4378,5 @@ their defeats. Social norms are a product of the "social animal" that is the hum
 strived for by individuals and established through the sheer acceptance by the populace. The 
 competitive spirit of human beings help to oscillate acceptance on the matter pertaining to 
 the norm, and the actualities through the context of time by human beings are the sole body 
-that determines what the norm is, a fixture of sorts more stable than temporary, more subject 
-than object, and artificial axiom instead of axiom. 
+of variables that determine what the norm is, a fixture of sorts more stable than temporary, 
+more subject than object, and artificial axiom instead of axiom. 
