@@ -4351,4 +4351,7 @@ routes are much more relevant than the regional industries available to that ind
 possible employment. However, the two are intricately connected. The concept of the artificial 
 axiom is thorough because it can describe any action that any individual does and any 
 predominant belief promoted by any group of individuals. And as for the cause for these 
-artificial axioms, the root is obviously self-interest. 
+artificial axioms, the root is obviously self-interest. Norms are a class of artificial 
+axioms, and although they have significance proportional to corresponding effects from their 
+representatives and proponents, they serve as effects from frequent kinds of acceptances. 
+The artificial axiom could additionally act as causes, from self-interest, for effects. 
