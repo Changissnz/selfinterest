@@ -4368,7 +4368,7 @@ interpretation of democracy in partial practice, and ironically, why institution
 any nation, democratic or not, cannot blindly guarantee liberation. There are fixtures. these 
 norms, and human activity cannot be "business as usual" when liberation leaves behind it 
 null voids that make their societies cave in from the change. Fear of these kinds of null 
-voids are indeed a part of human design of human societies, as shown by such events as 
-the character Brutus who said he "loved Caesar, but. . . loved Rome more" in Shakespeare's 
+voids are indeed a part of human design of human societies, as shown by drastic events such as 
+the character Brutus who said he "loved Caesar, but... loved Rome more" in Shakespeare's 
 Julius Caesar, sometime around his decision to help kill Caesar, and the American Civil War 
 of 1861. Both events were essentially caused by and for institutions. 
