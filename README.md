@@ -4345,7 +4345,7 @@ usually not sufficient in the depth of description on the cultural hallmarks and
 mores of a people. With this said, the concept of humanist stability cannot possibly be 
 discussed in a unified way, due to the subjectivity of human acceptance, for a slap in 
 the face in an ordered land is to be received with humility and need for redemption, 
-but in an unordered land, cause to escalate violent conflict. In gauging stability for a 
-region, the opportunities available to an arbitrary individual to diverge from their prescribed 
+but in an unordered land, cause to escalate conflict. In gauging stability for a region, 
+the opportunities available to an arbitrary individual to diverge from their prescribed 
 routes are much more relevant than the regional industries available to that individual for 
 possible employment. However, the two are intricately connected. 
