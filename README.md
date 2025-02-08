@@ -4395,7 +4395,7 @@ settings. Societies steadfast on maintaining norms are ones that directly intend
 human subjects to be subjected to these norms, one of the primary ways to attempt persistence 
 through the possibly violent advents brought about through universal time and from changes in 
 ways of life from those others not of society. An arbitrary farmer in a village below the 
-technological norm of the great powers of nation states is limited in perspective and 
+technological norm of the great powers of nation states is limited in technological perspective and 
 may be unmotivated to technologically improve, and what debates without the material 
 can really prove their inferiority to the civilized without there being statements 
 very much offensive to their way of life, the norms for their labor? Behind every enduring 
