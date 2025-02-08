@@ -4334,12 +4334,17 @@ classic Roman gladius.
 
 Norms, as artificial axioms, are not entirely for constructive purposes although they 
 provide the bases for stability that are, in turn, required by spheres of influence 
-to efficiently operate and command relevance in the manner of projection. Stability 
-comes in many forms, with regards to contexts of human beings, so much that the 
-only measurable characteristics of the concept are through the socio-economic labels, 
+to efficiently operate and command consistent relevance in the manner of projection. 
+Stability comes in many forms, with regards to contexts of human beings, so much that 
+the only measurable characteristics of the concept are through the socio-economic labels, 
 belonging to one comprehensive labeling system that is correctly used, of specific 
 individuals. The field of socio-economics, being as ubiquitious in the applications of 
 human activity as it is, focuses much on the material possessions and political status of 
 individuals in a region. Because of this focus, the practical uses of socio-economics is 
 usually not sufficient in the depth of description on the cultural hallmarks and spiritual 
-mores of a people. 
+mores of a people. With this said, the concept of humanist stability cannot possibly be 
+discussed in a unified way, due to the subjectivity of human acceptance, for a slap in 
+the face in an ordered land is to be received with humility and opportunity for redemption, 
+but in an unordered land, cause to escalate violent conflict. The opportunities available 
+to an arbitrary individual to diverge from their prescribed routes are much more relevant 
+than the regional industries available to that individual for possible employment. 
