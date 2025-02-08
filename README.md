@@ -4336,8 +4336,8 @@ Norms, as artificial axioms, are not entirely for constructive purposes although
 provide the bases for stability that are, in turn, required by spheres of influence 
 to efficiently operate and command consistent relevance in the manner of projection. 
 Stability comes in many forms, with regards to contexts of human beings, so much that 
-the only measurable characteristics of the concept are through the socio-economic labels, 
-belonging to one comprehensive labeling system that is correctly used, of specific 
+the only objectively measurable characteristics of the concept are through the socio-economic 
+labels, belonging to one comprehensive labeling system that is correctly used, of specific 
 individuals. The field of socio-economics, being as ubiquitious in the applications of 
 human activity as it is, focuses much on the material possessions and political status of 
 individuals in a region. Because of this focus, the practical uses of socio-economics is 
@@ -4348,4 +4348,7 @@ the face in an ordered land is to be received with humility and need for redempt
 but in an unordered land, cause to escalate conflict. In gauging stability for a region, 
 the opportunities available to an arbitrary individual to diverge from their prescribed 
 routes are much more relevant than the regional industries available to that individual for 
-possible employment. However, the two are intricately connected. 
+possible employment. However, the two are intricately connected. The concept of the artificial 
+axiom is thorough because it can describe any action that any individual does and any 
+predominant belief promoted by any group of individuals. And as for the cause for these 
+artificial axioms, the root is obviously self-interest. 
