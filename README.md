@@ -4387,7 +4387,8 @@ the phenomena of specific forms, predominated in actualization by human beings' 
 of artificial axioms. But there is no saying on the death of these artificial axioms, 
 metaphysical decision structures. The continuity of cultures and perspectives to continue 
 on past the individual human beings' death is quite evident, more so than the official name 
-of any empire that reigned for some hundred of years in some region of the planet. The fact 
-that there are always less novelties than anti-novelties is the effect in the physical constructs 
-that certain human beings labored for, and this fact itself hides the nuances in the forms of 
-the same artificial axiom practically diverged into specific spatiotemporal settings. 
+of any previous empire that reigned for some hundred of years in some region of the planet. The 
+fact that there are always less novelties than anti-novelties is the effect in the physical 
+constructs that certain human beings labored for, and this fact itself hides the nuances in 
+the forms of the same artificial axiom practically diverged into specific spatiotemporal 
+settings. 
