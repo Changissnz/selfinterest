@@ -4375,3 +4375,6 @@ of 1861. Both events were essentially caused by and for institutions, and perhap
 of both Brutus and Robert E. Lee were due to their love for their institutions, so great that 
 their cognition would be clouded to such extents to spin them round and round down the holes 
 for their defeats. 
+
+## More on philosophies of self-interest #62 
+
