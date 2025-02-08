@@ -4389,6 +4389,21 @@ metaphysical decision structures. The continuity of cultures and perspectives to
 on past the individual human beings' death is quite evident, more so than the official name 
 of any previous empire that reigned for some hundred of years in some region of the planet. The 
 fact that there are always less novelties than anti-novelties is the effect in the physical 
-constructs that certain human beings labored for, and this fact itself hides the nuances in 
-the forms of the same artificial axiom practically diverged into specific spatiotemporal 
-settings. 
+constructs that certain human beings labored for, and this fact itself hides the nuances of 
+the forms from the same artificial axiom practically diverged into specific spatiotemporal 
+settings. Societies steadfast on maintaining norms are ones that directly intend for their 
+human subjects to be subjected to these norms, one of the primary ways to attempt persistence 
+through the possibly violent advents brought about through universal time and from changes in 
+ways of life from those others not of society. An arbitrary farmer in a village below the 
+technological norm of the great powers of nation states is limited in perspective and 
+may be unmotivated to technologically improve, and what debates without the material 
+can really prove their inferiority to the civilized without there being statements 
+very much offensive to their way of life, the norms for their labor? Behind every enduring 
+norm is physical reinforcement, a result of demands to help institutionalize the rule. 
+In the context of the norm, self-interest makes the human being an actor in their personal 
+circumstances, possibly an opportunist when the norms they support are what they believe is 
+most beneficial, not necessarily what would yield them the best. And for that, human beings 
+are mostly normal, despite the complementary degree of their actions for the norms surrounding 
+them of the present day. 
+
+## More on philosophies of self-interest #62 
