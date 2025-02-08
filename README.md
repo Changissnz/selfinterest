@@ -4399,7 +4399,7 @@ technological norm of the great powers of nation states is limited in technologi
 may be unmotivated to technologically improve, and what debates without the material 
 can really prove their inferiority to the civilized without there being statements 
 very much offensive to their way of life, the norms for their labor? Behind every enduring 
-norm is physical reinforcement, a result of demands to help institutionalize the rule. 
+norm is physical reinforcement, a result from demands to help institutionalize the rule. 
 In the context of the norm, self-interest makes the human being an actor in their personal 
 circumstances, possibly an opportunist when the norms they support are what they believe is 
 most beneficial, not necessarily what would yield them the best. And for that, human beings 
