@@ -4373,4 +4373,4 @@ the character Brutus who said he "loved Caesar, but... loved Rome more" in Shake
 Julius Caesar, sometime around his decision to help kill Caesar, and the American Civil War 
 of 1861. Both events were essentially caused by and for institutions, and perhaps the defeats 
 of both Brutus and Robert E. Lee was due to their love for their institutions, so great that 
-their love would cloud their cognition to then aid in their defeats. 
+their love would cloud their cognition to aid in their defeats. 
