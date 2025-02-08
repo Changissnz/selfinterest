@@ -4373,8 +4373,10 @@ the character Brutus who said he "loved Caesar, but... loved Rome more" in Shake
 Julius Caesar, sometime around his decision to help kill Caesar, and the American Civil War 
 of 1861. Both events were essentially caused by and for institutions, and perhaps the defeats 
 of both Brutus and Robert E. Lee were due to their love for their institutions, so great that 
-their cognition would be clouded to such extents to spin them round and round down the holes 
-for their defeats. 
-
-## More on philosophies of self-interest #62 
-
+their cognition was clouded to such extents to spin them round and round down the holes for 
+their defeats. Social norms are a product of the "social animal" that is the human being, 
+strived for by individuals and established through the sheer acceptance by the populace. The 
+competitive spirit of human beings help to oscillate acceptance on the matter pertaining to 
+the norm, and the actualities through the context of time by human beings are the sole body 
+that determines what the norm is, a fixture of sorts more stable than temporary, more subject 
+than object, and more artificial axiom than axiom. 
