@@ -4364,6 +4364,6 @@ those that may rely on the causes from their reasoning for why their desired eff
 destroying the norm is justified. In this way, human reasoning for preferred ends makes 
 all reasons questionable, which then explains why all relevant democratic nations, since 
 time immemorial, depend on institutions to thrive, and ironically, why institutions of 
-any nations, democratic or not, cannot guarantee liberation. There are fixtures and norms, 
-and human activity cannot be "business as usual" when liberation leaves behind it null 
-voids that make their societies cave in from the change. 
+any nation, democratic or not, cannot blindly guarantee liberation. There are fixtures and 
+norms, and human activity cannot be "business as usual" when liberation leaves behind it 
+null voids that make their societies cave in from the change. 
