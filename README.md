@@ -4376,7 +4376,18 @@ of both Brutus and Robert E. Lee were due to their love for their institutions, 
 their cognition was clouded to such extents to spin them round and round down the holes for 
 their defeats. Social norms are a product of the "social animal" that is the human being, 
 strived for by individuals and established through the sheer acceptance by the populace. The 
-competitive spirit of human beings help to oscillate acceptance on the matter pertaining to 
-the norm, and the actualities through the context of time by human beings are the sole body 
+competitive spirit of human beings help to oscillate acceptance on the forms pertaining to 
+the norm, and the actualities through the course of time by human beings are the sole body 
 of variables that determine what the norm is, a fixture of sorts more stable than temporary, 
-more subject than object, and artificial axiom instead of axiom. 
+more subject than object, and artificial axiom instead of axiom. All the things that have been 
+thought, dreamt of, and occurred through thorough action turn into an incomplete knowledge 
+for the minds of the present, and acceptance of this incomplete knowledge, further modified 
+through variants of retellings, then culminates into norms that treat most of the past as 
+the phenomena of specific forms, predominated in actualization by human beings' choice use 
+of artificial axioms. But there is no saying on the death of these artificial axioms, 
+metaphysical decision structures. The continuity of cultures and perspectives to continue 
+on past the individual human beings' death is quite evident, more so than the official name 
+of any empire that reigned for some hundred of years in some region of the planet. The fact 
+that there are always less novelties than anti-novelties is the effect in the physical constructs 
+that certain human beings labored for, and this fact itself hides the nuances in the forms of 
+the same artificial axiom practically diverged into specific spatiotemporal settings. 
