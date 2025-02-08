@@ -4388,16 +4388,16 @@ of artificial axioms. But there is no saying on the obsolescence of these artifi
 metaphysical decision structures. The continuity of cultures and perspectives to continue 
 on past the individual human beings' death is quite evident, more so than the official name 
 of any previous empire that reigned for some hundred of years in some region of the planet. The 
-fact that there are always less novelties than anti-novelties is the effect from the physical 
+fact that there are always less novelties than anti-novelties is the effect of the physical 
 constructs that certain human beings labored for, and this fact itself hides the nuances of 
 the forms from the same artificial axiom practically diverged into specific spatiotemporal 
-settings. Societies steadfast on maintaining norms are ones that directly intend for their 
+settings. Societies steadfast on maintaining certain norms are ones that directly intend for their 
 human subjects to be subjected to these norms, one of the primary ways to attempt persistence 
 through the possibly violent advents brought about through universal time and from changes in 
 ways of life from those others not of society. An arbitrary farmer in a village below the 
 technological norm of the great powers of nation states is limited in technological perspective and 
 may be unmotivated to technologically improve, and what debates without the material 
-can really prove their inferiority to the civilized without there being statements 
+can really prove their inferiority to civilized technocrats without there being statements 
 very much offensive to their way of life, the norms for their labor? Behind every enduring 
 norm is physical reinforcement, a result from demands to help institutionalize the rule. 
 In the context of the norm, self-interest makes the human being an actor in their personal 
