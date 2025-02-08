@@ -4372,5 +4372,6 @@ voids are indeed a part of human design of human societies, as shown by drastic 
 the character Brutus who said he "loved Caesar, but... loved Rome more" in Shakespeare's 
 Julius Caesar, sometime around his decision to help kill Caesar, and the American Civil War 
 of 1861. Both events were essentially caused by and for institutions, and perhaps the defeats 
-of both Brutus and Robert E. Lee was due to their love for their institutions, so great that 
-their love would cloud their cognition to aid in their defeats. 
+of both Brutus and Robert E. Lee were due to their love for their institutions, so great that 
+their cognition would be clouded to such extents that they would be spun round and round down 
+the holes for their defeats. 
