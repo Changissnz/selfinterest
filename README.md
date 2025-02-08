@@ -4371,4 +4371,6 @@ null voids that make their societies cave in from the change. Fear of these kind
 voids are indeed a part of human design of human societies, as shown by drastic events such as 
 the character Brutus who said he "loved Caesar, but... loved Rome more" in Shakespeare's 
 Julius Caesar, sometime around his decision to help kill Caesar, and the American Civil War 
-of 1861. Both events were essentially caused by and for institutions. 
+of 1861. Both events were essentially caused by and for institutions, and perhaps the defeats 
+of both Brutus and Robert E. Lee was due to their love for their institutions, so great that 
+their love would cloud their perspective to then aid in their defeats. 
