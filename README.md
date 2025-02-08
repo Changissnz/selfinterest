@@ -4363,7 +4363,7 @@ part of many human beings' self-interests gives it a reinforced defense against 
 those that may rely on the causes from their reasoning for why their desired effects of 
 destroying the norm is justified. In this way, human reasoning for preferred ends makes 
 all reasons questionable, which then explains why all relevant democratic nations, since 
-time immemorial, depend on institutions to thrive in the co-existence of the subjective 
+time immemorial, depend on institutions to thrive in the co-existences of subjective 
 interpretation of democracy in partial practice, and ironically, why institutions of 
 any nation, democratic or not, cannot blindly guarantee liberation. There are fixtures and 
 norms, and human activity cannot be "business as usual" when liberation leaves behind it 
