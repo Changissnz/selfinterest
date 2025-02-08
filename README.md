@@ -4365,6 +4365,6 @@ destroying the norm is justified. In this way, human reasoning for preferred end
 all reasons questionable, which then explains why all relevant democratic nations, since 
 time immemorial, depend on institutions to thrive in the co-existences of subjective 
 interpretation of democracy in partial practice, and ironically, why institutions of 
-any nation, democratic or not, cannot blindly guarantee liberation. There are fixtures and 
+any nation, democratic or not, cannot blindly guarantee liberation. There are fixtures. these 
 norms, and human activity cannot be "business as usual" when liberation leaves behind it 
 null voids that make their societies cave in from the change. 
