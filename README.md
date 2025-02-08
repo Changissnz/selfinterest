@@ -4379,4 +4379,4 @@ strived for by individuals and established through the sheer acceptance by the p
 competitive spirit of human beings help to oscillate acceptance on the matter pertaining to 
 the norm, and the actualities through the context of time by human beings are the sole body 
 that determines what the norm is, a fixture of sorts more stable than temporary, more subject 
-than object, and more artificial axiom than axiom. 
+than object, and artificial axiom instead of axiom. 
