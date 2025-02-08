@@ -4385,8 +4385,8 @@ knowledge for the minds of the present, and acceptance of this incomplete knowle
 through variants of retellings, then culminates into norms that treat most of the past as 
 the phenomena of specific forms, predominated in actualization by human beings' choice use 
 of artificial axioms. But there is no saying on the obsolescence of these artificial axioms, 
-metaphysical decision structures. The continuity of cultures and perspectives to continue 
-on past the individual human beings' death is quite evident, more so than the official name 
+metaphysical decision structures. The continuity of cultures and perspectives past the 
+individual human beings' death is quite evident, more so than the official name 
 of any previous empire that reigned for some hundred of years in some region of the planet. The 
 fact that there are always less novelties than anti-novelties is the effect of the physical 
 constructs that certain human beings labored for, and this fact itself hides the nuances of 
