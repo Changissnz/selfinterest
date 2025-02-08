@@ -4414,3 +4414,6 @@ naturally, it is never too crazy for them to have discomforting thoughts from ti
 since they the norm are responsible for the control of human competition, yet what have they 
 other than integrity and deception to compensate for their finite standing in this non-static 
 world? 
+
+## More on philosophies of self-interest #62 
+
