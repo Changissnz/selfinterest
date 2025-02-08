@@ -4388,7 +4388,7 @@ of artificial axioms. But there is no saying on the obsolescence of these artifi
 metaphysical decision structures. The continuity of cultures and perspectives to continue 
 on past the individual human beings' death is quite evident, more so than the official name 
 of any previous empire that reigned for some hundred of years in some region of the planet. The 
-fact that there are always less novelties than anti-novelties is the effect in the physical 
+fact that there are always less novelties than anti-novelties is the effect from the physical 
 constructs that certain human beings labored for, and this fact itself hides the nuances of 
 the forms from the same artificial axiom practically diverged into specific spatiotemporal 
 settings. Societies steadfast on maintaining norms are ones that directly intend for their 
