@@ -4404,8 +4404,8 @@ In the context of the norm, self-interest makes the human being an actor in thei
 circumstances, possibly an opportunist when the norms they support are what they believe is 
 most beneficial, not necessarily what would yield them the best. And for that, human beings 
 are mostly normal, despite the complementary degree of their actions for the norms surrounding 
-them of the present day. Also noteworthy to mention, the acceptance of what was believed to 
-have occurred and the norms continued or established upon those beliefs are actually a great 
+them of the present day. Also noteworthy to mention, the acceptance of what is believed to 
+have occurred and the norms continued or established upon these beliefs are actually a great 
 cause for the growth in the dark motives. For example, hatred persists, and the deliberation 
 and the opportune nature of manifesting it is a trait that distinguishes this motive from most 
 of the others. On top of the world a human being can be mentally, even socio-economically, and 
