@@ -4374,14 +4374,14 @@ Julius Caesar, sometime around his decision to help kill Caesar, and the America
 of 1861. Both events were essentially caused by and for institutions, and perhaps the defeats 
 of both Brutus and Robert E. Lee were due to their love for their institutions, so great that 
 their cognition was clouded to such extents to spin them round and round down the holes for 
-their defeats. Social norms are a product of the "social animal" that is the human being, 
-strived for by individuals and established through the sheer acceptance by the populace. The 
-competitive spirit of human beings help to oscillate acceptance on the forms pertaining to 
-the norm, and the actualities through the course of time by human beings are the sole body 
-of variables that determine what the norm is, a fixture of sorts more stable than temporary, 
-more subject than object, and artificial axiom instead of axiom. All the things that have been 
-thought, dreamt of, and occurred through thorough action turn into an incomplete knowledge 
-for the minds of the present, and acceptance of this incomplete knowledge, further modified 
+their defeats, psycho-analytically speaking. Social norms are a product of the "social animal" 
+that is the human being, strived for by individuals and established through the sheer acceptance 
+by the populace. The competitive spirit of human beings help to oscillate acceptance on the 
+forms pertaining to the norm, and the actualities through the course of time by human beings 
+are the sole body of variables that determine what the norm is, a fixture of sorts more stable 
+than temporary, more subject than object, and artificial axiom instead of axiom. All the things 
+that have been thought, dreamt of, and occurred through thorough action turn into an incomplete 
+knowledge for the minds of the present, and acceptance of this incomplete knowledge, further modified 
 through variants of retellings, then culminates into norms that treat most of the past as 
 the phenomena of specific forms, predominated in actualization by human beings' choice use 
 of artificial axioms. But there is no saying on the obsolescence of these artificial axioms, 
