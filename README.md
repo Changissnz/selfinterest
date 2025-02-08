@@ -4362,10 +4362,10 @@ practical application. A norm may be denounced, but the fact that it is a more f
 part of many human beings' self-interests gives it a reinforced defense against opponents, 
 those that may rely on the causes from their reasoning for why their desired effects of 
 defying the norm is justified. In this way, human reasoning for preferred ends makes 
-all reasons questionable, which then explains why all relevant democratic nations, since 
-time immemorial, depend on institutions to thrive in the co-existences of subjective 
+all these reasons questionable, which then explains why all relevant democratic nations, 
+since time immemorial, depend on institutions to thrive in the co-existences of subjective 
 interpretation of democracy in partial practice, and ironically, why institutions of 
-any nation, democratic or not, cannot blindly guarantee liberation. There are fixtures. these 
+any nation, democratic or not, cannot blindly guarantee liberation. There are fixtures, these 
 norms, and human activity cannot be "business as usual" when liberation leaves behind it 
 null voids that make their societies cave in from the change. Fear of these kinds of null 
 voids are indeed a part of human design of human societies, as shown by drastic events such as 
