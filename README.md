@@ -4355,3 +4355,10 @@ artificial axioms, the root is obviously self-interest. Norms are a class of art
 axioms, and although they have significance proportional to corresponding effects from their 
 representatives and proponents, they serve as effects from frequent kinds of acceptances. 
 The artificial axiom could additionally act as causes, from self-interest, for effects. 
+Artificial axioms capture the operating principles of human perception and action, in 
+the global sense all the way down to the individual. And the reason why not all artificial 
+axioms are revered as much as the typical norm is due to their contradicting choice in 
+practical application. A norm may be denounced, but the fact that it is a more frequent 
+part of many human beings' self-interests gives it a reinforced defense against opponents, 
+those that may rely on the causes from their reasoning for why their desired effects of 
+destroying the norm is justified. 
