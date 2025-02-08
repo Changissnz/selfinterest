@@ -4407,7 +4407,7 @@ are mostly normal, despite the complementary degree of their actions for the nor
 them of the present day. Also noteworthy to mention, the acceptance of what is believed to 
 have occurred and the norms continued or established upon these beliefs are actually a great 
 cause for the growth in the dark motives. For example, hatred persists, and the deliberation 
-and the opportune nature of manifesting it constitute a trait that distinguishes this motive 
+and the opportune nature of manifesting it constitute qualities that distinguish this motive 
 from most of the others. On top of the world a human being can be mentally, even socio-economically, 
 and if their position relied so much on their advantages due to the norms of their people, then 
 naturally, it is never too crazy for them to have discomforting thoughts from time to time, 
