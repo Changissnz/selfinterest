@@ -4361,4 +4361,9 @@ axioms are revered as much as the typical norm is due to their contradicting cho
 practical application. A norm may be denounced, but the fact that it is a more frequent 
 part of many human beings' self-interests gives it a reinforced defense against opponents, 
 those that may rely on the causes from their reasoning for why their desired effects of 
-destroying the norm is justified. 
+destroying the norm is justified. In this way, human reasoning for preferred ends makes 
+all reasons questionable, which then explains why all relevant democratic nations, since 
+time immemorial, depend on institutions to thrive, and ironically, why institutions of 
+democratic nations cannot guarantee liberation. There are fixtures and norms, and human 
+activity cannot be "business as usual" when liberation leaves behind it null voids that 
+make their societies cave in from the change. 
