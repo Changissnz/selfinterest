@@ -4359,7 +4359,7 @@ all the same. Artificial axioms capture the operating principles of human percep
 in the global sense all the way down to the individual. And the reason why not all artificial 
 axioms are revered as much as the typical norm is due to their contradicting choice in 
 practical application. A norm may be denounced, but the fact that it is a more frequent 
-part of many human beings' self-interests gives it a reinforced defense against opponents, 
+consideration of human beings' self-interests gives it a reinforced defense against opponents, 
 those that may rely on the causes from their reasoning for why their desired effects of 
 defying the norm is justified. In this way, human reasoning for preferred ends makes 
 all these reasons questionable, which then explains why all relevant democratic nations, 
