@@ -4459,10 +4459,10 @@ judge of character and values is pertinent: to state that a particular human bei
 more challenging than their being "innocent", for in one, there are constraints of the potential, 
 the other, the powers and structures that never showed their faces to test the supposedly "innocent". 
 The good judge of character and values does make errors, from time to time, and perhaps this 
-cannot all be due to indiscrepancies of empirical knowledge. And these errors could become 
-a category of instances for the output of a shocked "world": there was the expectation, 
-but however, these events occurred, so the "world" is now at a loss for words, ignores the 
-words from that point on received, by the assumption that the words mean something else. 
+cannot all be due to indiscrepancies of empirical knowledge. And these errors are a category 
+of instances for the output of a shocked "world": there was the expectation, but however, 
+these events occurred, so the "world" is now at a loss for words, ignores the words from 
+that point on received, by the assumption that the words mean something else. 
 "A break of trust" is an accurate phrasing for this. The practical nature of the human being 
 means that their self-interest almost instinctually resorts to wielding tools and commanding 
 respect, however those acts may be, in their spatio-temporal norms of existing. Pragmatics 
