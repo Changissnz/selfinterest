@@ -4486,8 +4486,8 @@ restricted. It is not only because choice is not always there, but also because 
 choice now given cannot possibly be taken because of the kind of receptance to the prior 
 experience, although the potential is still there; self-interest is predictable yet not, 
 something like Schrodinger's Cat. Some call this way of living a pathological life, counter 
-to the ends prescribed by some group of human beings. But that is still decision from 
-self-interest, and the metaphysical cannot be disease without the host. Why is it, when it 
+to all the ends prescribed by some group of human beings. But that is still decision from 
+self-interest, and the metaphysical cannot be disease without host. Why is it, when it 
 comes to reason, that nothing seems to be spared in the longevity of belief, practice, and 
 possession save for deception? 
 
