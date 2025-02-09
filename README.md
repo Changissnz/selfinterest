@@ -4481,7 +4481,7 @@ of what is fate from their perspective, call themselves unlucky, their self-inte
 inquisitive but accepting of what has occurred. But when self-interest feels tested past the point 
 of the test being honorable such that the administrator of the test must have an ungainly and 
 deplorable pleasure in being of that position, there is the natural tendency towards anger, so 
-that if the test is successfully passed, the result is rejection of the "prize" of what was 
+that if the test is successfully passed, the result is toward rejection of the "prize" of what was 
 restricted. It is not only because choice is not always there, but also because the specific 
 choice now given cannot possibly be taken because of the kind of receptance to the prior 
 experience, although the potential is still there; self-interest is predictable yet not, 
