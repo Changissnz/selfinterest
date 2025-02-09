@@ -4433,7 +4433,7 @@ be questions on its inclusion meaning blind sympathy for those that have had the
 experiences. There do come times in which one's reaction to the deception on possibilities 
 is so overwhelming to their cognitive faculties, they that think they did not deserve that 
 null, that they become dangerous to everyone related to that deception. And sometimes, these 
-ones get their lives cut short after some arbitrary progress in the one's adversarial pursuits. 
+ones get their lives cut short after some arbitrary progress in their adversarial pursuits. 
 The choice to abstain is always there, albeit not guaranteed to prevent unwanted consequences. 
 And there are indeed doubts on the virtues of abstaining from certain courses of action, 
 truly. These doubts are derived from notions on the so-called innermost essence of decision 
@@ -4448,7 +4448,7 @@ and these vices "autocorrected" by the swirling conservatory of vices, a kind of
 commendable if only efficiency and performance constitute the categories of qualities measured 
 for the judgment. Poverty provides an acclimation to the unfulfilled aura of living, and it is 
 the perception that the force of self-interest has found solace in the imbalance of unfulfillment, 
-labeled "acclimation", that conserve matters necessary to continue on the present state of affairs; 
+labeled "acclimation", that conserves matters necessary to continue on the present state of affairs; 
 on a related note, it is almost entirely certain that an arbitrary philanthropist voices views 
 that go somewhere along the lines of "poverty is virtue", since they are usually intent to 
 remain as one giving the capital under assumptions of the giving being good. Transformations 
@@ -4459,7 +4459,7 @@ judge of character and values is pertinent: to state that a particular human bei
 more challenging than their being "innocent", for in one, there are constraints of the potential, 
 the other, the powers and structures that never showed their faces to test the supposedly "innocent". 
 The good judge of character and values does make errors, from time to time, and perhaps this 
-cannot all be due to indiscrepancies of empirical knowledge. And these could become 
+cannot all be due to indiscrepancies of empirical knowledge. And these errors could become 
 a category of instances for the output of a shocked "world": there was the expectation, 
 but however, these events occurred, so the "world" is now at a loss for words, ignores the 
 words from that point on received, by the assumption that the words mean something else. 
