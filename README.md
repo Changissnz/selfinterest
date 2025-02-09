@@ -4374,7 +4374,7 @@ Julius Caesar, sometime around his decision to help kill Caesar, and the America
 of 1861. Both events were essentially caused by and for institutions, and perhaps the defeats 
 of both Brutus and Robert E. Lee were due to their love for their institutions, so great that 
 their cognition was clouded to such extents to spin them round and round down the holes for 
-their defeats, psycho-analytically speaking. Social norms are a product of the "social animal" 
+their defeats, psycho-analytically speaking. Social norms are a product of the "social creature" 
 that is the human being, strived for by individuals and established through the sheer acceptance 
 by the populace. The competitive spirit of human beings help to oscillate acceptance on the 
 forms pertaining to the norm, and the actualities through the course of time by human beings 
