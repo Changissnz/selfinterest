@@ -4451,4 +4451,4 @@ of self-interest has found solace in the imbalance of unfulfillment, labeled "ac
 that conserve matters necessary to continue on the present state of affairs; on a related 
 note, it is almost entirely certain that an arbitrary philanthropist voices views that 
 go somewhere along the lines of "poverty is virtue", since they are usually intent to 
-remain as one giving the capital. 
+remain as one giving the capital, under assumptions of the giving being good. 
