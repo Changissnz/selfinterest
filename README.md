@@ -4453,12 +4453,12 @@ on a related note, it is almost entirely certain that an arbitrary philanthropis
 that go somewhere along the lines of "poverty is virtue", since they are usually intent to 
 remain as one giving the capital under assumptions of the giving being good. Transformations 
 undergone by human beings, as part of the reactionary chained process that develop character 
-and values, from infantile implication, needless to say, to those notions voiced in phrases of all 
-ways for each of them. This is where the archetype of the good judge of character and values 
-is pertinent: to state that a particular human being is "good" is more challenging than their 
-being "innocent", for in one, there is the constraints for the potential, the other, the 
-powers and structures that never shown their faces to test the supposed "innocent". The 
-good judge of character and values does make errors, from time to time, and perhaps this 
+and values, from infantile implication, supposedly needless to say, to those notions voiced 
+and stood for in phrases of all ways for each of them. This is where the archetype of the good 
+judge of character and values is pertinent: to state that a particular human being is "good" is 
+more challenging than their being "innocent", for in one, there is the constraints for the potential, 
+the other, the powers and structures that never shown their faces to test the supposed "innocent". 
+The good judge of character and values does make errors, from time to time, and perhaps this 
 cannot all be due to indiscrepancies of the empirical knowledge. And these could become 
 a category of instances for the output of a shocked "world": there was the expectation, 
 but however, these events occurred, so the world is at a loss for words, ignores the 
