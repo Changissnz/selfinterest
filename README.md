@@ -4465,4 +4465,12 @@ but however, these events occurred, so the "world" is now at a loss for words, i
 words from that point on received, by the assumption that the words mean something else. 
 "A break of trust" is an accurate phrasing for this. The practical nature of the human being 
 means that their self-interest almost instinctually resorts to wielding tools and commanding 
-respect, however those acts may be, in their spatio-temporal norms of existing. 
+respect, however those acts may be, in their spatio-temporal norms of existing. Pragmatics 
+becomes routine, routine becomes maintenance, and maintenance becomes corrosive dread. The 
+statement assumes all else in the temporal course is equal, which would be difficult if not 
+for steadfast intention from self-interest in support of the specified machination. Why 
+must the choice be there? The question supposes that rule will always be considered for 
+choice on any matter. If there are rules to prohibit, self-interest is probably predisposed 
+towards the outlets the rule guards against. A matter of trust, or maybe morality, for there 
+to have to be rules declared to restructure original decision-making towards wanted decisions. 
+
