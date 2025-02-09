@@ -4419,7 +4419,7 @@ world?
 
 It can be stated, with confidence of such resonance to be insult, that every instance of 
 self-interest will come across decision junctions, time to time, that are nothing short 
-of their being deceived into thinking that there is decision, instead the available options 
+of their host being deceived into thinking that there is decision, instead the available options 
 of the classic single route and single mind, two options as two equal solutions, and all 
 the other formats thought to be possible might just be there to lead to disappointment 
 through betrayal or will-taking pacification. When these possibilities, of the 
