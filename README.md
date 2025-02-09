@@ -4483,10 +4483,10 @@ of the test being honorable such that the administrator of the test must have an
 deplorable pleasure in being of that position, there is the natural tendency towards anger, even 
 when the test is successfully passed that then results in rejection of the "prize" of what was 
 restricted. It is not only because choice is not always there, but also because the specific 
-choice now given cannot possibly be taken because of the experience, although the potential 
-is still there; self-interest is predictable yet not, something like Schrodinger's Cat. Some 
-call this way of living a pathological life, counter to the ends prescribed by some group of 
-human beings. But that is still decision from self-interest, and the metaphysical cannot be 
-diseased. 
+choice now given cannot possibly be taken because of the kind of receptance to the prior 
+experience, although the potential is still there; self-interest is predictable yet not, 
+something like Schrodinger's Cat. Some call this way of living a pathological life, counter 
+to the ends prescribed by some group of human beings. But that is still decision from 
+self-interest, and the metaphysical cannot be diseased. 
 
 ## More on philosophies of self-interest #63 
