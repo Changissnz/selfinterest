@@ -4430,4 +4430,7 @@ without present results is retracted, and with the retraction, comes a re-evalua
 still left that can only occur when one's will is not at terms with one directionality. 
 If only this writing contained a poem to elucidate on this kind of phenomenon, there would 
 be questions on its inclusion meaning blind sympathy for those that have had these 
-experiences. 
+experiences. There do come times in which one's reaction to the deception on possibilities 
+is so overwhelming to their cognitive faculties, they that think they did not deserve that 
+null, that they become dangerous to everyone related to that deception. And sometimes, these 
+ones get their lives cut short after some arbitrary progress in their adversarial pursuits. 
