@@ -4471,6 +4471,5 @@ statement assumes all else in the temporal course is equal, which would be diffi
 for steadfast intention from self-interest in support of the specified machination. Why 
 must the choice be there? The question supposes that rule will always be considered for 
 choice on any matter. If there are rules to prohibit, self-interest is probably predisposed 
-towards the outlets the rule guards against. A matter of trust, or maybe morality, for there 
-to have to be rules declared to restructure original decision-making towards wanted decisions. 
-
+towards the outlets the rule guards against. A question of trust for there to have to be 
+artificial axioms declared to restructure original decision-making towards wanted decisions. 
