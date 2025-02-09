@@ -4441,9 +4441,9 @@ chains declared to be representative of virtue. Another source of derivation for
 notions is the perceived gains and losses, financially and otherwise, from said decision 
 chains. Many will say poverty is a virtue, due to those in poverty not partaking in excesses 
 especially of material and privilege. Poverty of the mind cannot be virtuous, ever, because 
-not only is it a scant and almost meaningless base of knowledge, it is also not naive due 
-to personal experience and there is willful need to keep that quality of knowledge intact, 
-perhaps to exacerbate faults that cannot be correct so long as the faults transform into vices, 
+not only is it a scant and almost meaningless base of knowledge, the mind is also not naive 
+due to personal experience, and there is willful need to keep that quality of knowledge intact, 
+to exacerbate faults that cannot be corrected so long as the faults transform into vices, 
 and these vices "autocorrected" by the swirling conservatory of vices, a kind of clockwork 
 commendable if only efficiency and performance constitute the categories of qualities measured 
 for the judgment. Poverty provides an acclimation to the unfulfilled aura of living, and it is 
