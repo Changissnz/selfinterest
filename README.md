@@ -4475,7 +4475,7 @@ towards the outlets the rule guards against. A question of trust for there to ha
 artificial axioms declared to restructure original decision-making towards wanted decisions. 
 How man would rather understand a human being to cripple or kill them at a decided time, and 
 woman rather share in responsibility and provide certain things for them so as to deprive and 
-rob them at decided times, instead of being free from and with the human being is simply due to 
+rob them at decided times, instead of being free from and with the human being are simply due to 
 the pragmatics of control through connectivity. When noble minds, after undergoing misfortune 
 of what is fate from their perspective, call themselves unlucky, their self-interests are not 
 inquisitive but accepting of what has occurred. But when self-interest feels tested past the point 
