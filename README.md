@@ -4434,3 +4434,9 @@ experiences. There do come times in which one's reaction to the deception on pos
 is so overwhelming to their cognitive faculties, they that think they did not deserve that 
 null, that they become dangerous to everyone related to that deception. And sometimes, these 
 ones get their lives cut short after some arbitrary progress in their adversarial pursuits. 
+The choice to abstain is always there, albeit not guaranteed to prevent unwanted consequences. 
+And there are indeed doubts on the virtues of abstaining from certain courses of action, 
+truly. These doubts are derived from notions on the so-called innermost essence of decision 
+chains declared to be representative of virtue. Another source of derivation for these 
+notions is the perceived gains and losses, financially and otherwise, from said decision 
+chains. 
