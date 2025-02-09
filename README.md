@@ -4450,4 +4450,5 @@ acclimation to the unfulfilled aura of living, and it is the perception that the
 of self-interest has found solace in the imbalance of unfulfillment, labeled "acclimation", 
 that conserve matters necessary to continue on the present state of affairs; on a related 
 note, it is almost entirely certain that an arbitrary philanthropist voices views that 
-go somewhere along the lines of "poverty is virtue". 
+go somewhere along the lines of "poverty is virtue", since they are usually intent to 
+remain as one giving the capital. 
