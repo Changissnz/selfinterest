@@ -4473,3 +4473,7 @@ must the choice be there? The question supposes that rule will always be conside
 choice on any matter. If there are rules to prohibit, self-interest is probably predisposed 
 towards the outlets the rule guards against. A question of trust for there to have to be 
 artificial axioms declared to restructure original decision-making towards wanted decisions. 
+How man would rather understand a human being to cripple or kill them at a decided time, and 
+woman rather share in responsibility and provide certain things for them so as to rob and 
+deprive them at a decided time, instead of being free from the human being is simply due to 
+the pragmatics of control through connectivity. 
