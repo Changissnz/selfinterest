@@ -4461,6 +4461,6 @@ the other, the powers and structures that never shown their faces to test the su
 The good judge of character and values does make errors, from time to time, and perhaps this 
 cannot all be due to indiscrepancies of the empirical knowledge. And these could become 
 a category of instances for the output of a shocked "world": there was the expectation, 
-but however, these events occurred, so the world is at a loss for words, ignores the 
+but however, these events occurred, so the "world" is at a loss for words, ignores the 
 words from that point on received, by the assumption that the words mean something else. 
 "A break of trust" is an accurate phrasing for this. 
