@@ -4442,7 +4442,7 @@ notions is the perceived gains and losses, financially and otherwise, from said 
 chains. Many will say poverty is a virtue, due to those in poverty not partaking in excesses 
 especially of material and privilege. Poverty of the mind cannot be virtuous, ever, because 
 not only is it a scant and almost meaningless base of knowledge, the mind is also not naive 
-due to personal experience, and there is willful need to keep that quality of knowledge intact, 
+due to personal experience, and there is willful need to keep that quality of knowledge intact 
 to exacerbate faults that cannot be corrected so long as the faults transform into vices, 
 and these vices "autocorrected" by the swirling conservatory of vices, a kind of clockwork 
 commendable if only efficiency and performance constitute the categories of qualities measured 
