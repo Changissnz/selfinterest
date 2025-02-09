@@ -4433,7 +4433,7 @@ be questions on its inclusion meaning blind sympathy for those that have had the
 experiences. There do come times in which one's reaction to the deception on possibilities 
 is so overwhelming to their cognitive faculties, they that think they did not deserve that 
 null, that they become dangerous to everyone related to that deception. And sometimes, these 
-ones get their lives cut short after some arbitrary progress in their adversarial pursuits. 
+ones get their lives cut short after some arbitrary progress in the one's adversarial pursuits. 
 The choice to abstain is always there, albeit not guaranteed to prevent unwanted consequences. 
 And there are indeed doubts on the virtues of abstaining from certain courses of action, 
 truly. These doubts are derived from notions on the so-called innermost essence of decision 
@@ -4457,7 +4457,7 @@ and values, from infantile implication, supposedly needless to say, to those not
 and stood for in phrases of all ways for each of them. This is where the archetype of the good 
 judge of character and values is pertinent: to state that a particular human being is "good" is 
 more challenging than their being "innocent", for in one, there are constraints of the potential, 
-the other, the powers and structures that never shown their faces to test the supposedly "innocent". 
+the other, the powers and structures that never showed their faces to test the supposedly "innocent". 
 The good judge of character and values does make errors, from time to time, and perhaps this 
 cannot all be due to indiscrepancies of empirical knowledge. And these could become 
 a category of instances for the output of a shocked "world": there was the expectation, 
