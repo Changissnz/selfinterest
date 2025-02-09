@@ -4474,6 +4474,18 @@ choice on any matter. If there are rules to prohibit, self-interest is probably 
 towards the outlets the rule guards against. A question of trust for there to have to be 
 artificial axioms declared to restructure original decision-making towards wanted decisions. 
 How man would rather understand a human being to cripple or kill them at a decided time, and 
-woman rather share in responsibility and provide certain things for them so as to rob and 
-deprive them at a decided time, instead of being free from the human being is simply due to 
-the pragmatics of control through connectivity. 
+woman rather share in responsibility and provide certain things for them so as to deprive and 
+rob them at decided times, instead of being free from and with the human being is simply due to 
+the pragmatics of control through connectivity. Whereas noble minds, after undergoing misfortune 
+of what is fate from their perspective, calls themself unlucky, their self-interest not inquisitive 
+but accepting of what has occurred, but when self-interest feels tested past the point of the 
+test being honorable such that the administrator of the test must take an ungainly and deplorable 
+pleasure in being of that position, there is the natural tendency towards anger, even when the 
+test is successfully passed that then results in rejection of the "prize" of what was restricted. 
+It is not only because choice is not always there, but also because the specific choice now given 
+cannot possibly be taken because of the experience, although the potential is still there; self-interest 
+is predictable yet not, like Schrodinger's Cat. Some call this way of living a pathological life, 
+counter to the ends prescribed by some group of human beings. But that is still decision from 
+self-interest, and the metaphysical cannot be diseased. 
+
+## More on philosophies of self-interest #63 
