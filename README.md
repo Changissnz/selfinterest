@@ -4456,7 +4456,7 @@ undergone by human beings, as part of the reactionary chained process that devel
 and values, from infantile implication, supposedly needless to say, to those notions voiced 
 and stood for in phrases of all ways for each of them. This is where the archetype of the good 
 judge of character and values is pertinent: to state that a particular human being is "good" is 
-more challenging than their being "innocent", for in one, there are the constraints for the potential, 
+more challenging than their being "innocent", for in one, there are constraints of the potential, 
 the other, the powers and structures that never shown their faces to test the supposed "innocent". 
 The good judge of character and values does make errors, from time to time, and perhaps this 
 cannot all be due to indiscrepancies of the empirical knowledge. And these could become 
