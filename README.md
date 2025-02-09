@@ -4417,3 +4417,16 @@ world?
 
 ## More on philosophies of self-interest #62 
 
+It can be stated, with confidence of such resonance to be insult, that every instance of 
+self-interest will come across decision junctions, time to time, that are nothing short 
+of their being deceived into thinking that there is decision, instead the available options 
+of the classic single route and single mind, two options as two equal solutions, and all 
+the other formats thought to be possible might just be there to lead to disappointment 
+through betrayal or a will-breaking pacification. When these possibilities, not of the 
+believed choice buttressed by nothing supportive, are entertained, already there are 
+restructurizations of self-interest by the will's typically haywire re-calibration of 
+its directionality, since such choice entertained to yield anticipatory happiness without 
+present results is retracted, and with the retraction, comes a re-evaluation of what is 
+still left. If only this writing contained a poem to elucidate on this kind of phenomenon, 
+there would be questions that such inclusion means a sympathy for those that have had 
+these experiences. 
