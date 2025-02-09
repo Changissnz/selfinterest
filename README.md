@@ -4441,14 +4441,14 @@ chains declared to be representative of virtue. Another source of derivation for
 notions is the perceived gains and losses, financially and otherwise, from said decision 
 chains. Many will say poverty is a virtue, due to those in poverty not partaking in excesses 
 especially of material and privilege. Poverty of the mind cannot be virtuous, ever, because 
-not only is it a scant and almost meaningless base of knowledge, there is willful need to 
-keep that quality of knowledge intact, perhaps to exacerbate faults that cannot be correct 
-so long as the faults transform into vices, and these vices "autocorrected" by the swirling 
-conservatory of vices, a kind of clockwork commendable if only efficiency and performance 
-constitute the categories of qualities measured for the judgment. Poverty provides an 
-acclimation to the unfulfilled aura of living, and it is the perception that the force 
-of self-interest has found solace in the imbalance of unfulfillment, labeled "acclimation", 
-that conserve matters necessary to continue on the present state of affairs; on a related 
-note, it is almost entirely certain that an arbitrary philanthropist voices views that 
-go somewhere along the lines of "poverty is virtue", since they are usually intent to 
+not only is it a scant and almost meaningless base of knowledge, it is also not naive due 
+to personal experience and there is willful need to keep that quality of knowledge intact, 
+perhaps to exacerbate faults that cannot be correct so long as the faults transform into vices, 
+and these vices "autocorrected" by the swirling conservatory of vices, a kind of clockwork 
+commendable if only efficiency and performance constitute the categories of qualities measured 
+for the judgment. Poverty provides an acclimation to the unfulfilled aura of living, and it is 
+the perception that the force of self-interest has found solace in the imbalance of unfulfillment, 
+labeled "acclimation", that conserve matters necessary to continue on the present state of affairs; 
+on a related note, it is almost entirely certain that an arbitrary philanthropist voices views 
+that go somewhere along the lines of "poverty is virtue", since they are usually intent to 
 remain as one giving the capital under assumptions of the giving being good. 
