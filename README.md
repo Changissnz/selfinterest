@@ -4429,5 +4429,5 @@ its directionality, since such believed choice entertained to yield anticipatory
 without present results is retracted, and with the retraction, comes a re-evaluation of what is 
 still left that can only occur when one's will is not at terms with one directionality. 
 If only this writing contained a poem to elucidate on this kind of phenomenon, there would 
-be questions on it that such inclusion means a blind sympathy for those that have had these 
+be questions on its inclusion meaning blind sympathy for those that have had these 
 experiences. 
