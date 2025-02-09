@@ -4422,7 +4422,7 @@ self-interest will come across decision junctions, time to time, that are nothin
 of their being deceived into thinking that there is decision, instead the available options 
 of the classic single route and single mind, two options as two equal solutions, and all 
 the other formats thought to be possible might just be there to lead to disappointment 
-through betrayal or will-taking pacification. When these possibilities, not of the 
+through betrayal or will-taking pacification. When these possibilities, of the 
 believed choice buttressed by nothing supportive, are entertained, already there are 
 restructurizations of self-interest from the will's typically haywire re-calibration of 
 its directionality, since such believed choice entertained to yield anticipatory happiness 
