@@ -4425,8 +4425,8 @@ the other formats thought to be possible might just be there to lead to disappoi
 through betrayal or will-taking pacification. When these possibilities, not of the 
 believed choice buttressed by nothing supportive, are entertained, already there are 
 restructurizations of self-interest from the will's typically haywire re-calibration of 
-its directionality, since such choice entertained to yield anticipatory happiness without 
-present results is retracted, and with the retraction, comes a re-evaluation of what is 
+its directionality, since such believed choice entertained to yield anticipatory happiness 
+without present results is retracted, and with the retraction, comes a re-evaluation of what is 
 still left that can only occur when one's will is not at terms with one directionality. 
 If only this writing contained a poem to elucidate on this kind of phenomenon, there would 
 be questions on it that such inclusion means a blind sympathy for those that have had these 
