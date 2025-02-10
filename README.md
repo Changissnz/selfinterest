@@ -4452,7 +4452,7 @@ labeled "acclimation", that conserves matters necessary to continue on the prese
 on a related note, it is almost entirely certain that an arbitrary philanthropist voices views 
 that go somewhere along the lines of "poverty is virtue", since they are usually intent to 
 remain as one giving the capital under assumptions of the giving being good. Transformations 
-undergone by human beings, as part of the reactionary chained process that develop character 
+undergone by human beings, as part of the reactionary chained process that develops character 
 and values, from infantile implication, supposedly needless to say, to those notions voiced 
 and stood for in phrases of all ways for each of them. This is where the archetype of the good 
 judge of character and values is pertinent: to state that a particular human being is "good" is 
