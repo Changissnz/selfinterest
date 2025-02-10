@@ -4493,3 +4493,9 @@ possession save for deception?
 
 ## More on philosophies of self-interest #63 
 
+The "foederati", "phoiderati", and the "symmachoi" of Ancient Rome are 
+modern-day terms used to describe the systems of alliances that dominated 
+the ancient industrial complex of military and protectionist campaigns, waged 
+by groups of different backgrounds, structured into armies and other organizations 
+for common purposes, intended by the Roman government to always revolve around 
+Ancient Rome. 
