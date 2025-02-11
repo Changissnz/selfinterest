@@ -4495,7 +4495,7 @@ possession save for deception?
 
 The "foederati", "phoiderati", and "symmachoi" of Ancient Rome are modern-day terms 
 used to describe the groups comprising the systems of alliances that dominated, to certain 
-degrees, the ancient industrial complex of military and protectionist campaigns, waged by 
+degrees, an ancient industrial complex of military and protectionist campaigns, waged by 
 groups of different backgrounds, structured into armies and other organizations for common 
 purposes, intended by the pinnacle of Ancient Roman government to always revolve around their 
 good of Ancient Rome. Within these terms contain meanings of alliances forged for practicality, 
