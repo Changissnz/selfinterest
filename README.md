@@ -4498,3 +4498,7 @@ used to describe the groups comprising the systems of alliances that dominated t
 ancient industrial complex of military and protectionist campaigns, waged by groups of 
 different backgrounds, structured into armies and other organizations for common purposes, 
 intended by the Roman government to always revolve around the good of Ancient Rome. 
+Within these terms contain meanings of alliances forged for practicality, all the while 
+retaining a difference by use of barriers of sorts, "foe", "phoi" as possibly foil, and 
+"symma" as possibly simulate and/or symmetry, in other words, mocking, imitating, in the 
+image for, and a rightful balance. 
