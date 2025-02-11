@@ -4501,4 +4501,4 @@ intended by the pinnacle of Roman government to always revolve around their good
 Rome. Within these terms contain meanings of alliances forged for practicality, all the 
 while retaining a difference by use of barriers of sorts, "foe", "phoi" as possibly foil, 
 and "symma" as possibly simulate and/or symmetry, in other words, mocking, imitating, in 
-the image for, and be a rightful balance. 
+the image for, and be a rightful balance with. 
