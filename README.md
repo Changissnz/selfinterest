@@ -4515,9 +4515,9 @@ progress strictly of forms and utility, partially due to greater understanding o
 law. Questions posed against the value of development, the constructionist aspect of progress, are 
 convincing enough when they make mention of this truth underneath: axioms of natural law cannot 
 change in existence but in effecting phenomena. So there are phenomena and existences of forms 
-that is input for perception, and perception recognizes, in belief, eventualities and certainties that are 
-to be. Processes to recognize particular phenomena as "human conflict" are themselves part of the 
-problem. A starving man is different from both a broken man and a decapitated man, for one. The 
+that become input for perception, and perception recognizes, in belief, eventualities and certainties 
+that are to be. Processes to recognize particular phenomena as "human conflict" are themselves part 
+of the problem. A starving man is different from both a broken man and a decapitated man, for one. The 
 acclimative quality of self-interest in the context of economic wrongdoings, specifically that of 
 finances and resources, possibly complicated in understanding by discrepancies in informatic 
 representation, is why valuation systems serve dual purposes, one being silent killers or at least, 
@@ -4574,7 +4574,7 @@ self-interest can take as truth to combat those biases. This could mean assuming
 without personal experience with them, believing that there is no political or cultural structure at 
 play that demands cooperation from the individual, and ultimately, not falling into the behaviorial 
 trap of relying on generalities, first and foremost, to act in the way of specifics (bottom-up instead 
-of top-down). What a world this could be, to be able to let go of those notions that are more than h
+of top-down). What a world this could be, to be able to let go of those notions that are more than 
 half-truths, by empirical measures, because operating by metaphorically leaping off of 
 those notions would sometimes skew towards the results that enforce what is to be by what occurred. 
 Any individual's self-interest has economical problems to solve, and the power of the "common cause" 
