@@ -4505,8 +4505,7 @@ in the image for, and be a rightful balance with. The terms are Ancient Roman-ce
 their significance can be reconfigured to terms not of nationalist or imperialist affiliation. 
 Alliances. The forms of what they meant back then during Ancient Rome and what they are meaning 
 in the context of today, the earlier half of the 21st century, are surely different. This happens to 
-be so due in great part to long-range communications technology. Systems of alliances are implemented 
-by sentient will, and the principles pertaining to these systems are artificial axioms, first and 
-foremost. The means may be different today. For example, the artificial axiom of "common courtesy" 
-is acted on by artificial axiom subtypes such as "conduct common courtesy over long-range communications 
-application". 
+be so due in great part to long-range communications technology. Efforts from sentient will go toward 
+implementing systems of alliances, and the principles pertaining to these systems are artificial axioms, 
+first and foremost. The means may be different today. For example, the artificial axiom of "common 
+courtesy" is acted on by artificial axiom subtypes such as "conduct common courtesy over long-range communications application". 
