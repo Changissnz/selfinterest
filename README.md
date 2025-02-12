@@ -4584,4 +4584,7 @@ common cause. Objectives tend to be required to be short-termed rather than long
 results are in demand, time is critical, and the results have to mean something satisfying for those 
 that are in need of the results. Common causes elevate the priority of labor and performance in 
 coalition, and surely, there must be more outside of every common cause shared by different peoples 
-in order for those alliances of perceptible positive meaning to persist. 
+in order for those alliances of perceptible positive meaning to persist. There are arguments that 
+posit self-interest to be a force that can be understood purely in terms of external and perceptible 
+effects. So long as self-interest is pre-occupied, and content with that way of existing in its host, 
+motive need not be observed. 
