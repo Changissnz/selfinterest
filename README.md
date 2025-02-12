@@ -4532,7 +4532,7 @@ worse; these circumstances could get worse for one if one were to "break rank" f
 Another truth is that one cannot find happiness in living in the present, a present rife with 
 underachievement and inadequacy, then there is no reason except for the spirit for why any 
 endeavor would be able to solve those issues. On this second truth, the consequences of obeying 
-it have a relation with the social standing of the individual or organization. A second statement 
+it are related to the social standing of the individual or organization. A second statement 
 on this truth is that boredom is a sin, primarily because the state of existence is in mismatch 
 with the motive, although variably comparable with sins of pro-action when those efforts can be 
 misguided for some long-running scheme of malice. 
