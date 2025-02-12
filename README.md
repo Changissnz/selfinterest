@@ -4502,4 +4502,7 @@ good of Ancient Rome. Within these terms contain meanings of alliances forged fo
 all the while retaining a difference by use of barriers of sorts, "foe", "phoi" as possibly 
 foil, and "symma" as possibly simulate and/or symmetry, in other words, mocking, imitating, 
 in the image for, and be a rightful balance with. The terms are Ancient Roman-centric. However, 
-their significance can be reconfigured in terms not of nationalist or imperialist affiliation. 
+their significance can be reconfigured to terms not of nationalist or imperialist affiliation. 
+Alliances. The forms of what they meant back then during Ancient Rome and what they mean in 
+the context of the earlier half of the 21st century are surely different. This happens to be 
+so due in great part to long-range communications technology. 
