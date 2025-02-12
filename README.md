@@ -4589,7 +4589,7 @@ this by studying the frequent relation between individuals' occupations and thei
 economy fails the individual, or perhaps the individual is a failure in their region's economy, the 
 individual still has heritage or something; this is a partial thesis on why immigrant groups tend 
 to organize in their new host country by something along the lines of their original heritage, for 
-there was the common cause for their specific suffering that united them to such lengths as to 
+there was the shared common cause for their specific suffering that united them to such lengths as to 
 convince them to settle in lands elsewhere. There are arguments that posit self-interest as a force 
 that can be understood purely in terms of external and perceptible effects. And so long as self-interest 
 is pre-occupied, and content with that way of existing in its host, motive need not be observed except 
