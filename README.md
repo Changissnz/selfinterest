@@ -4503,17 +4503,18 @@ all the while retaining a difference by use of barriers of sorts, "foe", "phoi" 
 foil, and "symma" as possibly simulate and/or symmetry, in other words, mocking, imitating, 
 in the image for, and be a rightful balance with. The terms are Ancient Roman-centric. However, 
 their significance can be reconfigured to terms not of nationalist or imperialist affiliation. 
-Alliances. The forms of what they meant back then during Ancient Rome and what they are meaning 
-in the context of today, the earlier half of the 21st century, are surely different. This happens to 
-be so due in great part to long-range communications technology. Efforts from sentient will go toward 
-implementing systems of alliances, and the principles pertaining to these systems are artificial axioms, 
-first and foremost. The means may be different today. For example, the artificial axiom of "common 
-courtesy" takes effect by use of artificial axiom subtypes such as "conduct common courtesy over 
-long-range communications application". Axioms of natural law cannot be altered through the course 
-of time. The progress that has occurred within the last two thousand years may just be the progress 
-strictly of forms and utility, partially due to greater understanding of axioms of natural law. 
-Questions posed against the value of development, the constructionist aspect of progress, are 
+Alliances. The perceptible forms of what they meant back then during Ancient Rome and what they are 
+meaning in the context of today, the earlier half of the 21st century, are surely different. This 
+happens to be so due in great part to long-range communications technology. Efforts from sentient will 
+go toward implementing systems of alliances, and the principles pertaining to these systems are 
+artificial axioms, first and foremost. The means may be different today. For example, the artificial 
+axiom of "common courtesy" takes effect by use of artificial axiom subtypes such as "conduct common 
+courtesy over long-range communications application". Axioms of natural law cannot be altered through 
+the course of time. The progress that has occurred within the last two thousand years may just be 
+progress strictly of forms and utility, partially due to greater understanding of axioms of natural 
+law. Questions posed against the value of development, the constructionist aspect of progress, are 
 convincing enough when they make mention of this truth underneath: axioms of natural law cannot 
 change in existence but in effecting phenomenon. So there are phenomena and existence of forms 
-to produce perception that recognizes, in belief, eventualities and certainties that are to be. 
-Processes to recognize particular phenomena as "human conflict" are themselves part of the problem. 
+to produce perception, and perception recognizes, in belief, eventualities and certainties that are 
+to be. Processes to recognize particular phenomena as "human conflict" are themselves part of the 
+problem. 
