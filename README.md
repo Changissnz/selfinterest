@@ -4556,8 +4556,8 @@ in principle. Political rule as a solution for diversified individual identities
 to centralize can result in repression of the individual, and also, inefficiency due to connections 
 weakened by the obligations of the political over those they assume are constantly their subjects. 
 The means that human beings take to coalesce into organizations as official as the nation-state and 
-the state are important in understanding how empire, as a concept, cannot be equal in practice, 
-although since human beings think, decide, and act mainly by use of artificial axioms rather than 
+the state are important in understanding how empire, as a concept, cannot be comparatively equal in 
+practice, although since human beings think, decide, and act mainly by use of artificial axioms rather than 
 unthinking impulse, and these artificial axioms frequently instantiating the same axioms of natural law, 
 the commonalities that plague empire are quite evident by the resource constraints, resource distribution 
 problems, and recognition of political authority, that which plays pivotal roles in determining what 
