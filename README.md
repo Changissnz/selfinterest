@@ -4541,4 +4541,5 @@ with an other. People from many walks of life co-existed in the power structure 
 and undoubtedly disputed with one another in contexts of familial politics, tribal affiliation, and 
 commerce. Systems of alliances pre-occupied the subjects and vassals of Ancient Rome, and must 
 have been implemented with intention of both subject and ruler to not have to see eye to eye with 
-those personally viewed as despicable. 
+those personally viewed as despicable. The statement is a reasonable hypothesis for explaining the 
+longevity of Ancient Rome, from republic to empire to supplantation by its eastern sibling. 
