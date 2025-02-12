@@ -4554,4 +4554,4 @@ employ the children of the peoples it defeated during its expansion. One issue w
 on problems that plagued expansionist states is that all of the problems are virtually identical, 
 in principle. Political rule as a solution for diversified individual identities, such that attempts 
 to centralize can result in repression of the individual and inefficiency through connections 
-weakened by the obligations of the political over what they assume is constantly their subject. 
+weakened by the obligations of the political over those they assume are constantly their subjects. 
