@@ -4526,13 +4526,13 @@ valuable lesson: in some circumstances, allies that are not inward offendors hav
 political value than friends that cannot let go. The physical peace that economies, alongside such 
 things as civics, usher into human societies and prolong are difficult to gauge outside of empirical 
 measures that include production, trade, occupation. This difficulty has to do with the subjectivity 
-of judging human behavior and co-existing with human cultures. And the acclimative quality of 
+in judging human behavior and co-existing with human cultures. And the acclimative quality of 
 self-interest implies a few prevailing truths in the economic context. Circumstances could always get 
 worse; these circumstances could get worse for one if one were to "break rank" from their duties. 
-Another truth is that one cannot find happiness in living in the present, a present rife with 
-underachievement and inadequacy, then there is no reason except for the spirit for why any 
-endeavor would be able to solve those issues. On this second truth, the consequences of obeying 
-it are related to the social standing of the individual or organization. A second statement 
+Another truth is that if one cannot find happiness in living in their present rife with underachievement 
+and inadequacy, then there is no reason except for the spirit for why any endeavor would be able 
+to solve those issues. On this second truth, the consequences of endeavoring are related to the 
+individual's relation with their involvement in various spheres of influences. A second statement 
 on this truth is that boredom is a sin, primarily because the state of existence is in mismatch 
 with the motive, although variably comparable with sins of pro-action when those efforts can be 
 misguided for some long-running scheme of malice. 
