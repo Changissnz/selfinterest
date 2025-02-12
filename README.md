@@ -4532,7 +4532,13 @@ worse; these circumstances could get worse for one if one were to "break rank" f
 Another truth is that if one cannot find happiness in living in their present rife with underachievement 
 and inadequacy, then there is no reason except for the spirit for why any endeavor would be able 
 to solve those issues. On this second truth, the consequences of endeavoring are related to the 
-individual's relation with their involvement in various spheres of influences. A second statement 
-on this truth is that boredom is a sin, primarily because the state of existence is in mismatch 
-with the motive, although variably comparable with sins of pro-action when those efforts can be 
-misguided for some long-running scheme of malice. 
+individual's involvement in various spheres of influences. A second statement on this truth is 
+that boredom is a sin, primarily because the state of existence is in mismatch with the motive, 
+although variably comparable with sins of pro-action when those efforts can be misguided for some 
+long-running scheme of malice. Ancient Rome, as with many imperial entities, saw systems of alliances 
+as solutions for various problems, obviously, and one category of problem is the seeing eye to eye 
+with an other. People from many walks of life co-existed in the power structure of Ancient Rome, 
+and undoubtedly disputed with one another in contexts of familial politics, tribal affiliation, and 
+commerce. Systems of alliances pre-occupied the subjects and vassals of Ancient Rome, and must 
+have been implemented with intention of both subject and ruler to not have to see eye to eye with 
+those personally viewed as despicable. 
