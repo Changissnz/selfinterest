@@ -4579,7 +4579,7 @@ more than half-truths, by empirical measures, because operating by metaphoricall
 those notions would sometimes skew towards the results that reinforce what is to be by what occurred. 
 Any individual's self-interest has economical problems to solve, and the power of the "common cause" 
 that is organized into shared objective by many human beings is a typical route for letting go of 
-differences. This is practical, but its longevity is entirely about the practice of the stated 
+differences. This is practical, but its longevity is centered around the practice of the stated 
 common cause. Objectives tend to be required to be short-termed rather than long-termed, since the 
 results are in demand, time is critical, and the results have to mean something satisfying for those 
 that are in need of the results. Common causes elevate the priority of labor and performance in 
@@ -4587,4 +4587,4 @@ coalition, and surely, there must be more outside of every common cause shared b
 in order for those alliances of perceptible positive meaning to persist. There are arguments that 
 posit self-interest to be a force that can be understood purely in terms of external and perceptible 
 effects. So long as self-interest is pre-occupied, and content with that way of existing in its host, 
-motive need not be observed. 
+motive need not be observed except out of question by an other. 
