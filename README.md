@@ -4553,5 +4553,19 @@ issues: its bureaucracy became inefficient from managing vast territories, havin
 employ the children of the peoples it defeated during its expansion. One issue with discussions 
 on problems that plagued expansionist states is that all of the problems are virtually identical, 
 in principle. Political rule as a solution for diversified individual identities, such that attempts 
-to centralize can result in repression of the individual and inefficiency through connections 
+to centralize can result in repression of the individual, and also, inefficiency due to connections 
 weakened by the obligations of the political over those they assume are constantly their subjects. 
+The means that human beings take to coalesce into organizations as official as the nation-state and 
+the state are important in understanding how empire, as a concept, cannot be equal in practice, 
+although because human beings think, decide, and act by use of artificial axioms rather than impulse, 
+and these artificial axioms frequently instantiating axioms of natural law, the commonalities that 
+plague empire are quite evident by the resource constraints, resource distribution problems, and 
+recognition of political authority, that which play pivotal roles in determining what artificial 
+axioms specific human beings are granted. Human connection is not innately integrationist, and this 
+is not always due to self-interest being averted to continual growth of connecting with different 
+human beings. The gains of some victories are easier to elongate in duration than those of other 
+kinds of victories. A victory by those of legacy continues the legacy, and before that victory, 
+there is typically a pronounced degree of support for the legacy in battling the issues. A victory 
+achieved by alien or unfair means is always assumed, to some extent, to be received with contempt 
+from the originals that have lost in the new game. Perhaps the idea of a world definition-less, by 
+default, with respect to some matters is the closest thing self-interest can take as truth. 
