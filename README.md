@@ -4525,13 +4525,13 @@ silent strikers before the easy kill. Studies of Ancient Roman geopolitics offer
 valuable lesson: in some circumstances, allies that are not inward offendors have more social and 
 political value than friends that cannot let go. The physical peace that economies, alongside such 
 things as civics, usher into human societies and prolong are difficult to gauge outside of empirical 
-measures that include production, trade, occupation. This difficulty has to do with the subjectivity 
+measures that include production, trade, and occupation. This difficulty has to do with the subjectivity 
 in judging human behavior and co-existing with human cultures. And the acclimative quality of 
 self-interest implies a few prevailing truths in the economic context. Circumstances could always get 
 worse; these circumstances could get worse for one if one were to "break rank" from their duties. 
 Another truth is that if one cannot find happiness in living in their present rife with underachievement 
 and inadequacy, then there is no reason except for the spirit for why any endeavor would be able 
-to solve those issues. On this second truth, the consequences of endeavoring are related to the 
+to solve those issues. On this second truth, the consequences of specific endeavors are related to the 
 individual's involvement in various spheres of influences. A second statement on this truth is 
 that boredom is a sin, primarily because the state of existence is in mismatch with the motive, 
 although variably comparable with sins of pro-action when those efforts can be misguided for some 
@@ -4541,7 +4541,7 @@ with an other. People from many walks of life co-existed in the power structure 
 and undoubtedly disputed with one another in contexts of familial politics, tribal affiliation, and 
 commerce. Systems of alliances pre-occupied the subjects and vassals of Ancient Rome, and must 
 have been implemented with intention from both subject and ruler to not have to see eye to eye with 
-those personally viewed as despicable. The statement is a reasonable hypothesis for explaining the 
+those personally viewed as despicable. The statement is a reasonable hypothesis for supposing the 
 longevity of Ancient Rome, from republic to empire to supplantation by its eastern sibling. The 
 recorded and narrated activities of Ancient Rome provide exemplification for how the force of self-interest 
 operates when there are many individuals, each with their own self-interest. The group image of 
@@ -4558,8 +4558,8 @@ weakened by the obligations of the political over those they assume are constant
 The means that human beings take to coalesce into organizations as official as the nation-state and 
 the state are important in understanding how empire, as a concept, cannot be equal in practice, 
 although since human beings think, decide, and act mainly by use of artificial axioms rather than 
-impulse, and these artificial axioms frequently instantiating the same axioms of natural law, the 
-commonalities that plague empire are quite evident by the resource constraints, resource distribution 
+unthinking impulse, and these artificial axioms frequently instantiating the same axioms of natural law, 
+the commonalities that plague empire are quite evident by the resource constraints, resource distribution 
 problems, and recognition of political authority, that which plays pivotal roles in determining what 
 artificial axioms specific human beings are granted. Human connection is not innately integrationist, 
 and this is not always due to self-interest being averted to continual growth of connecting with different 
@@ -4582,4 +4582,6 @@ that is organized into shared objective by many human beings is a typical route 
 differences. This is practical, but its longevity is entirely about the practice of the stated 
 common cause. Objectives tend to be required to be short-termed rather than long-termed, since the 
 results are in demand, time is critical, and the results have to mean something satisfying for those 
-that are in need of the results. 
+that are in need of the results. Common causes elevate the priority of labor and performance in 
+coalition, and surely, there must be more outside of every common cause shared by different peoples 
+in order for those alliances of perceptible positive meaning to persist. 
