@@ -4509,4 +4509,8 @@ be so due in great part to long-range communications technology. Efforts from se
 implementing systems of alliances, and the principles pertaining to these systems are artificial axioms, 
 first and foremost. The means may be different today. For example, the artificial axiom of "common 
 courtesy" takes effect by use of artificial axiom subtypes such as "conduct common courtesy over 
-long-range communications application". 
+long-range communications application". Axioms of natural law cannot be altered through the course 
+of time. The progress that has occurred within the last two thousand years may just be the progress 
+strictly of forms and utility, partially due to greater understanding of axioms of natural law. 
+Questions posed on the value of development, the constructionist aspect of proress, when what is 
+underneath, axioms of natural law, cannot change in anything other than effecting phenomenon. 
