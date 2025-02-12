@@ -4584,7 +4584,13 @@ common cause. Objectives tend to be required to be short-termed rather than long
 results are in demand, time is critical, and the results have to mean something satisfying for those 
 that are in need of the results. Common causes elevate the priority of labor and performance in 
 coalition, and surely, there must be more outside of every common cause shared by different peoples 
-in order for those alliances of perceptible positive meaning to persist. There are arguments that 
-posit self-interest to be a force that can be understood purely in terms of external and perceptible 
-effects. So long as self-interest is pre-occupied, and content with that way of existing in its host, 
-motive need not be observed except out of question by an other. 
+in order for those alliances of perceptible positive meaning to persist. Any honest one can realize 
+this by studying the frequent relation between individual's occupation and heritage. When the economy 
+fails the individual, or perhaps the individual is a failure in their region's economy, the individual 
+still has heritage or something; this is a partial thesis for why immigrant groups tend to organize 
+in their new host country by something along the lines of their original heritage, for there was 
+the shared common cause of their specific suffering that united them to such lengths as to convince 
+them to settle in lands elsewhere. There are arguments that posit self-interest as a force that can 
+be understood purely in terms of external and perceptible effects. So long as self-interest is 
+pre-occupied, and content with that way of existing in its host, motive need not be observed except 
+out of question by an other.
