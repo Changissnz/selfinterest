@@ -4520,7 +4520,7 @@ to be. Processes to recognize particular phenomena as "human conflict" are thems
 problem. A starving man is different from both a broken man and a decapitated man, for one. The 
 acclimative quality of self-interest in the context of economic wrongdoings, specifically that of 
 finances and resources, possibly complicated in understanding by discrepancies in informatic 
-representation, is why valuation systems silent killers, or at least, silent strikers before the 
+representation, is why valuation systems are silent killers or at least, silent strikers before the 
 easy kill. Studies of Ancient Roman geopolitics offer a questionable but valuable lesson: in some 
 circumstances, allies that are not inward offendors have more social and political value than friends 
 that cannot let go. 
