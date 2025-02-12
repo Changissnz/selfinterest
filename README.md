@@ -4515,7 +4515,7 @@ progress strictly of forms and utility, partially due to greater understanding o
 law. Questions posed against the value of development, the constructionist aspect of progress, are 
 convincing enough when they make mention of this truth underneath: axioms of natural law cannot 
 change in existence but in effecting phenomena. So there are phenomena and existences of forms 
-to produce perception, and perception recognizes, in belief, eventualities and certainties that are 
+that is input for perception, and perception recognizes, in belief, eventualities and certainties that are 
 to be. Processes to recognize particular phenomena as "human conflict" are themselves part of the 
 problem. A starving man is different from both a broken man and a decapitated man, for one. The 
 acclimative quality of self-interest in the context of economic wrongdoings, specifically that of 
