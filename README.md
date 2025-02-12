@@ -4536,10 +4536,22 @@ individual's involvement in various spheres of influences. A second statement on
 that boredom is a sin, primarily because the state of existence is in mismatch with the motive, 
 although variably comparable with sins of pro-action when those efforts can be misguided for some 
 long-running scheme of malice. Ancient Rome, as with many imperial entities, saw systems of alliances 
-as solutions for various problems, obviously, and one category of problem is the seeing eye to eye 
+as solutions for various problems, obviously, and one category of problems is the seeing eye to eye 
 with an other. People from many walks of life co-existed in the power structure of Ancient Rome, 
 and undoubtedly disputed with one another in contexts of familial politics, tribal affiliation, and 
 commerce. Systems of alliances pre-occupied the subjects and vassals of Ancient Rome, and must 
-have been implemented with intention of both subject and ruler to not have to see eye to eye with 
+have been implemented with intention from both subject and ruler to not have to see eye to eye with 
 those personally viewed as despicable. The statement is a reasonable hypothesis for explaining the 
-longevity of Ancient Rome, from republic to empire to supplantation by its eastern sibling. 
+longevity of Ancient Rome, from republic to empire to supplantation by its eastern sibling. The 
+recorded and narrated activities of Ancient Rome provide exemplification for how the force of self-interest 
+operates when there are many individuals, each with their own self-interest. The group image of 
+individuals that share in a common cause takes precedence, and if that group image bears enough 
+influence, those individuals may find themselves greatly benefitted by representative democracies. 
+Whereas Ancient Rome certainly had phenomena recognized as issues, such as slavery and unstable 
+governments by rapid shifts from emperor to emperor, the Ottoman Empire also had its fair share of 
+issues: its bureaucracy became inefficient from managing vast territories, having to convert and 
+employ the children of the peoples it defeated during its expansion. One issue with discussions 
+on problems that plagued expansionist states is that all of the problems are virtually identical, 
+in principle. Political rule as a solution for diversified individual identities, such that attempts 
+to centralize can result in repression of the individual and inefficiency through connections 
+weakened by the obligations of the political over what they assume is constantly their subject. 
