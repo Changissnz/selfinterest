@@ -4592,5 +4592,5 @@ to organize in their new host country by something along the lines of their orig
 there was the shared common cause for their specific suffering that united them to such lengths as to 
 convince them to settle in lands elsewhere. There are arguments that posit self-interest as a force 
 that can be understood purely in terms of external and perceptible effects. And so long as self-interest 
-is pre-occupied, and content with that way of existing in its host, motive need not be observed except 
+is pre-occupied, and content with that way of existing in its host, motivation need not be observed except 
 out of question by an other.
