@@ -4558,13 +4558,13 @@ weakened by the obligations of the political over those they assume are constant
 The means that human beings take to coalesce into organizations as official as the nation-state and 
 the state are important in understanding how empire, as a concept, cannot be comparatively equal in 
 practice, although since human beings think, decide, and act mainly by use of artificial axioms rather than 
-unthinking impulse, and these artificial axioms frequently instantiating the same axioms of natural law, 
-the commonalities that plague empires are quite evident by the resource constraints, resource distribution 
-problems, and recognition of political authority, that which plays pivotal roles in determining what 
-artificial axioms specific human beings are granted. Human connection is not innately integrationist, 
-and this is not always due to self-interest being averted to continual growth of connecting with different 
-human beings. The gains of some victories are easier to elongate in duration than those of other 
-kinds of victories. A victory by those of legacy continues the legacy, and before that victory, 
+unthinking impulse, and these artificial axioms frequently leads to instantiating the same axioms of natural 
+law, the commonalities that plague empires are quite evident by the resource constraints, resource 
+distribution problems, and recognition of political authority, that which plays pivotal roles in 
+determining what artificial axioms specific human beings are granted. Human connection is not innately 
+integrationist, and this is not always due to self-interest being averted to continual growth of connecting 
+with different human beings. The gains of some victories are easier to elongate in duration than those of 
+other kinds of victories. A victory by those of legacy continues the legacy, and before that victory, 
 there is typically a pronounced degree of support for the legacy in battling the issues. A victory 
 achieved by alien or unfair means is always assumed, to some extent, to be received with contempt 
 from the originals that have lost in the new game. And the newcomer is naturally forced to have to 
