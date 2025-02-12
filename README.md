@@ -4558,7 +4558,7 @@ weakened by the obligations of the political over those they assume are constant
 The means that human beings take to coalesce into organizations as official as the nation-state and 
 the state are important in understanding how empire, as a concept, cannot be comparatively equal in 
 practice, although since human beings think, decide, and act mainly by use of artificial axioms rather than 
-unthinking impulse, and these artificial axioms frequently leads to instantiating the same axioms of natural 
+unthinking impulse, and these artificial axioms frequently lead to instantiating the same axioms of natural 
 law, the commonalities that plague empires are quite evident by the resource constraints, resource 
 distribution problems, and recognition of political authority, that which plays pivotal roles in 
 determining what artificial axioms specific human beings are granted. Human connection is not innately 
@@ -4574,8 +4574,8 @@ self-interest can take as truth to combat those biases. This could mean assuming
 without personal experience with them, believing that there is no political or cultural structure at 
 play that demands cooperation from the individual, and ultimately, not falling into the behaviorial 
 trap of relying on generalities, first and foremost, to act in the way of specifics (bottom-up instead 
-of top-down). What a world this could be, to be able to let go of those notions that actually are 
-more than half-truths, by empirical measures, because operating by metaphorically leaping off of 
+of top-down). What a world this could be, to be able to let go of those notions that are more than h
+half-truths, by empirical measures, because operating by metaphorically leaping off of 
 those notions would sometimes skew towards the results that enforce what is to be by what occurred. 
 Any individual's self-interest has economical problems to solve, and the power of the "common cause" 
 that is organized into shared objective by many human beings is a typical route for letting go of 
