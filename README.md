@@ -4514,13 +4514,18 @@ the course of time. The progress that has occurred within the last two thousand 
 progress strictly of forms and utility, partially due to greater understanding of axioms of natural 
 law. Questions posed against the value of development, the constructionist aspect of progress, are 
 convincing enough when they make mention of this truth underneath: axioms of natural law cannot 
-change in existence but in effecting phenomenon. So there are phenomena and existences of forms 
+change in existence but in effecting phenomena. So there are phenomena and existences of forms 
 to produce perception, and perception recognizes, in belief, eventualities and certainties that are 
 to be. Processes to recognize particular phenomena as "human conflict" are themselves part of the 
 problem. A starving man is different from both a broken man and a decapitated man, for one. The 
 acclimative quality of self-interest in the context of economic wrongdoings, specifically that of 
 finances and resources, possibly complicated in understanding by discrepancies in informatic 
-representation, is why valuation systems are silent killers or at least, silent strikers before the 
-easy kill. Studies of Ancient Roman geopolitics offer a questionable but valuable lesson: in some 
-circumstances, allies that are not inward offendors have more social and political value than friends 
-that cannot let go. 
+representation, is why valuation systems serve dual purposes, one being silent killers or at least, 
+silent strikers before the easy kill. Studies of Ancient Roman geopolitics offer a questionable but 
+valuable lesson: in some circumstances, allies that are not inward offendors have more social and 
+political value than friends that cannot let go. The physical peace that economies, alongside such 
+things as civics, usher into human societies and prolong are difficult to gauge outside of empirical 
+measures that include production, trade, occupation. This difficulty has to do with the subjectivity 
+of human behavior and of human cultures. And the acclimative quality of self-interest implies a few 
+prevailing truths in the economic context. Circumstances could always get worse; these circumstances 
+could get worse for one if one were to "break rank" from their duties. 
