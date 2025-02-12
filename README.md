@@ -4572,4 +4572,7 @@ default, with respect to some matters is the closest thing self-interest can tak
 could mean assuming nothing about another without personal experience, believing that there is no 
 political or cultural structure at play that demands cooperation from the individual, and ultimately, 
 not falling into the behaviorial trap of relying on generalities, first and foremost, to act in the 
-way of specifics (bottom-up instead of top-down). 
+way of specifics (bottom-up instead of top-down). What a world this could be, to be able to let go 
+of those notions that actually are more than half-truths, by empirical measures, because operating 
+by metaphorically leaping off of those notions would sometimes skew towards the results that reinforce 
+what is by what occurred. 
