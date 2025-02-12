@@ -4508,4 +4508,5 @@ in the context of today, the earlier half of the 21st century, are surely differ
 be so due in great part to long-range communications technology. Efforts from sentient will go toward 
 implementing systems of alliances, and the principles pertaining to these systems are artificial axioms, 
 first and foremost. The means may be different today. For example, the artificial axiom of "common 
-courtesy" is acted on by artificial axiom subtypes such as "conduct common courtesy over long-range communications application". 
+courtesy" takes effect by use of artificial axiom subtypes such as "conduct common courtesy over 
+long-range communications application". 
