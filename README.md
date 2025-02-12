@@ -4551,8 +4551,8 @@ democracies. Whereas Ancient Rome certainly had phenomena recognized as issues, 
 governments by rapid shifts from emperor to emperor, the Ottoman Empire also had its fair share of 
 issues: its bureaucracy became inefficient from managing vast territories, having to convert and 
 employ the children of the peoples it defeated during its expansion. One issue with discussions 
-on problems that plagued expansionist states is that all of the problems are virtually identical 
-in principle. Political rule as a solution for diversified individual identities, such that attempts 
+on problems that plagued expansionist states is that their problems are virtually identical in comparison 
+of principle. Political rule as a solution for diversified individual identities, such that attempts 
 to centralize can result in repression of the individual, and also, inefficiency due to connections 
 weakened by the obligations of the political over those they assume are constantly their subjects. 
 The means that human beings take to coalesce into organizations as official as the nation-state and 
