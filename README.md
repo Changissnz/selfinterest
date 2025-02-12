@@ -4533,7 +4533,7 @@ Another truth is that if one cannot find happiness in living in their present ri
 and inadequacy, then there is no reason except for the spirit for why any endeavor would be able 
 to solve those issues. On this second truth, the consequences of specific endeavors are related to the 
 individual's involvement in various spheres of influences. A second statement on this truth is 
-that boredom is a sin, primarily because the state of existence is in mismatch with the motive, 
+that boredom is a sin, primarily because the state of existence is in mismatch with the motivation, 
 although variably comparable with sins of pro-action when those efforts can be misguided for some 
 long-running scheme of malice. Ancient Rome, as with many imperial entities, saw systems of alliances 
 as solutions for various problems, obviously, and one category of problems is the seeing eye to eye 
