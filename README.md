@@ -4545,13 +4545,13 @@ those personally viewed as despicable. The statement is a reasonable hypothesis 
 longevity of Ancient Rome, from republic to empire to supplantation by its eastern sibling. The 
 recorded and narrated activities of Ancient Rome provide exemplification for how the force of self-interest 
 operates when there are many individuals, each with their own self-interest. The group image of 
-individuals that share in a common cause takes precedence, and if that group image bears enough 
-influence, those individuals may find themselves greatly benefitted by representative democracies. 
-Whereas Ancient Rome certainly had phenomena recognized as issues, such as slavery and unstable 
+individuals that share in a common cause takes precedence in the breadth of history, and if that group 
+image bears enough influence, those individuals may find themselves greatly benefitted by representative 
+democracies. Whereas Ancient Rome certainly had phenomena recognized as issues, such as slavery and unstable 
 governments by rapid shifts from emperor to emperor, the Ottoman Empire also had its fair share of 
 issues: its bureaucracy became inefficient from managing vast territories, having to convert and 
 employ the children of the peoples it defeated during its expansion. One issue with discussions 
-on problems that plagued expansionist states is that all of the problems are virtually identical, 
+on problems that plagued expansionist states is that all of the problems are virtually identical 
 in principle. Political rule as a solution for diversified individual identities, such that attempts 
 to centralize can result in repression of the individual, and also, inefficiency due to connections 
 weakened by the obligations of the political over those they assume are constantly their subjects. 
@@ -4559,7 +4559,7 @@ The means that human beings take to coalesce into organizations as official as t
 the state are important in understanding how empire, as a concept, cannot be comparatively equal in 
 practice, although since human beings think, decide, and act mainly by use of artificial axioms rather than 
 unthinking impulse, and these artificial axioms frequently instantiating the same axioms of natural law, 
-the commonalities that plague empire are quite evident by the resource constraints, resource distribution 
+the commonalities that plague empires are quite evident by the resource constraints, resource distribution 
 problems, and recognition of political authority, that which plays pivotal roles in determining what 
 artificial axioms specific human beings are granted. Human connection is not innately integrationist, 
 and this is not always due to self-interest being averted to continual growth of connecting with different 
@@ -4576,7 +4576,7 @@ play that demands cooperation from the individual, and ultimately, not falling i
 trap of relying on generalities, first and foremost, to act in the way of specifics (bottom-up instead 
 of top-down). What a world this could be, to be able to let go of those notions that actually are 
 more than half-truths, by empirical measures, because operating by metaphorically leaping off of 
-those notions would sometimes skew towards the results that reinforce what is to be by what occurred. 
+those notions would sometimes skew towards the results that enforce what is to be by what occurred. 
 Any individual's self-interest has economical problems to solve, and the power of the "common cause" 
 that is organized into shared objective by many human beings is a typical route for letting go of 
 differences. This is practical, but its longevity is centered around the practice of the stated 
