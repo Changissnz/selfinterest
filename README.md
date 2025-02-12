@@ -4524,7 +4524,7 @@ representation, is why valuation systems serve dual purposes, one being silent k
 silent strikers before the easy kill. Studies of Ancient Roman geopolitics offer a questionable but 
 valuable lesson: in some circumstances, allies that are not inward offendors have more social and 
 political value than friends that cannot let go. The physical peace that economies, alongside such 
-things as civics, usher into human societies and prolong are difficult to gauge outside of empirical 
+things as civics, usher into human societies and prolong is difficult to gauge outside of empirical 
 measures that include production, trade, and occupation. This difficulty has to do with the subjectivity 
 in judging human behavior and co-existing with human cultures. And the acclimative quality of 
 self-interest implies a few prevailing truths in the economic context. Circumstances could always get 
