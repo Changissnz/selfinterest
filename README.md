@@ -4619,4 +4619,15 @@ of media sources, these events of grandeur, greatness, and unexpectations are be
 the will that propels all of self-interest to what has occurred and still stands as a result. Only 
 the form has indisputably changed, and the novelty of Internet innovation that initially 
 shocked incumbent politics and establishment business seems to have fizzled down to degrees very 
-manageable by them. 
+manageable by them. The knowledge of principle is a prime component to altering the pre-determined. 
+In the physical and quantitative worlds, the most relevant of these principles are axioms of natural 
+law. The systems that human beings have erected are based on principles of levels higher than the 
+axiom. The innermost essence of verbal and written expressions is thesis, and thesis does not 
+have to pertain to axiom. These two categories of examples are what the instances of self-interest 
+plans and strives for. There is no stochastic coincidence when there is intention from self-interest. 
+Such is the wholeness that is true when there is perfect information on perceptible chains of events 
+that occurred. The striking appearance loses its luster when the knowledge of its causes acted out 
+by self-interest, these causes being the principle of relevance at the perceptible level. Naivety 
+shrivels away from cognition and replaced by this state of mind is an acceptance self-assured 
+in the belief that the puzzle of understanding has been solved. Thus, one's presence in the situation 
+is only there to be entertained without being awed or flabberghasted. 
