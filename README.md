@@ -4630,4 +4630,4 @@ that occurred. The striking appearance loses its luster when the knowledge of it
 acted out by self-interest, these causes being the principle of relevance at the perceptible level, 
 become known. Naivety shrivels away from cognition and replaced by this state of mind is an acceptance 
 self-assured in the belief that the puzzle of understanding has been solved. Thus, one's presence in 
-that situation is only there to be entertained without being awed or flabberghasted. 
+that situation only intends to be entertained without being awed or flabberghasted. 
