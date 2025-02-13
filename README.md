@@ -4594,3 +4594,8 @@ convince them to settle in lands elsewhere. There are arguments that posit self-
 that can be understood purely in terms of external and perceptible effects. And so long as self-interest 
 is pre-occupied, and content with that way of existing in its host, motivation need not be observed except 
 out of question by an other.
+
+## More on philosophies of self-interest #64 
+
+The relation between self-interest and information is indeed complicated. This complication is 
+a consequence of self-interest having to be economical to its not being self-contained. 
