@@ -4598,4 +4598,10 @@ out of question by an other.
 ## More on philosophies of self-interest #64 
 
 The relation between self-interest and information is indeed complicated. This complication is 
-a consequence of self-interest having to be economical to its not being self-contained. 
+a consequence of self-interest having to be economical due to its not being self-contained. The 
+principles required to be harnessed in ways of precision for wanted products of effects is 
+variable in difficulty. And the styles of expressing these principles to be understood by 
+human beings is also variable. So the starting point consists of principles to be known, and 
+the principles do not have to be expressed by human beings in forms accurate and simple. Also, 
+there is no universal rule that principle need be understood by a human being; this alone is 
+part of the explanation for the consequentialist ways that human societies operate by. 
