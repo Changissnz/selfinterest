@@ -4626,8 +4626,8 @@ axiom. The innermost essence of verbal and written expressions is thesis, and th
 have to pertain to axiom. These two categories of examples are what the instances of self-interest 
 plans and strives for. There is no stochastic coincidence when there is intention from self-interest. 
 Such is the wholeness that is true when there is perfect information on perceptible chains of events 
-that occurred. The striking appearance loses its luster when the knowledge of its causes acted out 
-by self-interest, these causes being the principle of relevance at the perceptible level. Naivety 
-shrivels away from cognition and replaced by this state of mind is an acceptance self-assured 
-in the belief that the puzzle of understanding has been solved. Thus, one's presence in the situation 
+that occurred. The striking appearance loses its luster when the knowledge of its causes that were 
+acted out by self-interest, these causes being the principle of relevance at the perceptible level. 
+Naivety shrivels away from cognition and replaced by this state of mind is an acceptance self-assured 
+in the belief that the puzzle of understanding has been solved. Thus, one's presence in that situation 
 is only there to be entertained without being awed or flabberghasted. 
