@@ -4603,5 +4603,11 @@ principles required to be harnessed in ways of precision for wanted products of 
 variable in difficulty. And the styles of expressing these principles to be understood by 
 human beings is also variable. So the starting point consists of principles to be known, and 
 the principles do not have to be expressed by human beings in forms accurate and simple. Also, 
-there is no universal rule that principle need be understood by a human being; this alone is 
-part of the explanation for the consequentialist ways that human societies operate by. 
+there is no universal rule that an arbitrary principle need be understood by a human being; this 
+alone is part of the explanation for the consequentialist ways that human societies operate by. 
+If information is an asset, and it is when especially recorded into perceptible forms, then 
+the knowledgeable human being is one of the closest entities next to information. The 21st 
+century trend of monetizing on information is actually nothing groundbreaking, in principle. 
+Greater speed of access to and transmission of information through the medium of the Internet 
+has allowed informatic activity to be easier monetized, since these activities are conducted 
+over programmed self-logging and distributive data services. 
