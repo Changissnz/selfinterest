@@ -4624,10 +4624,12 @@ In the physical and quantitative worlds, the most relevant of these principles a
 law. The systems that human beings have erected are based on principles of levels higher than the 
 axiom. The innermost essence of verbal and written expressions is thesis, and thesis does not 
 have to pertain to axiom. These two categories of examples are what the instances of self-interest 
-plans and strives for. There is no stochastic coincidence where there is intention from self-interest. 
+plan and strive for. There is no stochastic coincidence where there is intention from self-interest. 
 Such is the wholeness that is true when there is perfect information on perceptible chains of events 
 that occurred. The striking appearance loses its luster when the knowledge of its causes that were 
 acted out by self-interest, these causes being the principle of relevance at the perceptible level, 
 become known. Naivety shrivels away from cognition and replaced by this state of mind is an acceptance 
 self-assured in the belief that the puzzle of understanding has been solved. Thus, one's presence in 
-that situation only intends to be entertained without being awed or flabberghasted. 
+that situation only intends to be entertained without being awed or flabberghasted. And that is if 
+the situation is accepted. Otherwise, the events pre-determined for that situation are altered in 
+qualities such as disruption and improvement. 
