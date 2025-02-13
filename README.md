@@ -4617,6 +4617,6 @@ and it is foolish to forget that although there have been recent events such as 
 (2010), explained as a consequence of and greatly promoting Internet utility, and diversification 
 of media sources, these events of grandeur, greatness, and unexpectations are because of 
 the will that propels all of self-interest to what has occurred and still stands as a result. Only 
-the form has indisputably changed, and the novelty of Internet innovation that has initially 
+the form has indisputably changed, and the novelty of Internet innovation that initially 
 shocked incumbent politics and establishment business seems to have fizzled down to degrees very 
 manageable by them. 
