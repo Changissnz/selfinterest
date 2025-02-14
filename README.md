@@ -4662,8 +4662,8 @@ pitted against what was believed to be essential for moving forth. A controversi
 integration of human beings and their utility of talents are never ideal in the process of actualization, 
 but it is just that some peoples decided to support initiatives that imperiled them to the extent of 
 their lives being cut short, rather than live according to withering means under the mercy of titles 
-rather than honor. To see how outlandish the ideological concept is through the progressive span of 
-time, imagine some of the descendants of those communist insurgents today being aristocrats in 
+rather than honor. To understand how outlandish the ideological concept is through the progressive span 
+of time, imagine some of the descendants of those communist insurgents today being aristocrats in 
 their own right, their forefathers' responsibilities of wealth management passed on to them as wealth 
 greater than the average of their peers, them sitting around casually sipping Parisian wines conversing 
 with those that are descended from their forefathers' mortal enemies, laughing and smiling like 
