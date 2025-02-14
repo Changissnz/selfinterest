@@ -4670,8 +4670,8 @@ sipping Parisian wines conversing with those that are descended from their foref
 laughing and smiling like there is no tomorrow, saying "here is to new beginnings" in all kinds of 
 fancy and elegant languages. A humorous remark on the ideological concept is that something about it 
 is very roundabout: a human being, out of their self-interest, decides to subscribe themself to an 
-ideology, an intangible representational manifestation of the ideal, and then their actions are 
-judged by the parameters set by the implementation of this intangible representational manifestation. 
+ideology, an intangible representational manifestation of the ideal, they act, and then their actions 
+are judged by the parameters set by the implementation of this intangible representational manifestation. 
 An essence of fault in ideology is that the labeling system cannot change as quickly as specific 
 movement. But in the informatic representation, a sizable portion of the matters of information, 
 the generalities are thesis and are preferentially used, instead of plots centering around the 
