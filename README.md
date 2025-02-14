@@ -4644,7 +4644,7 @@ for the term "dangerous" in gauging the harm of a thought, approaches that bear 
 beliefs on the matter rely on judging the perceptible effects of related spatio-temporal contexts. 
 When there needs to be perceptible effect for there to be proof deemed valid, one can see why institutions 
 such as the political and legal authorities are not known for their foresight or even their hindsight, 
-but for a kind of quasi-scientific application of correspondence theory, specifically that of corresponding 
+but for a kind of quasi-scientific application of correspondence theory, especially that of corresponding 
 the recorded perceptible effects to the metaphysical concept of fault (wrongdoing). This is the typical 
 nature of these institutions, regardless of the specific political and religious ideologies of their 
 region of operation. And the reliance on recorded perceptible effects, of course, is jeopardized by 
