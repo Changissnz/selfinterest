@@ -4706,6 +4706,6 @@ reception. Expression, after the fact as imitation and/or competitive variant to
 to that fact, probably produces conflicts of interest based on the degree of its intrusive 
 excess. Expression can be reasoned to be disruptive because its essence is forced to reckon with 
 what already is and, in turn, have questions cast on it serving motives outside of the agreement that 
-does not require any more words than what is vital for the objective; this reasoning is an  
+does not require any more words than what is vital for the objective; this reasoning is an 
 example on why reason that turns into that for intended effect is actually command by reason. 
 There is the saying "silence is gold", and gold is less alive than it is dead. 
