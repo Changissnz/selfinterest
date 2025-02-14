@@ -4641,7 +4641,7 @@ terrible a presumptuous thought is. Rather, these thoughts are easier to represe
 to human cognition but, then again, human cognition can understand the representational form and 
 remain misguided in their comprehension of the represented, all because of their belief of choice. As 
 for the term "dangerous" in gauging the harm of a thought, approaches that bear the most convincing 
-beliefs on the matter rely on judging the perceptible effects of related spatio-temporal contexts. 
+beliefs on the matter rely on judging the perceptible effects in related spatio-temporal contexts. 
 When there needs to be perceptible effect for there to be proof deemed valid, one can see why institutions 
 such as the political and legal authorities are not known for their foresight or even their hindsight, 
 but for a kind of quasi-scientific application of correspondence theory, especially that of corresponding 
