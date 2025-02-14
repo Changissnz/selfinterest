@@ -4705,7 +4705,7 @@ is discarded as superfluous, there is greater freedom to narrate on it for wante
 reception. Expression, after the fact as imitation and/or competitive variant to the product related 
 to that fact, is expected to produce conflicts of interest based on the degree of its intrusive 
 excess. Expression can be reasoned to being disruptive because its essence is forced to reckon with 
-what already is, in turn, cast questions on it serving motives outside of the agreement that does 
-not require any more words than what is vital for the objective; this reasoning is yet another 
+what already is and, in turn, have questions cast on it serving motives outside of the agreement that 
+does not require any more words than what is vital for the objective; this reasoning is yet another 
 example on why reason that turns into that for intended effect is actually command by reason. There 
-is the saying "silence is gold" and gold is less alive than it is dead. 
+is the saying "silence is gold", and gold is less alive than it is dead. 
