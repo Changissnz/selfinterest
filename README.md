@@ -4599,13 +4599,13 @@ out of question by an other.
 
 The relation between self-interest and information is indeed complicated. This complication is 
 a consequence of self-interest having to be economical due to its not being self-contained. The 
-principles required to be harnessed in ways of precision for wanted products of effects is 
+principles required to be harnessed in ways of precision for wanted products of effects are 
 variable in difficulty of understanding. And the styles of expressing these principles to be 
-understood by human beings is also variable. So the starting point consists of principles to be 
+understood by human beings are also variable. So the starting point consists of principles to be 
 known, and the principles do not have to be expressed by human beings in forms accurate and simple. 
 Also, there is no universal rule that an arbitrary principle need be understood by a human being; this 
 alone is part of the explanation for the consequentialist ways that human societies operate by. 
-If information is an asset, and it is when especially recorded into perceptible forms, then 
+If information is an asset, and it is especially when recorded into perceptible forms, then 
 the knowledgeable human being is one of the closest entities next to information. The 21st 
 century trend of monetizing on information is actually nothing groundbreaking, in principle. 
 Greater speed of access to and transmission of information through the medium of the Internet 
@@ -4675,12 +4675,12 @@ actions are judged by the parameters set by the implementation of this intangibl
 manifestation. An essence of fault in ideology is that the labeling system cannot change as quickly 
 as specific movement. But in the informatic representation, a sizable portion of the matters of 
 information, the generalities are thesis and are preferentially used, instead of plots centering 
-around the specific individuals alongside universals such as the Seven Deadly Sins and innocence, 
+around specific individuals alongside universals such as the Seven Deadly Sins and innocence, 
 to distinguish groups of human population. An application of the bias-complexity tradeoff, reinforced 
 by the will that leads to self-interests that cannot conduct meaningfully bonding communication and 
-fair exchange. There exist no universal relation between information and the spatiotemporal freedoms 
+fair exchange. There exists no universal relation between information and the spatiotemporal freedoms 
 given to self-interest. Information is an asset, and intellect is a gift for self-interest. In 
-the first exists the potential to exchange, apply, or produce the asset, and is by no means a 
+the first exists the potential to exchange, apply, and produce the asset, and is by no means a 
 guarantee of anything past the point of its existence. Societal utility places expectations different 
 for different cultures. It is noteworthy to mention three cultural categories of intellect, the foremost 
 utilizer of information: Greek, Egyptian, and Chinese. This next generalization of these three 
