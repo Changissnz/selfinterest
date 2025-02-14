@@ -4684,8 +4684,8 @@ the first exists the potential to exchange, apply, or produce the asset, and is 
 guarantee of anything past the point of its existence. Societal utility places expectations different 
 for different cultures. It is noteworthy to mention three categories of intellect, the base utilizer 
 of information: Greek, Egyptian, and Chinese. This next generalization of these three categories will 
-disservice the nuances of the whole truth, but is a credible way of understanding the differences in 
-utility of information. Greek culture emphasizes the intellectual pursuit to value the as-is quality 
+disservice the nuances of the whole truth, but it is a credible way of understanding cultural differences 
+in utility of information. Greek culture emphasizes the intellectual pursuit to value the as-is quality 
 of information, and is arguably conducive towards the greatest spans of personal freedoms granted to 
 every intellectual. The Egyptians view information as vital only so far as for application; this is 
 seen in their relatively Philistine culture and technological constructs, characteristically, the 
