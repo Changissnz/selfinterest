@@ -4662,9 +4662,18 @@ pitted against what was believed to be essential for moving forth. A controversi
 integration of human beings and their utility of talents are never ideal in the process of actualization, 
 but it is just that some peoples decided to support initiatives that imperiled them to the extent of 
 their lives being cut short, rather than live according to withering means under the mercy of titles 
-rather than honor. To understand how outlandish the ideological concept is through the progressive span 
-of time, imagine some of the descendants of those communist insurgents today being aristocrats in 
-their own right, their forefathers' responsibilities of wealth management passed on to them as wealth 
-greater than the average of their peers, them sitting around casually sipping Parisian wines conversing 
-with those that are descended from their forefathers' mortal enemies, laughing and smiling like 
-there is no tomorrow, saying "here is to new beginnings" in all kinds of fancy and elegant languages. 
+rather than honor. To understand how outlandish the ideological concept is attempted in actualization 
+through the progressive span of time, imagine some of the descendants of those communist insurgents 
+today being aristocrats in their own right, their forefathers' responsibilities of wealth management 
+passed on to them as wealth greater than the average of their peers, them sitting around casually 
+sipping Parisian wines conversing with those that are descended from their forefathers' mortal enemies, 
+laughing and smiling like there is no tomorrow, saying "here is to new beginnings" in all kinds of 
+fancy and elegant languages. A humorous remark on the ideological concept is that something about it 
+is very roundabout: a human being, out of their self-interest, decides to subscribe themself to an 
+ideology, an intangible representational manifestation of the ideal, and then their actions are 
+judged by the parameters set by the implementation of this intangible representational manifestation. 
+An essence of fault in ideology is that the labeling system cannot change as quickly as specific 
+movement. But in the informatic representation, a sizable portion of the matters of information, 
+the generalities are thesis and are preferentially used, instead of plots centering around the 
+specific individuals alongside universals such as the Seven Deadly Sins and innocence, to distinguish 
+groups of human population. 
