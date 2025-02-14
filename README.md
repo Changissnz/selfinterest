@@ -4702,7 +4702,7 @@ degrees to guard certain information. Expression, elements that are projected ou
 spanning from quasi-true representation of what is and/or was to novelty, is inevitably placed into 
 consequentialist spheres of influence. When the expression of what is immediately recognizable 
 is discarded as superfluous, there is greater freedom to narrate on it for wanted belief from 
-reception. Expression, after the fact as imitation and/or competitive variant to the product related 
+reception. Expression after the fact, as imitation and/or competitive variant to the product related 
 to that fact, probably produces conflicts of interest based on the degree of its intrusive 
 excess. Expression can be reasoned to be disruptive because its essence is forced to reckon with 
 what already is and, in turn, have questions cast on it serving motives outside of the agreement that 
