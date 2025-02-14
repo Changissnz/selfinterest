@@ -4691,4 +4691,7 @@ every intellectual. The Egyptians view information as vital only so far as for a
 seen in their relatively Philistine culture and technological constructs, characteristically, the 
 Pyramids. And the Chinese view information as closely tied to intellect in the sense of the institution 
 of education: be subservient to the instructor, study hard, and apply the knowledge acquired for the 
-bureaucracy. 
+bureaucracy. In these characterizations, the informed Chinese can be dangerous because they are obedient, 
+the Greek can be dangerous because they harness their wits buttressed by their being exposed to 
+relevant information, and the Egyptian can be dangerous because of their relatively instantaneous 
+correlation between information and material application of arguably greed and display of power. 
