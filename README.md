@@ -4694,5 +4694,5 @@ of education: be subservient to the instructor, study hard, and apply the knowle
 bureaucracy of public familial good. In these characterizations, the informed Chinese can be 
 dangerous because they are institutionally obedient, the Greek can be dangerous because they harness 
 their wits buttressed by their being exposed to relevant information, and the Egyptian can be 
-dangerous because of their relatively instantaneous correlation between information and material 
-application of arguably greed and display of power. 
+dangerous because of their relatively instantaneous correlation between information and potential 
+material application of arguably greed and display of power. 
