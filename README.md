@@ -4686,7 +4686,7 @@ for different cultures. It is noteworthy to mention three categories of intellec
 of information: Greek, Egyptian, and Chinese. This next generalization of these three categories will 
 disservice the nuances of the whole truth, but it is a credible way of understanding cultural differences 
 in utility of information. Greek culture emphasizes the intellectual pursuit to value the as-is quality 
-of information, and is arguably conducive towards the greatest spans of personal freedoms granted to 
+of information, and is arguably conducive towards the largest spans of personal freedoms granted to 
 every intellectual. The Egyptians view information as vital only so far as for application; this is 
 seen in their relatively Philistine culture and technological constructs, characteristically, the 
 pyramids. And the Chinese view information as closely tied to intellect in the sense of the institution 
@@ -4695,4 +4695,13 @@ bureaucracy of public familial good. In these characterizations, the informed Ch
 dangerous because they are institutionally obedient, the Greek can be dangerous because they harness 
 their wits buttressed by their being exposed to relevant information, and the Egyptian can be 
 dangerous because of their relatively instantaneous correlation between information and potential 
-material application of arguably greed and display of power. 
+material application of arguably greed and display of power. Understanding and obeying artificial 
+axioms of principle bear obviously different effects. Self-interest has the power to produce 
+information through expression, and this force also has responsibilities of varying degrees to 
+guard certain information. Expression, being elements that are projected outward in ways spanning 
+from quasi-truthful representation of what is and/or was to novelty, is inevitably placed into 
+consequentialist spheres of influence. When the expression of what is immediately recognizable 
+is discarded as superfluous, there is greater freedom to narrate on it for wanted belief from 
+reception. Expression, after the fact as imitation and/or competitive variant to the product related 
+to that fact, is expected to produce conflicts of interest. There is the saying "silence is gold" and 
+gold is less alive than dead. 
