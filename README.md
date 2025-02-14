@@ -4698,7 +4698,7 @@ dangerous because of their relatively instantaneous correlation between informat
 material application of arguably greed and display of power. Understanding artificial axioms 
 of principle bear obviously different effects than obeying them. Self-interest has the power to produce 
 information through expression, and this force also has responsibilities of varying degrees to 
-guard certain information. Expression, being elements that are projected outward in ways spanning 
+guard certain information. Expression, elements that are projected outward in ways spanning 
 from quasi-true representation of what is and/or was to novelty, is inevitably placed into 
 consequentialist spheres of influence. When the expression of what is immediately recognizable 
 is discarded as superfluous, there is greater freedom to narrate on it for wanted belief from 
