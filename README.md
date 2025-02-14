@@ -4695,17 +4695,17 @@ bureaucracy of public familial good. In these characterizations, the informed Ch
 dangerous because they are institutionally obedient, the Greek can be dangerous because they harness 
 their wits buttressed by their being exposed to relevant information, and the Egyptian can be 
 dangerous because of their relatively instantaneous correlation between information and potential 
-material application of arguably greed and display of power. Understanding and obeying artificial 
-axioms of principle bear obviously different effects. Self-interest has the power to produce 
+material application of arguably greed and display of power. Understanding artificial axioms 
+of principle bear obviously different effects than obeying them. Self-interest has the power to produce 
 information through expression, and this force also has responsibilities of varying degrees to 
 guard certain information. Expression, being elements that are projected outward in ways spanning 
 from quasi-truthful representation of what is and/or was to novelty, is inevitably placed into 
 consequentialist spheres of influence. When the expression of what is immediately recognizable 
 is discarded as superfluous, there is greater freedom to narrate on it for wanted belief from 
 reception. Expression, after the fact as imitation and/or competitive variant to the product related 
-to that fact, is expected to produce conflicts of interest. Expression can be reasoned to being 
-disruptive because its essence is forced to reckon with what already is, in turn, cast questions 
-on it serving motives outside of the agreement that does not require any more words than what is 
-vital for the objective; this reasoning is yet another example on why reason that turns into that 
-for intended effect is actually command by reason. There is the saying "silence is gold" and 
-gold is less alive than it is dead. 
+to that fact, is expected to produce conflicts of interest based on the degree of its intrusive 
+excess. Expression can be reasoned to being disruptive because its essence is forced to reckon with 
+what already is, in turn, cast questions on it serving motives outside of the agreement that does 
+not require any more words than what is vital for the objective; this reasoning is yet another 
+example on why reason that turns into that for intended effect is actually command by reason. There 
+is the saying "silence is gold" and gold is less alive than it is dead. 
