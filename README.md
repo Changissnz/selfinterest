@@ -4708,4 +4708,4 @@ disruptive because its essence is forced to reckon with what already is, in turn
 on it serving motives outside of the agreement that does not require any more words than what is 
 vital for the objective; this reasoning is yet another example on why reason that turns into that 
 for intended effect is actually command by reason. There is the saying "silence is gold" and 
-gold is less alive than dead. 
+gold is less alive than it is dead. 
