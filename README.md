@@ -4641,34 +4641,34 @@ terrible a presumptuous thought is. Rather, these thoughts are easier to represe
 to human cognition but, then again, human cognition can understand the representational form and 
 remain misguided in their comprehension of the represented, all because of their belief of choice. As 
 for the term "dangerous" in gauging the harm of a thought, approaches that bear the most convincing 
-beliefs on the matter rely on judging the perceptible effects in related spatio-temporal contexts. 
-When there needs to be perceptible effect for there to be proof deemed valid, one can see why institutions 
-such as the political and legal authorities are not known for their foresight or even their hindsight, 
-but for a kind of quasi-scientific application of correspondence theory, especially that of corresponding 
-the recorded perceptible effects to the metaphysical concept of fault (wrongdoing). This is the typical 
-nature of these institutions, regardless of the specific political and religious ideologies of their 
-region of operation. And the reliance on recorded perceptible effects, of course, is jeopardized by 
-the risks of fault from responsibilities for record and representation given to cognition, especially 
-that of sentient life. Shortfalls from this truth can be solved by the actualization of a "permanent 
-good". Both meritocratic pathways and character-building campaigns are or become imperfect by contra-action 
-as well as in-action. So it should come as no surprise to any one, regardless of their being a "modern 
-person", that a predominant degree of rule through institutions of political and legal authority have 
-been done by aristocracy, the bloodline, nobility, per se, in order for phenomena of "business 
-as usual" and unity through anti-competition to proceed. To elaborate more on this by use of a category 
-of evident counter-examples, the transformation of certain regions in the Eastern Hemisphere from 
-aristocracies to communist states in the 20th century resulted in an abnormal degree of violence, in 
-great part because the concept of "good as merit" and institutionalized elitism were questioned and 
-pitted against what was believed to be essential for moving forth. A controversial statement is that 
-integration of human beings and their utility of talents are never ideal in the process of actualization, 
-but it is just that some peoples decided to support initiatives that imperiled them to the extent of 
-their lives being cut short, rather than live according to withering means under the mercy of titles 
-rather than honor. To understand how outlandish the ideological concept is attempted in actualization 
-through the progressive span of time, imagine some of the descendants of those communist insurgents 
-today being aristocrats in their own right, their forefathers' responsibilities of wealth management 
-passed on to them as wealth greater than the average of their peers, them sitting around casually 
-sipping Parisian wines conversing with those that are descended from their forefathers' mortal enemies, 
-laughing and smiling like there is no tomorrow, saying "here is to new beginnings" in all kinds of 
-fancy and elegant languages. A humorous remark on the ideological concept is that something about it 
+beliefs on the matter rely on judging the perceptible effects, attributed to the thought, in related 
+spatio-temporal contexts. When there needs to be perceptible effect for there to be proof deemed valid, 
+one can see why institutions such as the political and legal authorities are not known for their 
+foresight or even their hindsight, but for a kind of quasi-scientific application of correspondence 
+theory, especially that of corresponding the recorded perceptible effects to the metaphysical concept of 
+fault (wrongdoing). This is the typical nature of these institutions, regardless of the specific political 
+and religious ideologies of their region of operation. And the reliance on recorded perceptible effects, 
+of course, is jeopardized by the risks of fault from responsibilities for record and representation given 
+to cognition, especially that of sentient life. Shortfalls from this truth can be solved by the 
+actualization of a "permanent good". Both meritocratic pathways and character-building campaigns are 
+or become imperfect by contra-action as well as in-action. So it should come as no surprise to any one, 
+regardless of their being a "modern person", that a predominant degree of rule through institutions of 
+political and legal authority have been done by aristocracy, the bloodline, nobility, per se, in order 
+for phenomena of "business as usual" and unity through anti-competition to proceed. To elaborate more 
+on this by use of a category of evident counter-examples, the transformation of certain regions in the 
+Eastern Hemisphere from aristocracies to communist states in the 20th century resulted in an abnormal 
+degree of violence, in great part because the concept of "good as merit" and institutionalized elitism 
+were questioned and pitted against what was believed to be essential for moving forth. A controversial 
+statement is that integration of human beings and their utility of talents are never ideal in the process 
+of actualization, but it is just that some peoples decided to support initiatives that imperiled them to 
+the extent of their lives being cut short, rather than live according to withering means under the mercy 
+of titles rather than honor. To understand how outlandish the ideological concept is attempted in 
+actualization through the progressive span of time, imagine some of the descendants of those communist 
+insurgents today being aristocrats in their own right, their forefathers' responsibilities of wealth 
+management passed on to them as wealth greater than the average of their peers, them sitting around 
+casually sipping Parisian wines conversing with those that are descended from their forefathers' mortal 
+enemies, laughing and smiling like there is no tomorrow, saying "here is to new beginnings" in all kinds 
+of fancy and elegant languages. A humorous remark on the ideological concept is that something about it 
 is very roundabout: a human being, out of their self-interest, decides to subscribe themself to an 
 ideology, an intangible representational manifestation of the ideal, then they act, and then their 
 actions are judged by the parameters set by the implementation of this intangible representational 
