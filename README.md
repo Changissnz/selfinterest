@@ -4633,4 +4633,18 @@ self-assured in the belief that the puzzle of understanding has been solved. Thu
 that situation only intends to be entertained without being awed or flabberghasted. And that is if 
 the situation is accepted. Otherwise, the events pre-determined for that situation are attempted 
 alteration in qualities of disruption and improvement: patterns are broken, variants are created, 
-splinters diverge from cause original from self-interest. 
+splinters diverge from cause original from self-interest. Innumerable metaphysical layers revolve 
+around and are present before the perceptible appearance in forms such as human beings able to 
+be interacted with by other human beings. Presumptions are only dangerous when those that believe 
+them act on them for causes dangerous in effect to another. There is difficulty in determining how 
+terrible a presumptuous thought. Rather, these thoughts are easier to represent in forms comprehensible 
+to human cognition, but then again, human cognition can understand the representational form and 
+remain misguided in their comprehension, all because of their belief of choice. As for the term 
+"dangerous" in gauging the harm of a thought, approaches that bear the most convincing beliefs on 
+the matter rely on judging the perceptible effects of related spatio-temporal contexts. When there 
+needs to be perceptible effect for there to be proof deemed valid, one can see why institutions such 
+as the political and legal authorities are not known for their foresight or even their hindsight, but 
+by a kind of quasi-scientific application of correspondence theory, specifically that of corresponding 
+the recorded perceptible effects to the metaphysical concept of fault (wrongdoing). This is the typical 
+nature of these institutions, regardless of the specific political and religious ideologies of their 
+region of operation. 
