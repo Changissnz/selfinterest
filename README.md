@@ -4699,7 +4699,7 @@ material application of arguably greed and display of power. Understanding artif
 of principle bear obviously different effects than obeying them. Self-interest has the power to produce 
 information through expression, and this force also has responsibilities of varying degrees to 
 guard certain information. Expression, being elements that are projected outward in ways spanning 
-from quasi-truthful representation of what is and/or was to novelty, is inevitably placed into 
+from quasi-true representation of what is and/or was to novelty, is inevitably placed into 
 consequentialist spheres of influence. When the expression of what is immediately recognizable 
 is discarded as superfluous, there is greater freedom to narrate on it for wanted belief from 
 reception. Expression, after the fact as imitation and/or competitive variant to the product related 
