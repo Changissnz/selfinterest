@@ -4657,7 +4657,7 @@ been enacted through aristocracy, the bloodline, nobility, per se, in order for 
 as usual" and unity through anti-competition to proceed. To elaborate more on this by use of a category 
 of evident counter-examples, the transformation of certain regions in the Eastern Hemisphere from 
 aristocracies to communist states in the 20th century resulted in an abnormal degree of violence, in 
-great part because the concept of "good as merit" and institutionalized elitism was questioned and 
+great part because the concept of "good as merit" and institutionalized elitism were questioned and 
 pitted against what was believed to be essential for moving forth. A controversial statement is that 
 integration of human beings and their utility of talents are never ideal in the process of actualization, 
 but it is just that some peoples decided to support initiatives that imperiled them to the extent of 
