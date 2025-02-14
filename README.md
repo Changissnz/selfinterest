@@ -4633,4 +4633,4 @@ self-assured in the belief that the puzzle of understanding has been solved. Thu
 that situation only intends to be entertained without being awed or flabberghasted. And that is if 
 the situation is accepted. Otherwise, the events pre-determined for that situation are attempted 
 alteration in qualities of disruption and improvement: patterns are broken, variants are created, 
-splinters diverge from original cause. 
+splinters diverge from cause original from self-interest. 
