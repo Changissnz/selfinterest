@@ -4703,5 +4703,9 @@ from quasi-truthful representation of what is and/or was to novelty, is inevitab
 consequentialist spheres of influence. When the expression of what is immediately recognizable 
 is discarded as superfluous, there is greater freedom to narrate on it for wanted belief from 
 reception. Expression, after the fact as imitation and/or competitive variant to the product related 
-to that fact, is expected to produce conflicts of interest. There is the saying "silence is gold" and 
+to that fact, is expected to produce conflicts of interest. Expression can be reasoned to being 
+disruptive because its essence is forced to reckon with what already is, in turn, cast questions 
+on it serving motives outside of the agreement that does not require any more words than what is 
+vital for the objective; this reasoning is yet another example on why reason that turns into that 
+for intended effect is actually command by reason. There is the saying "silence is gold" and 
 gold is less alive than dead. 
