@@ -4682,24 +4682,24 @@ fair exchange. There exist no universal relation between information and the spa
 given to self-interest. Information is an asset, and intellect is a gift for self-interest. In 
 the first exists the potential to exchange, apply, or produce the asset, and is by no means a 
 guarantee of anything past the point of its existence. Societal utility places expectations different 
-for different cultures. It is noteworthy to mention three categories of intellect, the base utilizer 
-of information: Greek, Egyptian, and Chinese. This next generalization of these three categories will 
-disservice the nuances of the whole truth, but it is a credible way of understanding cultural differences 
-in utility of information. Greek culture emphasizes the intellectual pursuit to value the as-is quality 
-of information, and is arguably conducive towards the largest spans of personal freedoms granted to 
-every intellectual. The Egyptians view information as vital only so far as for application; this is 
-seen in their relatively Philistine culture and technological constructs, characteristically, the 
-pyramids. And the Chinese view information as closely tied to intellect in the sense of the institution 
-of education: be subservient to the instructor, study hard, and apply the knowledge acquired for 
-bureaucracy of public familial good. In these characterizations, the informed Chinese can be 
-dangerous because they are institutionally obedient, the Greek can be dangerous because they harness 
-their wits buttressed by their being exposed to relevant information, and the Egyptian can be 
-dangerous because of their relatively instantaneous correlation between information and potential 
-material application of arguably greed and display of power. Understanding artificial axioms 
-of principle bear obviously different effects than obeying them. Self-interest has the power to produce 
-information through expression, and this force also has responsibilities of varying degrees to 
-guard certain information. Expression, elements that are projected outward in ways spanning 
-from quasi-true representation of what is and/or was to novelty, is inevitably placed into 
+for different cultures. It is noteworthy to mention three cultural categories of intellect, the foremost 
+utilizer of information: Greek, Egyptian, and Chinese. This next generalization of these three 
+categories will disservice the nuances of the whole truth, but it is a credible way of understanding 
+cultural differences in utility of information. Greek culture emphasizes the intellectual pursuit to 
+value the as-is quality of information, and is arguably conducive towards the largest spans of 
+personal freedoms granted to every intellectual. The Egyptians view information as vital only so far 
+as for application; this is seen in their relatively Philistine culture and technological constructs, 
+characteristically, the pyramids. And the Chinese view information as closely tied to intellect in 
+the sense of the institution of education: be subservient to the instructor, study hard, and apply 
+the knowledge acquired for bureaucracy of public familial good. In these characterizations, the 
+informed Chinese can be dangerous because they are institutionally obedient, the Greek can be dangerous 
+because they harness their wits buttressed by their being exposed to relevant information, and the 
+Egyptian can be dangerous because of their relatively instantaneous correlation between information 
+and potential material application of arguably greed and display of power. Understanding artificial 
+axioms of principle bear obviously different effects than obeying them. Self-interest has the power 
+to produce information through expression, and this force also has responsibilities of varying 
+degrees to guard certain information. Expression, elements that are projected outward in ways 
+spanning from quasi-true representation of what is and/or was to novelty, is inevitably placed into 
 consequentialist spheres of influence. When the expression of what is immediately recognizable 
 is discarded as superfluous, there is greater freedom to narrate on it for wanted belief from 
 reception. Expression, after the fact as imitation and/or competitive variant to the product related 
