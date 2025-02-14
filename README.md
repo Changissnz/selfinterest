@@ -4676,4 +4676,5 @@ An essence of fault in ideology is that the labeling system cannot change as qui
 movement. But in the informatic representation, a sizable portion of the matters of information, 
 the generalities are thesis and are preferentially used, instead of plots centering around the 
 specific individuals alongside universals such as the Seven Deadly Sins and innocence, to distinguish 
-groups of human population. 
+groups of human population. An example of the bias-complexity tradeoff, reinforced by the will that 
+produces self-interests that cannot conduct meaningful communication and fair exchange. 
