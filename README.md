@@ -4651,9 +4651,9 @@ region of operation. And the reliance on recorded perceptible effects, of course
 the risks of fault from responsibilities for record and representation given to cognition, especially 
 that of sentient life. Shortfalls from this truth can be solved by the actualization of a "permanent 
 good". Both meritocratic pathways and character-building campaigns are or become imperfect by contra-action 
-as well as in-action. So it should come to no surprise to any one, regardless of their being a "modern 
+as well as in-action. So it should come as no surprise to any one, regardless of their being a "modern 
 person", that a predominant degree of rule through institutions of political and legal authority have 
-been enacted through aristocracy, the bloodline, nobility, per se, in order for phenomena of "business 
+been done by aristocracy, the bloodline, nobility, per se, in order for phenomena of "business 
 as usual" and unity through anti-competition to proceed. To elaborate more on this by use of a category 
 of evident counter-examples, the transformation of certain regions in the Eastern Hemisphere from 
 aristocracies to communist states in the 20th century resulted in an abnormal degree of violence, in 
@@ -4676,6 +4676,19 @@ manifestation. An essence of fault in ideology is that the labeling system canno
 as specific movement. But in the informatic representation, a sizable portion of the matters of 
 information, the generalities are thesis and are preferentially used, instead of plots centering 
 around the specific individuals alongside universals such as the Seven Deadly Sins and innocence, 
-to distinguish groups of human population. An example of the bias-complexity tradeoff, reinforced 
-by the will that leads to self-interests that cannot conduct meaningful communication and fair 
-exchange. 
+to distinguish groups of human population. An application of the bias-complexity tradeoff, reinforced 
+by the will that leads to self-interests that cannot conduct meaningfully bonding communication and 
+fair exchange. There exist no universal relation between information and the spatiotemporal freedoms 
+given to self-interest. Information is an asset, and intellect is a gift for self-interest. In 
+the first exists the potential to exchange, apply, or produce the asset, and is by no means a 
+guarantee of anything past the point of its existence. Societal utility places expectations different 
+for different cultures. It is noteworthy to mention three categories of intellect, the base utilizer 
+of information: Greek, Egyptian, and Chinese. This next generalization of these three categories will 
+disservice the nuances of the whole truth, but is a credible way of understanding the differences in 
+utility of information. Greek culture emphasizes the intellectual pursuit to value the as-is quality 
+of information, and is arguably conducive towards the greatest spans of personal freedoms granted to 
+every intellectual. The Egyptians view information as vital only so far as for application; this is 
+seen in their relatively Philistine culture and technological constructs, characteristically, the 
+Pyramids. And the Chinese view information as closely tied to intellect in the sense of the institution 
+of education: be subservient to the instructor, study hard, and apply the knowledge acquired for the 
+bureaucracy. 
