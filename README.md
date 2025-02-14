@@ -4611,7 +4611,7 @@ century trend of monetizing on information is actually nothing groundbreaking, i
 Greater speed of access to and transmission of information through the medium of the Internet 
 has allowed informatic activity to be easier monetized, since these activities are conducted 
 over programmed self-logging and distributive data services. Calling the greater capabilities 
-of storing and operating information to be more conducive towards disruption is, however, a 
+of storing and operating information more conducive towards disruption is, however, a 
 faulty leap in logic. Information is not exempt from the acclimative quality of self-interest, 
 and it is foolish to forget that although there have been recent events such as the Arab Spring 
 (2010), explained as a consequence of and greatly promoting Internet utility, and diversification 
