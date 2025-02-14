@@ -4647,4 +4647,6 @@ as the political and legal authorities are not known for their foresight or even
 by a kind of quasi-scientific application of correspondence theory, specifically that of corresponding 
 the recorded perceptible effects to the metaphysical concept of fault (wrongdoing). This is the typical 
 nature of these institutions, regardless of the specific political and religious ideologies of their 
-region of operation. 
+region of operation. And the reliance on recorded perceptible effects, of course, is jeopardized by 
+the risks of fault from responsibilities for record and representation given to cognition, especially 
+that of sentient life. 
