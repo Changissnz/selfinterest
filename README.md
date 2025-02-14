@@ -4696,8 +4696,8 @@ informed Chinese can be dangerous because they are institutionally obedient, the
 because they harness their wits buttressed by their being exposed to relevant information, and the 
 Egyptian can be dangerous because of their relatively instantaneous correlation between information 
 and potential material application of arguably greed and display of power. Understanding artificial 
-axioms of principle bear obviously different effects than obeying them. Self-interest has the power 
-to produce information through expression, and this force also has responsibilities of varying 
+axioms of principle obviously bears effects different than by obeying them. Self-interest has the 
+power to produce information through expression, and this force also has responsibilities of varying 
 degrees to guard certain information. Expression, elements that are projected outward in ways 
 spanning from quasi-true representation of what is and/or was to novelty, is inevitably placed into 
 consequentialist spheres of influence. When the expression of what is immediately recognizable 
