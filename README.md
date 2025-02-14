@@ -4654,4 +4654,12 @@ good". Both meritocratic pathways and character-building campaigns are or become
 as well as in-action. So it should come to no surprise to any one, regardless of their being a "modern 
 person", that a predominant degree of rule through institutions of political and legal authority have 
 been enacted through aristocracy, the bloodline, nobility, per se, in order for phenomena of "business 
-as usual" and unity through anti-competition can proceed. 
+as usual" and unity through anti-competition to proceed. To elaborate more on this by use of a category 
+of evident counter-examples, the transformation of certain regions in the Eastern Hemisphere from 
+aristocracies to communist states in the 20th century resulted in an abnormal degree of violence, in 
+great part because the concept of "good as merit" and institutionalized elitism was questioned and 
+pitted against what was believed to be essential for moving forth. A controversial statement is that 
+integration of human beings and their utility of talents are never ideal in the process of actualization, 
+but it is just that some peoples decided to support initiatives that imperiled them to the extent of 
+their lives being cut short, rather than live according to withering means under the mercy of titles 
+rather than honor. 
