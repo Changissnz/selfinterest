@@ -4600,10 +4600,10 @@ out of question by an other.
 The relation between self-interest and information is indeed complicated. This complication is 
 a consequence of self-interest having to be economical due to its not being self-contained. The 
 principles required to be harnessed in ways of precision for wanted products of effects is 
-variable in difficulty. And the styles of expressing these principles to be understood by 
-human beings is also variable. So the starting point consists of principles to be known, and 
-the principles do not have to be expressed by human beings in forms accurate and simple. Also, 
-there is no universal rule that an arbitrary principle need be understood by a human being; this 
+variable in difficulty of understanding. And the styles of expressing these principles to be 
+understood by human beings is also variable. So the starting point consists of principles to be 
+known, and the principles do not have to be expressed by human beings in forms accurate and simple. 
+Also, there is no universal rule that an arbitrary principle need be understood by a human being; this 
 alone is part of the explanation for the consequentialist ways that human societies operate by. 
 If information is an asset, and it is when especially recorded into perceptible forms, then 
 the knowledgeable human being is one of the closest entities next to information. The 21st 
@@ -4637,16 +4637,21 @@ splinters diverge from cause original from self-interest. Innumerable metaphysic
 around and are present before the perceptible appearance in forms such as human beings able to 
 be interacted with by other human beings. Presumptions are only dangerous when those that believe 
 them act on them for causes dangerous in effect to another. There is difficulty in determining how 
-terrible a presumptuous thought. Rather, these thoughts are easier to represent in forms comprehensible 
-to human cognition, but then again, human cognition can understand the representational form and 
-remain misguided in their comprehension, all because of their belief of choice. As for the term 
-"dangerous" in gauging the harm of a thought, approaches that bear the most convincing beliefs on 
-the matter rely on judging the perceptible effects of related spatio-temporal contexts. When there 
-needs to be perceptible effect for there to be proof deemed valid, one can see why institutions such 
-as the political and legal authorities are not known for their foresight or even their hindsight, but 
-by a kind of quasi-scientific application of correspondence theory, specifically that of corresponding 
+terrible a presumptuous thought is. Rather, these thoughts are easier to represent in forms comprehensible 
+to human cognition but, then again, human cognition can understand the representational form and 
+remain misguided in their comprehension of the represented, all because of their belief of choice. As 
+for the term "dangerous" in gauging the harm of a thought, approaches that bear the most convincing 
+beliefs on the matter rely on judging the perceptible effects of related spatio-temporal contexts. 
+When there needs to be perceptible effect for there to be proof deemed valid, one can see why institutions 
+such as the political and legal authorities are not known for their foresight or even their hindsight, 
+but for a kind of quasi-scientific application of correspondence theory, specifically that of corresponding 
 the recorded perceptible effects to the metaphysical concept of fault (wrongdoing). This is the typical 
 nature of these institutions, regardless of the specific political and religious ideologies of their 
 region of operation. And the reliance on recorded perceptible effects, of course, is jeopardized by 
 the risks of fault from responsibilities for record and representation given to cognition, especially 
-that of sentient life. 
+that of sentient life. Shortfalls from this truth can be solved by the actualization of a "permanent 
+good". Both meritocratic pathways and character-building campaigns are or become imperfect by contra-action 
+as well as in-action. So it should come to no surprise to any one, regardless of their being a "modern 
+person", that a predominant degree of rule through institutions of political and legal authority have 
+been enacted through aristocracy, the bloodline, nobility, per se, in order for phenomena of "business 
+as usual" and unity through anti-competition can proceed. 
