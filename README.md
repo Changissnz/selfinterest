@@ -4518,7 +4518,7 @@ change in existence but in effecting phenomena. So there are phenomena and exist
 that become input for perception, and perception recognizes, in belief, eventualities and certainties 
 that are to be. Processes to recognize particular phenomena as "human conflict" are themselves part 
 of the problem. A starving man is different from both a broken man and a decapitated man, for one. The 
-acclimative quality of self-interest in the context of economic wrongdoings, specifically that of 
+acclimative property of self-interest in the context of economic wrongdoings, specifically that of 
 finances and resources, possibly complicated in understanding by discrepancies in informatic 
 representation, is why valuation systems serve dual purposes, one being silent killers or at least, 
 silent strikers before the easy kill. Studies of Ancient Roman geopolitics offer a questionable but 
@@ -4526,7 +4526,7 @@ valuable lesson: in some circumstances, allies that are not inward offendors hav
 political value than friends that cannot let go. The physical peace that economies, alongside such 
 things as civics, usher into human societies and prolong is difficult to gauge outside of empirical 
 measures that include production, trade, and occupation. This difficulty has to do with the subjectivity 
-in judging human behavior and co-existing with human cultures. And the acclimative quality of 
+in judging human behavior and co-existing with human cultures. And the acclimative property of 
 self-interest implies a few prevailing truths in the economic context. Circumstances could always get 
 worse; these circumstances could get worse for one if one were to "break rank" from their duties. 
 Another truth is that if one cannot find happiness in living in their present rife with underachievement 
@@ -4612,7 +4612,7 @@ Greater speed of access to and transmission of information through the medium of
 has allowed informatic activity to be easier monetized, since these activities are conducted 
 over programmed self-logging and distributive data services. Calling the greater capabilities 
 of storing and operating information more conducive towards disruption is, however, a 
-faulty leap in logic. Information is not exempt from the acclimative quality of self-interest, 
+faulty leap in logic. Information is not exempt from the acclimative property of self-interest, 
 and it is foolish to forget that although there have been recent events such as the Arab Spring 
 (2010), explained as a consequence and promotion of Internet utility, and diversification of 
 media sources, these events of grandeur, greatness, and unexpectations are because of the 
@@ -4627,7 +4627,7 @@ have to pertain to axiom. These two categories of examples are what the instance
 plan and strive for. Where there is intention from self-interest, there is no stochastic coincidence 
 from sentient life. Such is the wholeness that is true when there is perfect information on perceptible 
 chains of events that occurred. The striking appearance loses its luster when the knowledge of its causes 
-that were acted out of self-interest, these causes being the principle of relevance at the perceptible 
+that were acted out of self-interest, these causes being the principle of relevance for the perceptible 
 level, become known. Naivety shrivels away from cognition, and replaced by this state of mind is an 
 acceptance self-assured in the belief that the puzzle of understanding has been solved. Thus, one's 
 presence in that situation only intends to be entertained without being awed or flabberghasted. And that 
