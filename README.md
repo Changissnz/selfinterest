@@ -4713,4 +4713,5 @@ There is the saying "silence is gold", and gold is less alive than it is dead.
 ## More on philosophies of self-interest #65 
 
 The media serves as the foremost primary category to distinguish and connect elements that exist 
-in the same world. 
+in the same world. Representation would not able to be known, so realization of objectives that 
+concern representation is cut short. 
