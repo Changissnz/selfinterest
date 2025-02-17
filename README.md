@@ -4763,8 +4763,12 @@ can be objectively discussed only by the information known of fact and principle
 encourages the sentient desire to understand and control the media; cliche, yes. And the statements 
 made on the facts and that of principle need to satisfy one main area to be believable: the effects 
 that may, in turn, be the ends for some objective. The middle agent is perhaps the most important 
-category in environments with entities that are not self-sufficient in some way. When there is 
-sufficiency, the desire to politick is elevated to the forefront of priorities, labeled under the 
-umbrella terms, "defense" and "order", and with this desire is followed up by demands to control 
-the representation, the representation being that of intended outermost appearance with intentions 
-of its design possibly extending all the way down to the depths of personal interpretation. 
+category in environments with entities that are not self-sufficient in some way. Phenomena of one 
+nation-state being economically coupled to another provides the most easily comprehensible examples 
+of the relevance of middle agents, they with their designated roles in transportation, marketing, 
+and distribution are regarded in the same vein in their area of operation as the foreign producers 
+themselves. When there is sufficiency, the desire to politick is elevated to the forefront of 
+priorities, labeled under the umbrella terms, "defense" and "order", and with this desire is followed 
+up by demands to control the representation, the representation being that of intended outermost 
+appearance with intentions of its design possibly extending all the way down to the depths of 
+personal interpretation. 
