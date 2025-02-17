@@ -4765,4 +4765,6 @@ made on the facts and that of principle need to satisfy one main area to be beli
 that may, in turn, be the ends for some objective. The middle agent is perhaps the most important 
 category in environments with entities that are not self-sufficient in some way. When there is 
 sufficiency, the desire to politick is elevated to the forefront of priorities, labeled under the 
-umbrella of "defense" and "order". 
+umbrella terms, "defense" and "order", and with this desire is followed up by demands to control 
+the representation, the representation being that of intended outermost appearance with intentions 
+of its design possibly extending all the way down to the depths of personal interpretation. 
