@@ -4750,4 +4750,5 @@ mathematician that requires concentration, they would be wise to practice a negl
 of equations on matters outside of their immediate field, matters that intersect with other fields, 
 since the equations in social matters, especially, seldom remain singularly objective for long. And 
 even if singularly objective, the equation could not be more important than the prospects for making 
-dues on top of that equation. 
+dues on top of that equation. Why would self-interest turn into a static force upon the social arrivals 
+of equations in relation to its host? 
