@@ -4761,5 +4761,6 @@ acknowledge; axioms of natural law are not bound to sentient action or belief fo
 Thus, the concept of pre-determinism, for human beings, for any being with their self-interest, 
 can be objectively discussed only by the information known of fact and principle. This truth then 
 encourages the sentient desire to understand and control the media; cliche, yes. And the statements 
-made on the facts and that of principle needs to satisfy one main area to be believable: the effects 
-which may, in turn, be the ends for some objective. 
+made on the facts and that of principle need to satisfy one main area to be believable: the effects 
+that may, in turn, be the ends for some objective. The middle agent is perhaps the most important 
+category in environments with entities that are not self-sufficient in some way. 
