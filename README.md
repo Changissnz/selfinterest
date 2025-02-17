@@ -4781,4 +4781,9 @@ self-interest. The media has conservative qualities associated with it, despite 
 leanings in the context of socio-political media. There are the ends that need to be preserved in 
 most cases, except for in ones such as those involving projectiles. Currency is an example of the 
 efficiency that human beings have aimed for in their interactions of material and socio-political 
-gains. 
+gains. Currency typically weighs less than the material exchanged for it, and cannot be compared 
+with services that are compensated for with currency. Yet, in ordered societies, the official 
+economy operates by currency rather than arbitrary barter. Currency is a medium that represents 
+the value of all purchasable products or services, and the power above it that is the terms of 
+the market of value is the base of support for the continuation of currency as the medium for 
+the ends of value through exchange and possession. 
