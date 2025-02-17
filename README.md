@@ -4782,7 +4782,7 @@ leanings in the context of socio-political media. There are the ends that need t
 most cases, except for in ones such as those involving projectiles. Currency is an example of the 
 efficiency that human beings have aimed for in their interactions of material and socio-political 
 gains or losses. Currency typically weighs less than the material exchanged for it, and cannot be 
-qualitatively compared with services that are compensated for with currency. Yet, in ordered societies, 
+qualitatively compared with services that are compensated with currency. Yet, in ordered societies, 
 the official economy operates by currency rather than arbitrary barter. Currency is a medium that 
 represents the value of all products and services of value, and the power above it that is the terms 
 of the valuation market is the base of support for the continuation of the currency, the medium 
@@ -4795,7 +4795,7 @@ consenting parties. And with that purpose, currency is supposed to compensate fo
 the past and in store. How can currency compensate those that have experienced those things against 
 their will, now monetarily valued by the currency? A great deal of a factor on the usage of currency 
 is the exchange should be agreed on by the two ends of sender and receiver. But that is the ideal 
-case. And in practice, as already stated, currency is powered by the terms of the valuation 
+case. In practice, as already stated, currency is powered by the terms of the valuation 
 market, and this representation of value, as inanimate as it is, is beholden to the powers above 
 it, in which human beings from many walks of life can contribute their judgments and proclivities 
 towards its practice, demonstrated by stock market activity. The concept of "capitalism" has 
@@ -4812,10 +4812,10 @@ and then the matters concerning human beings and their societies labeled as capi
 all under umbrellas of some combinatorial fusing of the state and familial bloodline, forever a zone 
 so gray the zone spurs demand for human expertise, from the services economy, to clarify on the 
 ambiguities of the media and the ends at play. The truths from the many pathways of complex chains 
-of events and also the reasoning and defaults for those occurrences are all comparable to one another, 
+of events and also the reasoning and defaults for those occurrences are all comparable with one another, 
 that is for sure. The media pertains to self-interest, in the contexts that the hosts of self-interest 
 exist and operate in, all the way down to the oxygen required to sustain most of sentient life. 
-A rich irony that is need of being stated, in conclusion, is that the more control is applied onto 
+A rich irony that is in need of being stated, in conclusion, is that the more control is applied onto 
 the media, the less expansion and divergence for the changes wanted by the ends, and the furthering 
 of these limitations are a cause for the deterioration of the media in between the ends that just does 
 not know how to satisfy any end, the balance that the media must be. And that is probably why the ends 
