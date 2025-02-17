@@ -4755,4 +4755,4 @@ of equations in relation to its host? In the same vein that planet Earth can be 
 of gravity, man and woman alike have always sought to be equated with some ways. The most fundamental 
 cause for this desire to seek the representative position is that since man and woman are both human 
 beings, this cause is that human beings are bound to be "political animals" in their interactions with 
-one another, with regards to their expectations and the actual of other expectations. 
+one another, with regards to their expectations and the actual of others' expectations. 
