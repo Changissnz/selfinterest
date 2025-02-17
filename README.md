@@ -4766,10 +4766,15 @@ that may, in turn, be the ends for some objective. The middle agent is perhaps t
 category in environments with entities that are not self-sufficient in some way. Phenomena of one 
 nation-state being economically coupled to another provides the most easily comprehensible examples 
 of the relevance of middle agents, they with their designated roles in transportation, marketing, 
-and distribution are regarded in the same vein in their area of operation as the foreign producers 
+and distribution regarded in the same vein in their area of operation as the foreign producers 
 themselves. When there is material sufficiency, the desire to politick is elevated to the forefront 
 of priorities, labeled under the umbrella terms, "defense" and "order", and with this desire is 
 followed up by demands to control the representation through the media, the representation being 
 that of intended outermost appearance with intentions for its design possibly extending all the way 
-down to the depths of personal interpretation. The media is that important for it to be an ends of 
-itself. The media could slant to becoming the source of focus to direct the ends. 
+down to the depths of personal interpretation. The media is that important for some to view it as an 
+ends itself. Then the media slants to becoming the source of focus to direct the ends. The artificial 
+axioms that self-interest employs to direct sentient decision-making are applied to the material world, 
+and the hosts of self-interest in a busy world, structured for its members to continue on in ways 
+designated explicitly or implicitly, are in the metaphorical spotlight, positions prime to being 
+recognized as representatives of "practice" and "ideal" alike, these two embodied by the host of 
+self-interest. 
