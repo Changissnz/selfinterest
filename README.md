@@ -4742,4 +4742,6 @@ gravity, and still serves as the central source for human beings' personal disco
 today. Planet Earth's relatively constant existence gives cognition a base of reasoning about gravity, 
 one of the axioms of natural law. Gravity is not just an abstract concept, but something very real, 
 technically understood to the extent of scientific formulae that predict the gravitional pull of the 
-planet onto objects both falling towards it and resting on it. 
+planet on objects both falling towards and resting on it. Cognition, in tasks that do not solely focus 
+on the force of gravity, could instead equate gravity with planet Earth and still generate thoughts 
+of qualities acceptable enough for actions to take place for the intended effects. 
