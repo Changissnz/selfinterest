@@ -4729,7 +4729,7 @@ the unintended coincidence could grant the base for furthering understanding, an
 understanding for the topic of that understanding actualizes into something much more pronounced 
 in effect, due to the economy of absolute effort concentrated into the one route, lessening the 
 chances for collateral messiness. The evolution of forms for media, as well as the constant 
-ever-subjective labeling schematics for what are media and ends, due to context-switching, 
+of ever-subjective labeling schematics for what are media and ends, due to context-switching, 
 are some of the reasons for the validity of the assumption of lack of expectations. The ends 
 encompass the span for the whole, and the whole can be known to certain depths. But in between, 
 there are infinitessimal essences that drive derivation of a source form into different forms, 
@@ -4741,7 +4741,13 @@ emotions as feedback on reason. Planet Earth was how human beings back then pers
 gravity, and still serves as the central source for human beings' personal discoveries of gravity 
 today. Planet Earth's relatively constant existence gives cognition a base of reasoning about gravity, 
 one of the axioms of natural law. Gravity is not just an abstract concept, but something very real, 
-technically understood to the extent of scientific formulae that predict the gravitional pull of the 
+technically understood to the extent of scientific formulae that predict the gravitional pull from the 
 planet on objects both falling towards and resting on it. Cognition, in tasks that do not solely focus 
 on the force of gravity, could instead equate gravity with planet Earth and still generate thoughts 
-of quality acceptable enough for actions to take place for the intended effects. 
+of quality acceptable enough for actions to take place for the intended effects. Equations that 
+balance non-null differences between the two ends are a high frequency in cognitive use. For the 
+mathematician that requires concentration, they would be wise to practice a neglect of the applications 
+of equations on matters outside of their immediate field, matters that intersect with other fields, 
+since the equations in social matters, especially, seldom remain singularly objective for long. And 
+even if singularly objective, the equation could not be more important than the prospects for making 
+dues on top of that equation. 
