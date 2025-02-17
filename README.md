@@ -4729,8 +4729,12 @@ the unintended coincidence could grant the base for furthering understanding, an
 understanding for the topic of that understanding actualizes into something much more pronounced 
 in effect, due to the economy of absolute effort concentrated into the one route, lessening the 
 chances for collateral messiness. The evolution of forms for media, as well as the constant 
-ever-subjective labeling schematics for what is media and ends, due to context-switching, 
+ever-subjective labeling schematics for what are media and ends, due to context-switching, 
 are some of the reasons for the validity of the assumption of lack of expectations. The ends 
 encompass the span for the whole, and the whole can be known to certain depths. But in between, 
-there are infinitessimal essences to derive different forms from a source form, and also 
-liabilities of transmission between the ends that are usually more fixed than the in-between. 
+there are infinitessimal essences that drive derivation of a source form into different forms, 
+and also liabilities of transmission between the ends that are usually more fixed than the in-between. 
+Consider gravity, one of the axioms of natural law. Discoveries of gravity did not take place in 
+a vacuum, for there would be none. Neither did the discoveries take place by internally contemplating 
+on the many universals, via combinatorial processes of rational-like representation of emotions and 
+emotions as feedback on reason. 
