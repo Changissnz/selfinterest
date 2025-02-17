@@ -4753,5 +4753,6 @@ even if singularly objective, the equation could not be more important than the 
 dues on top of that equation. Why would self-interest turn into a static force upon the social arrivals 
 of equations in relation to its host? In the same vein that planet Earth can be equated with the force 
 of gravity, man and woman alike have always sought to be equated with some ways. The most fundamental 
-reason for this desire to seek the representative position is because man and woman are both human 
-beings, and a gift for this quality is that man and woman are both "political animals". 
+cause for this desire to seek the representative position is that since man and woman are both human 
+beings, this cause is that human beings are bound to be "political animals" in their interactions with 
+one another regarding their expectations and the actual of other expectations. 
