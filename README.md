@@ -4719,7 +4719,7 @@ objectives that concern representation is cut short. Every self-aware entity wou
 the remaining whole, existing in accordance with their bodily and cognitive mechanisms, and with no 
 capability to interact with the external. Inanimate objects would not be able to travel from point 
 to different point. The world would be fixed in place, and sentience be of little significance 
-alongside the inanimate. This then makes for phenomena most convincing to be pre-determined, the 
-complications from potential streamlined into deterministic processes known before they occur, 
+alongside the inanimate. This then makes for phenomena most convincing of being pre-determined, 
+the complications from potential streamlined into deterministic processes known before they occur, 
 so that after the occurrence is the supporting proof of the argument, which turned out not to be 
 an argument against a plausible counter but a wholesome truth expressed on the actual.
