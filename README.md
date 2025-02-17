@@ -4721,4 +4721,5 @@ capability to interact with the external. Inanimate objects would not be able to
 to different point. The world would be fixed in place, and sentience be of little significance 
 alongside the inanimate. This then makes for phenomena most convincing to be pre-determined, the 
 complications from potential streamlined into deterministic processes known before they occur, 
-so that after the occurrence is the proof.  
+so that after the occurrence is the supporting proof of the argument, which turned out not to be 
+an argument against a plausible counter but a wholesome truth expressed on the actual.
