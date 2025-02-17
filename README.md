@@ -4767,8 +4767,9 @@ category in environments with entities that are not self-sufficient in some way.
 nation-state being economically coupled to another provides the most easily comprehensible examples 
 of the relevance of middle agents, they with their designated roles in transportation, marketing, 
 and distribution are regarded in the same vein in their area of operation as the foreign producers 
-themselves. When there is sufficiency, the desire to politick is elevated to the forefront of 
-priorities, labeled under the umbrella terms, "defense" and "order", and with this desire is followed 
-up by demands to control the representation, the representation being that of intended outermost 
-appearance with intentions of its design possibly extending all the way down to the depths of 
-personal interpretation. 
+themselves. When there is material sufficiency, the desire to politick is elevated to the forefront 
+of priorities, labeled under the umbrella terms, "defense" and "order", and with this desire is 
+followed up by demands to control the representation through the media, the representation being 
+that of intended outermost appearance with intentions for its design possibly extending all the way 
+down to the depths of personal interpretation. The media is that important for it to be an ends of 
+itself. The media could slant to becoming the source of focus to direct the ends. 
