@@ -4716,10 +4716,10 @@ The media serves as the foremost primary category to distinguish and connect ele
 in the same world. Media is for the ends that rely on it, and is itself an ends for certain 
 objectives. Without the media, representation would not be able to be known, so realization of 
 objectives that concern representation is cut short. Every self-aware entity would be disjoint from 
-the remaining whole, existing in accordance with their bodily and cognitive mechanisms, and with no 
-capability to interact with the external. Inanimate objects would not be able to travel from point 
-to different point. The world would be fixed in place, and sentience be of little significance 
-alongside the inanimate. This then makes for phenomena most convincing of being pre-determined, 
-the complications from potential streamlined into deterministic processes known before they occur, 
-so that after the occurrence is the supporting proof of the argument, which turned out not to be 
-an argument against a plausible counter but a wholesome truth expressed on the actual.
+the remaining whole, existing in accordance with their lone bodily and cognitive mechanisms, and with 
+no capability to interact with the external. Inanimate objects would not be able to be transferred 
+from point to different point. The world would be fixed in place, and sentience be of little 
+significance alongside the inanimate. This then makes for phenomena most convincing of being 
+pre-determined, the complications from potential streamlined into deterministic processes known 
+before they occur, so that after the occurrence is the supporting proof of the argument, which turned 
+out not to be an argument against a plausible counter but a wholesome truth expressed on the actual. 
