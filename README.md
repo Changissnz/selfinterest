@@ -4794,8 +4794,8 @@ to think on. The medium of currency is designed to be exchanged, typically betwe
 consenting parties. And with that purpose, currency is supposed to compensate for effected ends of 
 the past and in store. How can currency compensate those that have experienced those things against 
 their will, now monetarily valued by the currency? A great deal of a factor on the usage of currency 
-is that the exchange should be agreed on by the two ends of sender and receiver. But that is the 
-ideal case. And in practice, as already stated, currency is powered by the terms of the valuation 
+is the exchange should be agreed on by the two ends of sender and receiver. But that is the ideal 
+case. And in practice, as already stated, currency is powered by the terms of the valuation 
 market, and this representation of value, as inanimate as it is, is beholden to the powers above 
 it, in which human beings from all walks of life can contribute their judgments and proclivities 
 towards its practice, demonstrated by stock market activity. The concept of "capitalism" has 
@@ -4806,4 +4806,4 @@ aristocracy, both guaranteeing stability to certain degrees, and differing in th
 state and the familial-based society being the anti-source for unwanted change. And what is really 
 guaranteed, regardless of circumstances, from these alternative routes outside of capitalist 
 valuation systems without the "will of the people" also somehow having to be pre-occupied with 
-the corrections and maintenance that need to continually occur. 
+the corrections and maintenance that need to continually occur? 
