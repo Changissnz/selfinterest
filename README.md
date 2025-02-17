@@ -4714,7 +4714,8 @@ There is the saying "silence is gold", and gold is less alive than it is dead.
 
 The media serves as the foremost primary category to distinguish and connect elements that exist 
 in the same world. Media is for the ends that rely on it, and is itself an ends for certain 
-objectives. Representation would not be able to be known, so realization of objectives that concern 
-representation is cut short. Every self-aware entity would be disjoint from the remaining 
-whole, existing in accordance with their bodily and cognitive mechanisms. Inanimate objects would 
-not be able to travel from point to different point. The world would be fixed in place. 
+objectives. Without the media, representation would not be able to be known, so realization of 
+objectives that concern representation is cut short. Every self-aware entity would be disjoint from 
+the remaining whole, existing in accordance with their bodily and cognitive mechanisms. Inanimate 
+objects would not be able to travel from point to different point. The world would be fixed in place, 
+and sentience of little significance alongside the inanimate. 
