@@ -4728,4 +4728,9 @@ fact, the two concepts are greatly intertwined with one another, in which contro
 the unintended coincidence could grant the base for furthering understanding, and actions from 
 understanding for the topic of that understanding actualizes into something much more pronounced 
 in effect, due to the economy of absolute effort concentrated into the one route, lessening the 
-chances for collateral messiness.  
+chances for collateral messiness. The evolution of forms for media, as well as the constant 
+ever-subjective labeling schematics for what is media and ends, due to context-switching, 
+are some of the reasons for the validity of the assumption of lack of expectations. The ends 
+encompass the span for the whole, and the whole can be known to certain depths. But in between, 
+there are infinitessimal essences to derive different forms from a source form, as well as the 
+liabilities of transmission between the ends that are usually more fixed than the in-between. 
