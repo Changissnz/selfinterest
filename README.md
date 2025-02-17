@@ -4744,4 +4744,4 @@ one of the axioms of natural law. Gravity is not just an abstract concept, but s
 technically understood to the extent of scientific formulae that predict the gravitional pull of the 
 planet on objects both falling towards and resting on it. Cognition, in tasks that do not solely focus 
 on the force of gravity, could instead equate gravity with planet Earth and still generate thoughts 
-of qualities acceptable enough for actions to take place for the intended effects. 
+of quality acceptable enough for actions to take place for the intended effects. 
