@@ -4807,7 +4807,9 @@ state and the familial-based society being the anti-source for unwanted change. 
 guaranteed, regardless of circumstances, from these alternative routes outside of capitalist 
 valuation systems without the "will of the people" also somehow having to be pre-occupied with 
 the corrections and maintenance that need to continually occur? Ridiculous, really, for things to 
-be so set into place, metaphorically seeping into the blood for the spirit of a people, and then 
-matters concerning human beings and their societies labeled as capitalist, socialist, all under 
-umbrellas of some combinatorial fusing of the state and familial bloodline, forever a zone so gray 
-the zone requires human expertise to clarify on the ambiguities of the media and the ends at play. 
+be so set into place, metaphorically seeping into the blood and brains for the spirit of a people, 
+and then the matters concerning human beings and their societies labeled as capitalist, socialist, 
+all under umbrellas of some combinatorial fusing of the state and familial bloodline, forever a zone 
+so gray the zone requires human expertise to clarify on the ambiguities of the media and the ends at 
+play. The truths from the many pathways of complex chains of events and also the reasoning and defaults 
+for those occurrences are all comparable to one another, that is for sure. 
