@@ -4763,4 +4763,6 @@ can be objectively discussed only by the information known of fact and principle
 encourages the sentient desire to understand and control the media; cliche, yes. And the statements 
 made on the facts and that of principle need to satisfy one main area to be believable: the effects 
 that may, in turn, be the ends for some objective. The middle agent is perhaps the most important 
-category in environments with entities that are not self-sufficient in some way. 
+category in environments with entities that are not self-sufficient in some way. When there is 
+sufficiency, the desire to politick is elevated to the forefront of priorities, labeled under the 
+umbrella of "defense" and "order". 
