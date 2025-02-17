@@ -4735,6 +4735,11 @@ encompass the span for the whole, and the whole can be known to certain depths. 
 there are infinitessimal essences that drive derivation of a source form into different forms, 
 and also liabilities of transmission between the ends that are usually more fixed than the in-between. 
 Consider gravity, one of the axioms of natural law. Discoveries of gravity did not take place in 
-a vacuum, for there would be none. Neither did the discoveries take place by internally contemplating 
+a vacuum, for there would be none. Neither were the discoveries reached by internally contemplating 
 on the many universals, via combinatorial processes of rational-like representation of emotions and 
-emotions as feedback on reason. 
+emotions as feedback on reason. Planet Earth was how human beings back then personally discovered 
+gravity, and still serves as the central source for human beings' personal discoveries of gravity 
+today. Planet Earth's relatively constant existence gives cognition a base of reasoning about gravity, 
+one of the axioms of natural law. Gravity is not just an abstract concept, but something very real, 
+technically understood to the extent of scientific formulae that predict the gravitional pull of the 
+planet onto objects both falling towards it and resting on it. 
