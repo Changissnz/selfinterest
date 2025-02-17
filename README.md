@@ -4798,4 +4798,4 @@ is that the exchange should be agreed on by the two ends of sender and receiver.
 ideal case. And in practice, as already stated, currency is powered by the terms of the valuation 
 market, and this representation of value, as inanimate as it is, is beholden to the powers above 
 it, in which human beings from all walks of life can contribute their judgments and proclivities 
-towards the practice of currency, as demonstrated by stock market activity. 
+towards its practice, demonstrated by stock market activity. 
