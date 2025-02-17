@@ -4722,7 +4722,7 @@ from point to different point. The world would be fixed in place, and sentience 
 significance alongside the inanimate. This then makes for phenomena most convincing of being 
 pre-determined, the complications from potential streamlined into deterministic processes known 
 before they occur, so that after the occurrence is the supporting proof of the argument, which turned 
-out not to be an argument against a plausible counter but a wholesome truth expressed on the actual. 
+out not to be an argument against any plausible counter but a wholesome truth expressed on the actual. 
 By default, self-interest has as much demand for control as it does for the understanding. And in 
 fact, the two concepts are greatly intertwined with one another, in which control acquired through 
 the unintended coincidence could grant the base for furthering understanding, and actions from 
@@ -4731,7 +4731,7 @@ in effect, due to the economy of absolute effort concentrated into the one route
 chances for collateral messiness. The evolution of forms for media, as well as the constant 
 of ever-subjective labeling schematics for what are media and ends, due to context-switching, 
 are some of the reasons for the validity of the assumption of lack of expectations. The ends 
-encompass the span for the whole, and the whole can be known to certain depths. But in between, 
+encompass the span for a whole, and this whole can be known to certain depths. But in between, 
 there are infinitessimal essences that drive derivation of a source form into different forms, 
 and also liabilities of transmission between the ends that are usually more fixed than the in-between. 
 Consider gravity, one of the axioms of natural law. Discoveries of gravity did not take place in 
@@ -4784,6 +4784,8 @@ efficiency that human beings have aimed for in their interactions of material an
 gains. Currency typically weighs less than the material exchanged for it, and cannot be compared 
 with services that are compensated for with currency. Yet, in ordered societies, the official 
 economy operates by currency rather than arbitrary barter. Currency is a medium that represents 
-the value of all purchasable products or services, and the power above it that is the terms of 
-the market of value is the base of support for the continuation of currency as the medium for 
-the ends of value through exchange and possession. 
+the value of all products or services of value, and the power above it that is the terms of 
+the valuation market is the base of support for the continuation of the currency as the medium 
+for the ends of value through exchange and possession. Perhaps this is one of the reasons why 
+the possession or control of currency cannot be guaranteed to be for the "will of the people"; 
+however, the "will of the people" is a topic outside the confines of discussion on media. 
