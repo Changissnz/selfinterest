@@ -4732,5 +4732,5 @@ chances for collateral messiness. The evolution of forms for media, as well as t
 ever-subjective labeling schematics for what is media and ends, due to context-switching, 
 are some of the reasons for the validity of the assumption of lack of expectations. The ends 
 encompass the span for the whole, and the whole can be known to certain depths. But in between, 
-there are infinitessimal essences to derive different forms from a source form, as well as the 
+there are infinitessimal essences to derive different forms from a source form, and also 
 liabilities of transmission between the ends that are usually more fixed than the in-between. 
