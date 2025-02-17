@@ -4771,8 +4771,8 @@ themselves. When there is material sufficiency, the desire to politick is elevat
 of priorities, labeled under the umbrella terms, "defense" and "order", and with this desire is 
 followed up by demands to control the representation through the media, the representation being 
 that of intended outermost appearance with intentions for its design possibly extending all the way 
-down to the depths of personal interpretation. The media is that important for some to view it as an 
-ends itself. Then the media slants to becoming the source of focus to direct the ends. The artificial 
+down to the depths of personal interpretation. The media is that important to some for them to view it as 
+an ends itself. Then the media slants to becoming the source of focus to direct the ends. The artificial 
 axioms that self-interest employs to direct sentient decision-making are applied to the material world, 
 and the hosts of self-interest in a busy world, structured for its members to continue on in ways 
 designated explicitly or implicitly, are in the metaphorical spotlight, positions prime to being 
@@ -4781,9 +4781,9 @@ self-interest. The media has conservative qualities associated with it, despite 
 leanings in the context of socio-political media. There are the ends that need to be preserved in 
 most cases, except for in ones such as those involving projectiles. Currency is an example of the 
 efficiency that human beings have aimed for in their interactions of material and socio-political 
-gains. Currency typically weighs less than the material exchanged for it, and cannot be qualitatively 
-compared with services that are compensated for with currency. Yet, in ordered societies, the 
-official economy operates by currency rather than arbitrary barter. Currency is a medium that 
+gains or losses. Currency typically weighs less than the material exchanged for it, and cannot be 
+qualitatively compared with services that are compensated for with currency. Yet, in ordered societies, 
+the official economy operates by currency rather than arbitrary barter. Currency is a medium that 
 represents the value of all products and services of value, and the power above it that is the terms 
 of the valuation market is the base of support for the continuation of the currency, the medium 
 for the ends of value through exchange and possession. Perhaps this is one of the reasons why 
@@ -4792,4 +4792,10 @@ the possession or control of currency cannot guarantee the "will of the people";
 subcategory where currency is relevant that is a little puzzling, perhaps pathological as well, 
 to think on. The medium of currency is designed to be exchanged, typically between at least two 
 consenting parties. And with that purpose, currency is supposed to compensate for effected ends of 
-the past and in store. 
+the past and in store. How can currency compensate those that have experienced those things against 
+their will, now monetarily valued by the currency? A great deal of a factor on the usage of currency 
+is that the exchange should be agreed on by the two ends of sender and receiver. But that is the 
+ideal case. And in practice, as already stated, currency is powered by the terms of the valuation 
+market, and this representation of value, as inanimate as it is, is beholden to the powers above 
+it, in which human beings from all walks of life can contribute their judgments and proclivities 
+towards the practice of currency, as demonstrated by stock market activity. 
