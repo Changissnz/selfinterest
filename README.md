@@ -4751,4 +4751,7 @@ of equations on matters outside of their immediate field, matters that intersect
 since the equations in social matters, especially, seldom remain singularly objective for long. And 
 even if singularly objective, the equation could not be more important than the prospects for making 
 dues on top of that equation. Why would self-interest turn into a static force upon the social arrivals 
-of equations in relation to its host? 
+of equations in relation to its host? In the same vein that planet Earth can be equated with the force 
+of gravity, man and woman alike have always sought to be equated with some ways. The most fundamental 
+reason for this desire to seek the representative position is because man and woman are both human 
+beings, and a gift for this quality is that man and woman are both "political animals". 
