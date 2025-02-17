@@ -4755,4 +4755,11 @@ of equations in relation to its host? In the same vein that planet Earth can be 
 of gravity, man and woman alike have always sought to be equated with some ways. The most fundamental 
 cause for this desire to seek the representative position is that since man and woman are both human 
 beings, this cause is that human beings are bound to be "political animals" in their interactions with 
-one another, with regards to their expectations and the actual of others' expectations. 
+one another, with regards to their expectations and the actual of others' expectations. Human beings 
+will never be able to control phenomena to an absolute degree. This statement is obvious enough to 
+acknowledge; axioms of natural law are not bound to sentient action or belief for their existence. 
+Thus, the concept of pre-determinism, for human beings, for any being with their self-interest, 
+can be objectively discussed only by the information known of fact and principle. This truth then 
+encourages the sentient desire to understand and control the media; cliche, yes. And the statements 
+made on the facts and that of principle needs to satisfy one main area to be believable: the effects 
+which may, in turn, be the ends for some objective. 
