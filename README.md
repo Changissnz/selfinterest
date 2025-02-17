@@ -4723,3 +4723,8 @@ significance alongside the inanimate. This then makes for phenomena most convinc
 pre-determined, the complications from potential streamlined into deterministic processes known 
 before they occur, so that after the occurrence is the supporting proof of the argument, which turned 
 out not to be an argument against a plausible counter but a wholesome truth expressed on the actual. 
+By default, self-interest has as much demand for control as it does for the understanding. And in 
+fact, the two concepts are greatly intertwined with one another, in which control acquired through 
+the unintended coincidence could grant the base for furthering understanding, and actions from 
+understanding for the topic of that understanding actualizes into something much more pronounced 
+in effect, due to the economy of absolute effort concentrated into the one route. 
