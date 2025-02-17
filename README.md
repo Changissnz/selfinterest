@@ -4777,4 +4777,8 @@ axioms that self-interest employs to direct sentient decision-making are applied
 and the hosts of self-interest in a busy world, structured for its members to continue on in ways 
 designated explicitly or implicitly, are in the metaphorical spotlight, positions prime to being 
 recognized as representatives of "practice" and "ideal" alike, these two embodied by the host of 
-self-interest. 
+self-interest. The media has conservative qualities associated with it, despite the political 
+leanings in the context of socio-political media. There are the ends that need to be preserved in 
+most cases, except for in ones such as those involving projectiles. Currency is an example of the 
+efficiency that human beings have aimed for in their interactions of material and socio-political 
+gains. 
