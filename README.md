@@ -4738,14 +4738,14 @@ Consider gravity, one of the axioms of natural law. Discoveries of gravity did n
 a vacuum, for there would be none. Neither were the discoveries reached by internally contemplating 
 on the many universals, via combinatorial processes of rational-like representation of emotions and 
 emotions as feedback on reason. Planet Earth was how human beings back then personally discovered 
-gravity, and still serves as the central source for human beings' personal discoveries of gravity 
+gravity, and it still serves as the central source for human beings' personal discoveries of gravity 
 today. Planet Earth's relatively constant existence gives cognition a base of reasoning about gravity, 
 one of the axioms of natural law. Gravity is not just an abstract concept, but something very real, 
-technically understood to the extent of scientific formulae that predict the gravitional pull from the 
+technically understood to the extent of scientific formulae that predicts the gravitional pull from the 
 planet on objects both falling towards and resting on it. Cognition, in tasks that do not solely focus 
 on the force of gravity, could instead equate gravity with planet Earth and still generate thoughts 
 of quality acceptable enough for actions to take place for the intended effects. Equations that 
-balance non-null differences between the two ends are a high frequency in cognitive use. For the 
+balance non-null differences between the two ends are a high frequency in cognitive tasks. For the 
 mathematician that requires concentration, they would be wise to practice a neglect of the applications 
 of equations on matters outside of their immediate field, matters that intersect with other fields, 
 since the equations in social matters, especially, seldom remain singularly objective for long. And 
@@ -4770,7 +4770,7 @@ and distribution regarded in the same vein in their area of operation as the for
 themselves. When there is material sufficiency, the desire to politick is elevated to the forefront 
 of priorities, labeled under the umbrella terms, "defense" and "order", and with this desire is 
 followed up by demands to control the representation through the media, the representation being 
-that of intended outermost appearance with intentions for its design possibly extending all the way 
+that of intended outermost appearance with intentions behind its design possibly extending all the way 
 down to the depths of personal interpretation. The media is that important to some for them to view it as 
 an ends itself. Then the media slants to becoming the source of focus to direct the ends. The artificial 
 axioms that self-interest employs to direct sentient decision-making are applied to the material world, 
@@ -4797,9 +4797,9 @@ their will, now monetarily valued by the currency? A great deal of a factor on t
 is the exchange should be agreed on by the two ends of sender and receiver. But that is the ideal 
 case. And in practice, as already stated, currency is powered by the terms of the valuation 
 market, and this representation of value, as inanimate as it is, is beholden to the powers above 
-it, in which human beings from all walks of life can contribute their judgments and proclivities 
+it, in which human beings from many walks of life can contribute their judgments and proclivities 
 towards its practice, demonstrated by stock market activity. The concept of "capitalism" has 
-vulnerabilities, in the sense of the previous statement, when the practice of values becomes 
+vulnerabilities in the sense of the previous statement, evident when the practice of values becomes 
 much fixated on the monetary aspect, so much that concerns have been raised every so often on 
 these practices of inaccuracy that then gives credence to the base constructs of socialism and 
 aristocracy, both guaranteeing stability to certain degrees, and differing in the sense of the 
