@@ -4784,8 +4784,12 @@ efficiency that human beings have aimed for in their interactions of material an
 gains. Currency typically weighs less than the material exchanged for it, and cannot be qualitatively 
 compared with services that are compensated for with currency. Yet, in ordered societies, the 
 official economy operates by currency rather than arbitrary barter. Currency is a medium that 
-represents the value of all products or services of value, and the power above it that is the terms 
-of the valuation market is the base of support for the continuation of the currency as the medium 
+represents the value of all products and services of value, and the power above it that is the terms 
+of the valuation market is the base of support for the continuation of the currency, the medium 
 for the ends of value through exchange and possession. Perhaps this is one of the reasons why 
-the possession or control of currency cannot be guaranteed to be for the "will of the people"; 
-however, the "will of the people" is a topic outside the confines of discussion on media. 
+the possession or control of currency cannot guarantee the "will of the people"; however, the 
+"will of the people" is a topic outside the confines of this discussion on media. There is a 
+subcategory where currency is relevant that is a little puzzling, perhaps pathological as well, 
+to think on. The medium of currency is designed to be exchanged, typically between at least two 
+consenting parties. And with that purpose, currency is supposed to compensate for effected ends of 
+the past and in store. 
