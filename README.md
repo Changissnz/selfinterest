@@ -4727,4 +4727,5 @@ By default, self-interest has as much demand for control as it does for the unde
 fact, the two concepts are greatly intertwined with one another, in which control acquired through 
 the unintended coincidence could grant the base for furthering understanding, and actions from 
 understanding for the topic of that understanding actualizes into something much more pronounced 
-in effect, due to the economy of absolute effort concentrated into the one route. 
+in effect, due to the economy of absolute effort concentrated into the one route, lessening the 
+chances for collateral messiness.  
