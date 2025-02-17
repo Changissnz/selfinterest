@@ -4779,7 +4779,7 @@ designated explicitly or implicitly, are in the metaphorical spotlight, position
 recognized as representatives of "practice" and "ideal" alike, these two embodied by the host of 
 self-interest. The media has conservative qualities associated with it, despite the political 
 leanings in the context of socio-political media. There are the ends that need to be preserved in 
-most cases, except for in ones such as those involving projectiles. Currency is an example of the 
+most cases, except for ones such as those involving projectiles. Currency is an example of the 
 efficiency that human beings have aimed for in their interactions of material and socio-political 
 gains or losses. Currency typically weighs less than the material exchanged for it, and cannot be 
 qualitatively compared with services that are compensated with currency. Yet, in ordered societies, 
