@@ -4817,7 +4817,7 @@ that is for sure. The media pertains to self-interest, in the contexts that the 
 exist and operate in, all the way down to the oxygen required to sustain most of sentient life. 
 A rich irony that is in need of being stated, in conclusion, is that the more control is applied onto 
 the media, the less expansion and divergence for the changes wanted by the ends, and the furthering 
-of these limitations are a cause for the deterioration of the media in between the ends that just does 
-not know how to satisfy any end, the balance that the media must be. And that is probably why the ends 
-are never the eternal or heaven for the human being in life, especially if the human being is an end, 
-thinking and acting for their self-interest, but from the will. 
+of these limitations are a cause for possible deterioration of the media in between the ends that just 
+does not know how to satisfy any end, the balance that the media must be. And that is probably why the 
+ends are never the eternal or heaven for the human being in life, especially if the human being is an 
+end, thinking and acting for their self-interest, but from the will. 
