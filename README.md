@@ -4820,4 +4820,4 @@ the media, the less expansion and divergence for the changes wanted by the ends,
 of these limitations are a cause for possible deterioration of the media in between the ends that just 
 does not know how to satisfy any end, the balance that the media must be. And that is probably why the 
 ends are never the eternal or heaven for the human being in life, especially if a human being is an 
-end, thinking and acting for their self-interest, but from the will. 
+end, thinking and acting for their self-interest but from the will. 
