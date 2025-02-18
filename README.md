@@ -4782,12 +4782,12 @@ leanings in the context of socio-political media. There are the ends that need t
 most cases, except for ones such as those involving projectiles. Currency is an example of the 
 efficiency that human beings have aimed for in their interactions of material and socio-political 
 gains or losses. Currency typically weighs less than the material exchanged for it, and cannot be 
-qualitatively compared with services that are compensated with currency. Yet, in ordered societies, 
-the official economy operates by currency rather than arbitrary barter. Currency is a medium that 
-represents the value of all products and services of value, and the power above it that is the terms 
-of the valuation market is the base of support for the continuation of the currency, the medium 
-for the ends of value through exchange and possession. Perhaps this is one of the reasons why 
-the possession or control of currency cannot guarantee the "will of the people"; however, the 
+qualitatively compared with services that are compensated with currency, in the direct sense. Yet, 
+in ordered societies, the official economy operates by currency rather than arbitrary barter. Currency 
+is a medium that represents the value of all products and services of value, and the power above it 
+that is the terms of the valuation market is the base of support for the continuation of the currency, 
+the medium for the ends of value through exchange and possession. Perhaps this is one of the reasons 
+why the possession or control of currency cannot guarantee the "will of the people"; however, the 
 "will of the people" is a topic outside the confines of this discussion on media. There is a 
 subcategory where currency is relevant that is a little puzzling, perhaps pathological as well, 
 to think on. The medium of currency is designed to be exchanged, typically between at least two 
