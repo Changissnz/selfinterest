@@ -4821,3 +4821,12 @@ of these limitations are a cause for possible deterioration of the media in betw
 does not know how to satisfy any end, the balance that the media must be. And that is probably why the 
 ends are never the eternal or heaven for the human being in life, especially if a human being is an 
 end, thinking and acting for their self-interest but from the will. 
+
+## More on philosophies of self-interest #66 
+
+With utility of the media by choice qualities, there is economy dedicated towards interacting with 
+the related ends. Phenomena of connectivity, partially as designed effect from human beings, poses 
+questions on what the idiom of "minding your own business" really means. A definitive trait of 
+self-interest, a force that is not self-contained for any of its hosts, is reflected in quality 
+onto the media of human design and function, with specific purposes that are always related to 
+improvement and efficiency of form. 
