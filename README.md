@@ -4829,4 +4829,8 @@ the related ends. Phenomena of connectivity, partially as designed effect from h
 questions on what the idiom of "minding your own business" really means. A definitive trait of 
 self-interest, a force that is not self-contained for any of its hosts, is reflected in quality 
 onto the media of human design and function, with specific purposes that are always related to 
-improvement and efficiency of form. 
+improvement and efficiency of form. Media of human design bears the effect of demanding its usage 
+by human beings. Products designed by human beings are placed onto the metaphorical table of choice 
+for objective. It is true that for every product made to act as the answer for an objective, many 
+more competing products failed to reach or surpass the frequency of use for that product. All the 
+same, media is the one categorical class that enables one sentient being to relate to another. 
