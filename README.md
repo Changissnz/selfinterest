@@ -4881,4 +4881,23 @@ or immaterial product. The fixation on utility of accepted form, this being the 
 design in most frequent use, is from the populace as well. As easily as meritocratic systems, reliant on 
 certain media to deliver objective results to distinguish one member from another, can crumble from flukes 
 and favoritism, the choice utility of any media is choice into decision because of the sidedness being at 
-least two and the entry points for deliverance to the ends being at least one. 
+least two and the entry points for deliverance to the end/s being at least one. "Aiming high" and 
+"hitting low" are two routes of effects from the one intention to satisfy the objective. The dominating 
+media of use in activities of service especially, rather than direct product, evolve. Self-interest 
+operates by fundamentals including those of introspection, reflection, expression, and individuation, and 
+for its host to relate to another sentient being, there is media of permanence and that for the temporal 
+service that is completely reliant on the motivation that is a dependency for the will which is, in turn, 
+a dependency for self-interest. There is nothing but scale and influence, absolutely nothing in relation 
+without media, that is a deterrent to the proliferation of actualized improvements and degenerations, 
+alike. It is typically more healthy to privately assume the media is a tool rather than a master, for 
+the sake of sanity for the individual. What travels through the media is subject at least to the media. 
+There is no universal axiom of natural law that states media must be introspective, reflective, expressive, 
+or individuative because of the two reasons, the intentions from self-interest and the all-encompassing 
+contextual application of the term "media". A human being can be a medium as much as inanimate objects 
+and ephemeral words spoken. Contexts change and social networks of human beings organize into different 
+chains of command and delivery, so that even for the same object considered the media, the ends of 
+that media may be subject to what has come to them and still have the confidence to believe themselves 
+to be objective in judgment. This is where accountability is complicated in great part because of  
+inabilities to accept on quantification schemes such that where is question, there needs to be human 
+opinion, just as where there is demand to attribute responsibility, one or more of the ends as well as 
+the existence of the media in its form of features and design must be the one/s that bear the burden. 
