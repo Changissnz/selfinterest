@@ -4835,6 +4835,14 @@ for objective. It is true that for every product made to act as the answer for a
 more competing products failed to reach or surpass the frequency of use for that product. All the 
 same, media is the one categorical class that enables one sentient being to relate to another. The 
 demand of media designed by human beings, those demanded as nutrients for human beings, and even 
-the thoughts intentionally thought of by human beings for their conclusions of sentiment and reason 
-are all pertinent, "alive" in the cognition of experiential sensation and perception, primarily because 
-the frequency of occurrence is not null. 
+the thoughts intentionally thought of by human beings for conclusions of sentiment and reason are 
+all pertinent, "alive" in cognition of experiential sensation and perception, primarily because 
+frequency of occurrence is not null. The choice of human beings to think and act in however ways 
+they want becomes limited not only by their spatiotemporal circumstances, but also by the products 
+that emerge as the common way, artificial axioms that have bested others to suit certain objectives. 
+Human languages are unifying ways of verbal and written expression, since the purpose of communication 
+that cannot deliver meaning past the immediate sound or image fails the objectivity sought for in 
+language. The tools that human beings use, the decorum of attire and other formalities, amongst other 
+aspects are examples of the need for objectivity through decision in media of choice. And in most 
+cases of differing styles and differing products, there is usually a reference that is competed 
+against, and most definitely an original that has splintered into these variants. 
