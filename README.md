@@ -4892,7 +4892,7 @@ without media, that is a deterrent to the proliferation of actualized improvemen
 alike. It is typically more healthy to privately assume the media is a tool rather than a master, for 
 the sake of sanity for the individual. What travels through the media is subject at least to the media. 
 There is no universal axiom of natural law that states media must be introspective, reflective, expressive, 
-or individuative because of the two reasons, the intentions from self-interest and the all-encompassing 
+or individuative because of these two causes, the intentions from self-interest and the all-encompassing 
 contextual application of the term "media". A human being can be a medium as much as inanimate objects 
 and ephemeral words spoken are. Contexts change and social networks of human beings organize into different 
 chains of command and delivery, so that even for the same object considered the media, the ends of 
