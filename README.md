@@ -4839,11 +4839,11 @@ the thoughts intentionally thought of by human beings for conclusions of sentime
 all pertinent, "alive" in cognition of experiential sensation and perception, primarily because 
 frequency of occurrence is not null. The choice of human beings to think and act in however ways 
 they want becomes limited not only by their spatiotemporal circumstances, but also by the products 
-that emerge as the common way, artificial axioms that have bested others to suit certain objectives. 
-Human languages are unifying ways of verbal and written expression, since the purpose of communication 
-that cannot deliver meaning past the immediate sound or image fails the objectivity sought for in 
-language. The tools that human beings use, the decorum of attire and other formalities, amongst other 
-aspects are examples of the need for objectivity through decision in media form of choice. And in 
+that emerge as the common way, perhaps from artificial axioms that have bested others to suit certain 
+objectives. Human languages are unifying ways of verbal and written expression, since the purpose of 
+communication that cannot deliver meaning past the immediate sound or image fails the objectivity sought 
+for in language. The tools that human beings use, the decorum of attire and other formalities, amongst 
+other aspects are examples of the need for objectivity through decision in media form of choice. And in 
 cases of differing styles and differing products, there is usually a reference that is competed 
 against, and most definitely an original that splintered into these variants. Quality alone is 
 insufficient for the human being, one with their self-interest networked with other human beings 
@@ -4855,7 +4855,7 @@ concept of the "free market" is the most prominent of human beings' ideological 
 is for the purposes of promoting improvement in product and enlarging the span of choice, albeit 
 these two purposes cannot fully capture the demand when the demand and the capital are distances 
 apart. On the last clause of this previous statement, the clause is relevant as cause only when 
-there is actual merit of the product, for products that are more in line with artistic style and 
+there is reigning merit from the product, for products that are more in line with artistic style and 
 scientific design are subject to the judgment of human subjectivity. Such is the futility of human 
 preference, really it is bias, that is argued and advocated for as cause when the effects are 
 predicted to guarantee livelihood in the preferred way, stuck in the ways of the form with aversion to 
@@ -4898,6 +4898,6 @@ and ephemeral words spoken are. Contexts change and social networks of human bei
 chains of command and delivery, so that even for the same object considered the media, the ends of 
 that media may be subject to what has come to them and still have the confidence to believe themselves 
 to be objective in judgment. This is where accountability is complicated in great part because of  
-inabilities to accept on quantification schemes such that where is question, there needs to be human 
+inabilities to accept on quantification schemes so that where is question, there needs to be human 
 opinion, just as where there is demand to attribute responsibility, one or more of the ends as well as 
 the existence of the media in its form of features and design must be the one/s that bear the burden. 
