@@ -4859,4 +4859,5 @@ there is actual merit of the product, for products that are more in line with ar
 scientific design are subject to the judgment of human subjectivity. Such is the futility of human 
 preference, really it is bias, that is argued and advocated for as cause when effects guarantee 
 livelihood in the preferred way, stuck in the ways of the form, lack of belief in being proven wrong 
-except for such events that relate to the axiom of natural law, namely, the terminal ends of defeat, severance, and fatality. 
+except for such events that relate to the axiom of natural law, namely, the terminal ends of 
+severance, defeat, and fatality. 
