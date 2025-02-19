@@ -4836,26 +4836,26 @@ more competing products failed to reach or surpass the frequency of use for that
 same, media is the one categorical class that enables one sentient being to relate to another. The 
 demand of media designed by human beings, those demanded as nutrients for human beings, and even 
 the thoughts intentionally thought of by human beings for conclusions of sentiment and reason are 
-all pertinent, "alive" in cognition of experiential sensation and perception, primarily because 
+all pertinent, "alive" in cognition of experiential sensation and perception, primarily when 
 frequency of occurrence is not null. The choice of human beings to think and act in however ways 
 they want becomes limited not only by their spatiotemporal circumstances, but also by the products 
 that emerge as the common way, perhaps from artificial axioms that have bested others to suit certain 
 objectives. Human languages are unifying ways of verbal and written expression, since the purpose of 
 communication that cannot deliver meaning past the immediate sound or image fails the objectivity sought 
-for in language. The tools that human beings use, the decorum of attire and other formalities, amongst 
+for in language. The tools that human beings use, the decorum of attire and formalities, amongst 
 other aspects are examples of the need for objectivity through decision in media form of choice. And in 
 cases of differing styles and differing products, there is usually a reference that is competed 
 against, and most definitely an original that splintered into these variants. Quality alone is 
 insufficient for the human being, one with their self-interest networked with other human beings 
 and their self-interests. There is quality and then there is acceptance that is required, in that 
-order, for one product to be preferred over another product, with regards to the same objective. 
+order, for one product to be preferred over another product with regards to the same objective. 
 For the same objective, there are varying forms, known and unknown in either design or principle of 
 axiom of natural law by human beings, that produce the effect of possibly differing qualities. The 
 concept of the "free market" is the most prominent of human beings' ideological conceptions that 
 is for the purposes of promoting improvement in product and enlarging the span of choice, albeit 
 these two purposes cannot fully capture the demand when the demand and the capital are distances 
 apart. On the last clause of this previous statement, the clause is relevant as cause only when 
-there is reigning merit from the product, for products that are more in line with artistic style and 
+there is actual merit from the product, for products that are more in line with artistic style and 
 scientific design are subject to the judgment of human subjectivity. Such is the futility of human 
 preference, really it is bias, that is argued and advocated for as cause when the effects are 
 predicted to guarantee livelihood in the preferred way, stuck in the ways of the form with aversion to 
@@ -4888,7 +4888,7 @@ operates by fundamentals including those of introspection, reflection, expressio
 for its host to relate to another sentient being, there is media of permanence and that for the temporal 
 service that is completely reliant on the motivation that is a dependency for the will which is, in turn, 
 a dependency for self-interest. There is nothing but scale and influence, absolutely nothing in relation 
-without media, that is a deterrent to the proliferation of actualized improvements and degenerations, 
+without media, that is a deterrent to the proliferation of actualized improvements and degenerations 
 alike. It is typically more healthy to privately assume the media is a tool rather than a master, for 
 the sake of sanity for the individual. What travels through the media is subject at least to the media. 
 There is no universal axiom of natural law that states media must be introspective, reflective, expressive, 
@@ -4898,6 +4898,6 @@ and ephemeral words spoken are. Contexts change and social networks of human bei
 chains of command and delivery, so that even for the same object considered the media, the ends of 
 that media may be subject to what has come to them and still have the confidence to believe themselves 
 to be objective in judgment. This is where accountability is complicated in great part because of  
-inabilities to accept on quantification schemes so that where is question, there needs to be human 
+inabilities to agree on quantification schemes so that where is question, there needs to be human 
 opinion, just as where there is demand to attribute responsibility, one or more of the ends as well as 
 the existence of the media in its form of features and design must be the one/s that bear the burden. 
