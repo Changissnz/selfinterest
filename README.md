@@ -4833,4 +4833,8 @@ improvement and efficiency of form. Media of human design bears the effect of de
 by human beings. Products designed by human beings are placed onto the metaphorical table of choice 
 for objective. It is true that for every product made to act as the answer for an objective, many 
 more competing products failed to reach or surpass the frequency of use for that product. All the 
-same, media is the one categorical class that enables one sentient being to relate to another. 
+same, media is the one categorical class that enables one sentient being to relate to another. The 
+demand of media designed by human beings, those demanded as nutrients for human beings, and even 
+the thoughts intentionally thought of by human beings are all pertinent, "alive" in the experience 
+of cognition in sensation and perception, primarily because the frequence of occurrence is not 
+null. 
