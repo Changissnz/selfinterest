@@ -4877,7 +4877,7 @@ fact points to the systemic connectivity of media matters for simulating objecti
 by default base. The thought and labor of business is superior to that of war because war is a 
 consequence of the deterioration of viability in civil business, a negatively insane child as a result 
 of an unscrupulous parent, per se. Leaders are not the only ones responsible for media of material 
-or immaterial product. The fixation on utility of accepted form, this being the manifestations of media 
+or immaterial product. The fixation on utility of accepted form, this being the manifestation of media 
 design in most frequent use, is from the populace as well. As easily as meritocratic systems, reliant on 
 certain media to deliver objective results to distinguish one member from another, can crumble from flukes 
 and favoritism, the choice utility of any media is choice into decision because of the sidedness being at 
