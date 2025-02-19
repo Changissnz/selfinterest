@@ -4850,8 +4850,8 @@ insufficient for the human being, one with their self-interest networked with ot
 and their self-interests. There is quality and then there is acceptance that is required, in that 
 order, for one product to be preferred over another product with regards to the same objective. 
 For the same objective, there are varying forms, known and unknown in either design or principle of 
-axiom of natural law by human beings, that produce the effect of possibly differing qualities. The 
-concept of the "free market" is the most prominent of human beings' ideological conceptions that 
+axiom of natural law by human beings, that produce the intended solution of possibly differing qualities. 
+The concept of the "free market" is the most prominent of human beings' ideological conceptions that 
 is for the purposes of promoting improvement in product and enlarging the span of choice, albeit 
 these two purposes cannot fully capture the demand when the demand and the capital are distances 
 apart. On the last clause of this previous statement, the clause is relevant as cause only when 
