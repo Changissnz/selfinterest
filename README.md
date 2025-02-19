@@ -4850,10 +4850,10 @@ insufficient for the human being, one with their self-interest networked with ot
 and their self-interests. There is quality and then there is acceptance that is required, in that 
 order, for one product to be preferred over another product with regards to the same objective. 
 For the same objective, there are varying forms, known and unknown in either design or principle of 
-axiom of natural law by human beings, that produce the intended solution of possibly differing qualities. 
-The concept of the "free market" is the most prominent of human beings' ideological conceptions that 
-is for the purposes of promoting improvement in product and enlarging the span of choice, albeit 
-these two purposes cannot fully capture the demand when the demand and the capital are distances 
+axiom of natural law by human beings, that produce their corresponding intended solutions of possibly 
+differing qualities. The concept of the "free market" is the most prominent of human beings' ideological 
+conceptions that is for the purposes of promoting improvement in product and enlarging the span of choice, 
+albeit these two purposes cannot fully capture the demand when the demand and the capital are distances 
 apart. On the last clause of this previous statement, the clause is relevant as cause only when 
 there is actual merit from the product, for products that are more in line with artistic style and 
 scientific design are subject to the judgment of human subjectivity. Such is the futility of human 
@@ -4898,6 +4898,6 @@ and ephemeral words spoken are. Contexts change and social networks of human bei
 chains of command and delivery, so that even for the same object considered the media, the ends of 
 that media may be subject to what has come to them and still have the confidence to believe themselves 
 to be objective in judgment. This is where accountability is complicated in great part because of  
-inabilities to agree on quantification schemes so that where is question, there needs to be human 
+inabilities to agree on quantification schemes so that where there is question, there needs to be human 
 opinion, just as where there is demand to attribute responsibility, one or more of the ends as well as 
 the existence of the media in its form of features and design must be the one/s that bear the burden. 
