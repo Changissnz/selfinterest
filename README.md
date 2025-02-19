@@ -4894,7 +4894,7 @@ the sake of sanity for the individual. What travels through the media is subject
 There is no universal axiom of natural law that states media must be introspective, reflective, expressive, 
 or individuative because of the two reasons, the intentions from self-interest and the all-encompassing 
 contextual application of the term "media". A human being can be a medium as much as inanimate objects 
-and ephemeral words spoken. Contexts change and social networks of human beings organize into different 
+and ephemeral words spoken are. Contexts change and social networks of human beings organize into different 
 chains of command and delivery, so that even for the same object considered the media, the ends of 
 that media may be subject to what has come to them and still have the confidence to believe themselves 
 to be objective in judgment. This is where accountability is complicated in great part because of  
