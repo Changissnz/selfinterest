@@ -4865,11 +4865,11 @@ there are notions of the demand for battle and war as solution. The monopolist a
 know all too well that "battle" and "war" outcomes rest on the economy of support for these phenomena, 
 and additionally on particular movements honestly recognized as stochastic only when the pertaining human 
 beings could not account for them beforehand. The famous Chinese general Sun Tzu stated "victory is 
-won before the war", a wisdom on the merit of preparatory power and the limitations of possibilities 
-that transpire from the initial base. For all the faults of pre-determinism, the helplessness on top 
-of the possible knowledge, the realities of influence and scale are pivotal determinants. The monopolist 
-crushes his competitors because his media overshadows their work and darkens their competitive 
-idealism into the abyss of obsolescence. The autocrat does not bear direct witness to the errors of the 
+won before the war", a wisdom on the merit of preparatory power and the limitations on possibilities 
+that could transpire from the initial base. For all the faults of pre-determinism, the helplessness on 
+top of the possible knowledge, the realities of influence and scale are pivotal determinants. The 
+monopolist crushes his competitors because his media overshadows their work and darkens their competitive 
+idealism into the abyss of obsolescence. The autocrat does not bear direct witness to most errors from the 
 wars he declared, and must think himself to be the last in his reign to possibly perish. In both of these 
 cases, the preference has been set to a modality amenable to those predominantly in charge, and thus, 
 the objective of ruling takes precedence before any product or competitor of merit in quality, and this 
