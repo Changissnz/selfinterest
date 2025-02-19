@@ -4875,4 +4875,5 @@ cases, the preference has been set to a modality amenable to those predominantly
 the objective of ruling takes precedence before any product or competitor of merit in quality, and this 
 fact points to the systemic connectivity of media matters for simulating objectivity where there is none 
 by default base. The thought and labor of business is superior to that of war because war is a 
-consequence of the deterioration of viability in civil business. 
+consequence of the deterioration of viability in civil business, a negatively insane child as a result 
+of an unscrupulous parent, per se. 
