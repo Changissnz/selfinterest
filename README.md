@@ -4858,13 +4858,20 @@ apart. On the last clause of this previous statement, the clause is relevant as 
 there is actual merit of the product, for products that are more in line with artistic style and 
 scientific design are subject to the judgment of human subjectivity. Such is the futility of human 
 preference, really it is bias, that is argued and advocated for as cause when the effects are 
-predicted to guarantee livelihood in the preferred way, stuck in the ways of the form with lack of 
-belief in being proven wrong except for such events that relate to the axiom of natural law, namely, 
-the terminal ends of severance, defeat, and fatality. More needs to be written on this, since surely 
+predicted to guarantee livelihood in the preferred way, stuck in the ways of the form with aversion to 
+belief in being proven wrong except for events that relate to the axiom of natural law, namely, the 
+terminal ends of severance, defeat, and fatality. More needs to be written on this, since surely 
 there are notions of the demand for battle and war as solution. The monopolist and the autocrat 
 know all too well that "battle" and "war" outcomes rest on the economy of support for these phenomena, 
 and additionally on particular movements honestly recognized as stochastic only when the pertaining human 
 beings could not account for them beforehand. The famous Chinese general Sun Tzu stated "victory is 
 won before the war", a wisdom on the merit of preparatory power and the limitations of possibilities 
 that transpire from the initial base. For all the faults of pre-determinism, the helplessness on top 
-of the possible knowledge, 
+of the possible knowledge, the realities of influence and scale are pivotal determinants. The monopolist 
+crushes his competitors because his media overshadows their work and darkens their competitive 
+idealism into the abyss of obsolescence. The autocrat does not bear direct witness to the errors of the 
+wars he declared, and must think himself to be the last in his reign to possibly perish. In both of these 
+cases, the preference has been set to a modality amenable to those predominantly in charge, and thus, 
+the objective of ruling takes precedence before any product or competitor of merit in quality, and this 
+fact points to the systemic connectivity of media matters for simulating objectivity where there is none 
+by default base. 
