@@ -4858,10 +4858,13 @@ apart. On the last clause of this previous statement, the clause is relevant as 
 there is actual merit of the product, for products that are more in line with artistic style and 
 scientific design are subject to the judgment of human subjectivity. Such is the futility of human 
 preference, really it is bias, that is argued and advocated for as cause when the effects are 
-predicted to guarantee livelihood in the preferred way, stuck in the ways of the form, lack of belief 
-in being proven wrong except for such events that relate to the axiom of natural law, namely, the 
-terminal ends of severance, defeat, and fatality. More needs to be written on this, since surely 
+predicted to guarantee livelihood in the preferred way, stuck in the ways of the form with lack of 
+belief in being proven wrong except for such events that relate to the axiom of natural law, namely, 
+the terminal ends of severance, defeat, and fatality. More needs to be written on this, since surely 
 there are notions of the demand for battle and war as solution. The monopolist and the autocrat 
-know all too well that "battle" and "war" rests on the economy of support for these phenomena, and 
-additionally on particular movements stochastic only because human beings could not account for 
-them beforehand. 
+know all too well that "battle" and "war" outcomes rest on the economy of support for these phenomena, 
+and additionally on particular movements honestly recognized as stochastic only when the pertaining human 
+beings could not account for them beforehand. The famous Chinese general Sun Tzu stated "victory is 
+won before the war", a wisdom on the merit of preparatory power and the limitations of possibilities 
+that transpire from the initial base. For all the faults of pre-determinism, the helplessness on top 
+of the possible knowledge, 
