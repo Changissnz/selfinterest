@@ -4862,5 +4862,6 @@ predicted to guarantee livelihood in the preferred way, stuck in the ways of the
 in being proven wrong except for such events that relate to the axiom of natural law, namely, the 
 terminal ends of severance, defeat, and fatality. More needs to be written on this, since surely 
 there are notions of the demand for battle and war as solution. The monopolist and the autocrat 
-know all too well that "battle" and "war" rests on the economy of their support, and additionally 
-on particular movements stochastic only because human beings could not account for them beforehand. 
+know all too well that "battle" and "war" rests on the economy of support for these phenomena, and 
+additionally on particular movements stochastic only because human beings could not account for 
+them beforehand. 
