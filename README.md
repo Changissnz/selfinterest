@@ -4886,7 +4886,7 @@ least two and the entry points for deliverance to the end/s being at least one. 
 media of use in activities of service especially, rather than direct product, evolve. Self-interest 
 operates by fundamentals including those of introspection, reflection, expression, and individuation, and 
 for its host to relate to another sentient being, there is media of permanence and that for the temporal 
-service that is completely reliant on the motivation that is a dependency for the will which is, in turn, 
+service, completely reliant on the motivation that is a dependency for the will which is, in turn, 
 a dependency for self-interest. There is nothing but scale and influence, absolutely nothing in relation 
 without media, that is a deterrent to the proliferation of actualized improvements and degenerations 
 alike. It is typically more healthy to privately assume the media is a tool rather than a master, for 
