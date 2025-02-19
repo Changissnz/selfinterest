@@ -4843,6 +4843,17 @@ that emerge as the common way, artificial axioms that have bested others to suit
 Human languages are unifying ways of verbal and written expression, since the purpose of communication 
 that cannot deliver meaning past the immediate sound or image fails the objectivity sought for in 
 language. The tools that human beings use, the decorum of attire and other formalities, amongst other 
-aspects are examples of the need for objectivity through decision in media of choice. And in most 
+aspects are examples of the need for objectivity through decision in media form of choice. And in 
 cases of differing styles and differing products, there is usually a reference that is competed 
-against, and most definitely an original that has splintered into these variants. 
+against, and most definitely an original that splintered into these variants. Quality alone is 
+insufficient for the human being, one with their self-interest networked with other human beings 
+and their self-interests. There is quality and then there is acceptance that is required, in that 
+order, for one product to be preferred over another product, with regards to the same objective. 
+For the same objective, there are varying forms, known and unknown in either design or principle of 
+axiom of natural law by human beings, that produce the effect of possibly differing qualities. The 
+concept of the "free market" is the most prominent of human beings' ideological conceptions that 
+is for the purposes of promoting improvement in product and enlarging the span of choice, albeit 
+these two purposes cannot fully capture the demand when the demand and the capital are distances 
+apart. On the last clause of this previous statement, the clause is relevant as cause only when 
+there is actual merit of the product, for products that are more in line with artistic style and 
+scientific design are subject to the judgment of human subjectivity. 
