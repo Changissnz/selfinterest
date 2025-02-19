@@ -4856,4 +4856,7 @@ is for the purposes of promoting improvement in product and enlarging the span o
 these two purposes cannot fully capture the demand when the demand and the capital are distances 
 apart. On the last clause of this previous statement, the clause is relevant as cause only when 
 there is actual merit of the product, for products that are more in line with artistic style and 
-scientific design are subject to the judgment of human subjectivity. 
+scientific design are subject to the judgment of human subjectivity. Such is the futility of human 
+preference, really it is bias, that is argued and advocated for as cause when effects guarantee 
+livelihood in the preferred way, stuck in the ways of the form, lack of belief in being proven wrong 
+except for such events that relate to the axiom of natural law, namely, the terminal ends of defeat, severance, and fatality. 
