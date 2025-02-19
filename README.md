@@ -4871,7 +4871,8 @@ top of the possible knowledge, the realities of influence and scale are pivotal 
 monopolist crushes his competitors because his media overshadows their work and darkens their competitive 
 idealism into the abyss of obsolescence. The autocrat does not bear direct witness to most errors from the 
 wars he declared, and must think himself to be the last in his reign to possibly perish. In both of these 
-cases, the preference has been set to a modality amenable to those predominantly in charge, and thus, 
+cases, the preference has been set to a modality amenable to those predominantly in charge and thus, 
 the objective of ruling takes precedence before any product or competitor of merit in quality, and this 
 fact points to the systemic connectivity of media matters for simulating objectivity where there is none 
-by default base. 
+by default base. The thought and labor of business is superior to that of war because war is a 
+consequence of the deterioration of viability in civil business. 
