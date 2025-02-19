@@ -4826,7 +4826,7 @@ end, thinking and acting for their self-interest but from the will.
 
 With utility of the media by choice qualities, there is economy dedicated towards interacting with 
 the related ends. Phenomena of connectivity, partially as designed effect from human beings, poses 
-questions on what the idiom of "minding your own business" really means. A definitive trait of 
+questions on what the idiom of "mind your own business" really means. A definitive trait of 
 self-interest, a force that is not self-contained for any of its hosts, is reflected in quality 
 onto the media of human design and function, with specific purposes that are always related to 
 improvement and efficiency of form. Media of human design bears the effect of demanding its usage 
@@ -4835,6 +4835,6 @@ for objective. It is true that for every product made to act as the answer for a
 more competing products failed to reach or surpass the frequency of use for that product. All the 
 same, media is the one categorical class that enables one sentient being to relate to another. The 
 demand of media designed by human beings, those demanded as nutrients for human beings, and even 
-the thoughts intentionally thought of by human beings are all pertinent, "alive" in the experience 
-of cognition in sensation and perception, primarily because the frequence of occurrence is not 
-null. 
+the thoughts intentionally thought of by human beings for their conclusions of sentiment and reason 
+are all pertinent, "alive" in the cognition of experiential sensation and perception, primarily because 
+the frequency of occurrence is not null. 
