@@ -4840,8 +4840,8 @@ all pertinent, "alive" in cognition of experiential sensation and perception, pr
 frequency of occurrence is not null. The choice of human beings to think and act in however ways 
 they want becomes limited not only by their spatiotemporal circumstances, but also by the products 
 that emerge as the common way, perhaps from artificial axioms that have bested others to suit certain 
-objectives. Human languages are unifying ways of verbal and written expression, since the purpose of 
-communication that cannot deliver meaning past the immediate sound or image fails the objectivity sought 
+objectives. Human languages are unifying ways of verbal and written expression, since communication 
+that cannot deliver meaning past the immediate sound or image fails the objectivity sought 
 for in language. The tools that human beings use, the decorum of attire and formalities, amongst 
 other aspects are examples of the need for objectivity through decision in media form of choice. And in 
 cases of differing styles and differing products, there is usually a reference that is competed 
@@ -4881,7 +4881,7 @@ or immaterial product. The fixation on utility of accepted form, this being the 
 design in most frequent use, is from the populace as well. As easily as meritocratic systems, reliant on 
 certain media to deliver objective results to distinguish one member from another, can crumble from flukes 
 and favoritism, the choice utility of any media is choice into decision because of the sidedness being at 
-least two and the entry points for deliverance to the end/s being at least one. "Aiming high" and 
+least two and the entry points for deliverance to the end/s numbered at least one. "Aiming high" and 
 "hitting low" are two routes of effects from the one intention to satisfy the objective. The dominating 
 media of use in activities of service especially, rather than direct product, evolve. Self-interest 
 operates by fundamentals including those of introspection, reflection, expression, and individuation, and 
