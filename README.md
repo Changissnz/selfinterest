@@ -4897,7 +4897,7 @@ contextual application of the term "media". A human being can be a medium as muc
 and ephemeral words spoken are. Contexts change and social networks of human beings organize into different 
 chains of command and delivery, so that even for the same object considered the media, the ends of 
 that media may be subject to what has come to them and still have the confidence to believe themselves 
-to be objective in judgment. This is where accountability is complicated in great part because of  
+to be objective in judgment. This is where accountability is complicated in great part because of 
 inabilities to agree on quantification schemes so that where there is question, there needs to be human 
 opinion, just as where there is demand to attribute responsibility, one or more of the ends as well as 
 the existence of the media in its form of features and design must be the one/s that bear the burden. 
