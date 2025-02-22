@@ -4901,3 +4901,11 @@ to be objective in judgment. This is where accountability is complicated in grea
 inabilities to agree on quantification schemes so that where there is question, there needs to be human 
 opinion, just as where there is demand to attribute responsibility, one or more of the ends as well as 
 the existence of the media in its form of features and design must be the one/s that bear the burden. 
+
+## More on philosophies of self-interest #67 
+
+Some of the statements made in elaboration on the concept of the media, in sections 65 and 66, 
+are certainly dubious due to the multi-interpretative routes. Simply, who is to say "black" is 
+"black" instead of "white" when hue is not the central topic? Consider the statement made, in 
+section 65, on the initiative of politicking being elevated to the forefront when there is material 
+sufficiency. 
