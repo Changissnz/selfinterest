@@ -4939,9 +4939,9 @@ on the category of the "materially insufficient", the historical lengths of thei
 has made them experience matters below the norm, such that there is surely a strong chance they cannot 
 recognize quality when they see it. And that is precisely why the stupid and the smart, the noble and 
 ignoble, and other dichotomous types are all given the opportunity to be political representatives. 
-The great number of pathways of execution and power in social-based networks would actually be disserviced 
-by practicing these kinds of exclusions to pronounced degrees. The truth of the application of these 
-categorical labels may be able to be acquired through accurate and calculative judgment, but where there 
+The great number of pathways of execution and power in networked social systems would actually be 
+disserviced by practicing these kinds of exclusions to pronounced degrees. The truth of the application 
+of these categorical labels may be acquired through accurate and calculative judgment, but where there 
 is agenda, there is cause of desired gain through imposed advantages and disadvantages that serves as 
 reason. Also, the zero-sum nature of terrible political decisions actually demands certain members of 
 certain factions to be operationally incompetent in order to provide convenient pathways for their 
