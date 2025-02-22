@@ -4968,5 +4968,6 @@ may not have been. A parallel description can be made on an action done by an en
 another. The media expands the surface of interpretation on its users. Its users are associated with 
 the extra class of variables that describe that media. The task of attribution involves solving 
 the sub-problem of differentiating between the media and the user. Through the media, the pragmatic 
-of forging alliances with historical enemies are realized and furthermore, the means of these becomings 
-are understood in full by knowing the predicted outcomes of ends and the specifics of the media's use. 
+of forging alliances with historical enemies are realized and furthermore, these becomings are 
+understood adequately enough for handling by knowing the predicted outcomes of ends and the specifics 
+of the media's use. 
