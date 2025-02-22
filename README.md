@@ -4952,6 +4952,19 @@ drain, an economic mismanagement, to focus on those matters outside of the pursu
 dedicated to their own "business". One's unconsiderate regard for matters not related to their "business" 
 can only guarantee their focus for their "business", but their ignorance of the characteristic 
 connectivities pertaining to their business that then results in their going out of "business" 
-is partly their responsibility. The media, something ambivalent, something that cannot be described 
-fully on the specific instances of its utility, usually is fixated towards purposes clear enough in 
-its users' beliefs. 
+is partly their responsibility. The media, something ambivalent, something that cannot be anticipated 
+fully on the specific instances of its utility, usually is fixated for purposes clear enough in 
+its users' beliefs. The media transfers energy and transforms the specifics of the work. A rich 
+man's wealth in the form of companies and influence does his work for him. And he seldom minds 
+when his only possible sin is that of wrongdoing his wealth is in support of. Who is friend or 
+foe in relation to the media? The media that can be wielded by a foe is an extension of the foe's 
+intended malice. The media that is an extensive social network, on the other hand, is clearly more 
+tricky to determine the qualities of alliances. The force of self-interest conducts itself 
+primarily by intention, but this intention is sometimes superceded by the uncontrollable effects 
+in cognition's rankings of relevance. An action done by a friend that damages another, therefore 
+antagonistic to that other's self-interest, that is then attributed by that other to the friend 
+could possibly shatter the friendship. The reasoning: the effect was malicious. However, the cause 
+may not have been. A parallel description can be made on an action done by an enemy that enables 
+another. The media expands the surface of interpretation on its users. Its users are associated with 
+the extra class of variables that describe that media. The task of attribution involves solving 
+the sub-problem of differentiating between the media and the user. 
