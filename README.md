@@ -4944,4 +4944,5 @@ by practicing these kinds of exclusions to pronounced degrees. The truth of the 
 categorical labels may be able to be acquired through accurate and calculative judgment, but where there 
 is agenda, there is cause of desired gain through imposed advantages and disadvantages that serves as 
 reason. Also, the zero-sum nature of terrible political decisions actually demands certain members of 
-certain factions to be incompetent in order to provide convenient pathways for their opposition. 
+certain factions to be operationally incompetent in order to provide convenient pathways for their 
+opposition. 
