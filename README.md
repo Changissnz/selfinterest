@@ -4929,4 +4929,12 @@ frequently mention this incongruency between material sufficiency and spiritual 
 just is not quite right even with such things as monetary income. There must be a lack of application 
 in these cases, for all the glories and glamours that the archetype Parisian Civilisatrice had to offer, 
 the man of good honor and good faith died in vain, having never hurt a fly or spoken a dirty lie, by 
-being smothered and entangled in culture. 
+being entangled and smothered in culture. It is necessary to apply questions onto the political that 
+think they are "materially insufficient". How can one that is "materially insufficient" be in the position 
+to construct new societal paradigms that do not revolve around just that, the material, and the 
+remainder of their successes dedicated to depravity? The same can be asked of the "materially 
+sufficient", since that is just how politics works: inspections fastidious, bordering on pathological 
+if not pathologically full of falsehoods, of the political individual and/or organization. But 
+on the category of the "materially insufficient", the historical lengths of their insufficiency surely 
+has made them experience matters below the norm, such that there is surely a strong chance they cannot 
+recognize quality when they see it. 
