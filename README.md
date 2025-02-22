@@ -4981,6 +4981,7 @@ state that that is time-agnostic progress. When the usage changes quite simply b
 objectives, however, that are actually not very original in the thematic comparison, then the first 
 impression of the motives of that context are the applications surrounding those motives, so that the 
 progress of revising or developing improved forms from that media form are not as recognized. A last 
-note of question on this for example, how can it be a universal rule to mourn a middle agent when it 
-was always their profit for their self-interest in their waking life? Well, that would be the artificial 
-axiom to mourn from the cause of that being the socially acceptable thing to do.
+note of question on this for example, how can it be a universal rule to mourn a middle agent that 
+passed away when it was always their profit for their self-interest in their waking life? Well, 
+that would be the artificial axiom to mourn from the cause of that being the socially acceptable 
+thing to do.
