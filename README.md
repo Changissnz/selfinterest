@@ -4948,9 +4948,9 @@ certain factions to be operationally incompetent in order to provide convenient 
 opposition. The goal for one to "mind their own business" is really about their being devoid of 
 mindfulness on matters outside of their immediate goals and surroundings. Connectivity enabled by 
 media forms is considered less, de-prioritized in pursuit of the passion. It would be a cognitive 
-drain, an economic mismanagement, to focus on those matters outside of the pursuit for those solely 
-dedicated to their own "business". One's unconsiderate regard for matters not related to their "business" 
-can only guarantee their focus for their "business", but their ignorance of the characteristic 
+drain, an economic mismanagement, for those solely dedicated to their own "business" to focus on 
+those matters outside of the pursuit. One's unconsiderate regard for matters not related to their 
+"business" can only guarantee their focus for their "business", but their ignorance of the characteristic 
 connectivities pertaining to their business that then results in their going out of "business" 
 is partly their responsibility. The media, something ambivalent, something that cannot be anticipated 
 fully on the specific instances of its utility, usually is fixated for purposes clear enough in 
