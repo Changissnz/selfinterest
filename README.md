@@ -4937,4 +4937,9 @@ sufficient", since that is just how politics works: inspections fastidious, bord
 if not pathologically full of falsehoods, of the political individual and/or organization. But 
 on the category of the "materially insufficient", the historical lengths of their insufficiency surely 
 has made them experience matters below the norm, such that there is surely a strong chance they cannot 
-recognize quality when they see it. 
+recognize quality when they see it. And that is precisely why the stupid and the smart, the noble and 
+ignoble, and other dichotomous types are all given the opportunity to be political representatives. 
+The great number of pathways of execution and power in social-based networks would actually be disserviced 
+by practicing exclusion to pronounced degrees. Also, the zero-sum nature of terrible political decisions 
+actually demands certain members of certain factions to be incompetent in order to provide convenient 
+pathways for their opposition. 
