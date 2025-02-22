@@ -4945,4 +4945,8 @@ of these categorical labels may be acquired through accurate and calculative jud
 is agenda, there is cause of desired gain through imposed advantages and disadvantages that serves as 
 reason. Also, the zero-sum nature of terrible political decisions actually demands certain members of 
 certain factions to be operationally incompetent in order to provide convenient pathways for their 
-opposition. 
+opposition. The goal for one to "mind their own business" is really about their being devoid of 
+mindfulness on matters outside of their immediate goals and surroundings. Connectivity enabled by 
+media forms is considered less, de-prioritized in pursuit of the passion. It would be a cognitive 
+drain, an economic mismanagement, to focus on those matters outside of the pursuit for those solely 
+dedicated to their own "business". 
