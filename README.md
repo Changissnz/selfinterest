@@ -4938,7 +4938,7 @@ if not pathologically full of falsehoods, of the political individual and/or org
 on the category of the "materially insufficient", the historical lengths of their insufficiency surely 
 has made them experience matters below the norm, such that there is surely a strong chance they cannot 
 recognize quality when they see it. And that is precisely why the stupid and the smart, the noble and 
-ignoble, and other dichotomous types are all given the opportunity to be political representatives. 
+ignoble, and other dichotomous types are given the opportunity to be political representatives. 
 The great number of pathways of execution and power in networked social systems would actually be 
 disserviced by practicing these kinds of exclusions to pronounced degrees. The truth of the application 
 of these categorical labels may be acquired through accurate and calculative judgment, but where there 
