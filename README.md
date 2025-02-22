@@ -4913,4 +4913,20 @@ organized around developed social ideas and executed to enable rule. Someone tha
 sufficient" naturally has to produce or look for products to satisfy the most basic of necessities 
 so that living is extended. The phrase "materially sufficient" cannot be entirely objective. The 
 proclivities of each individual human being, effects from their passions, seldom lead to wants 
-singular and streamlined. 
+singular and streamlined. It is not enough to have a sufficient diet for most people. It is also 
+not enough to own enough. Material sufficiency is satisfied by these two statements, yet the human 
+being strives for something more. And here is where the human being is most at ease, their 
+biological functions not having to beg out of deprivation, to politick. Of course it can be said that 
+human beings, out of material insufficiency, also become driven to politick. But in these cases, the 
+politicking cannot be prime to rule. Starvation needs to be satisfied, and those on the brink of death 
+from malnutrition cannot be expected to want anything more than the material, at first. So these two 
+categories of human beings wishing to politick, after achieving material sufficiency or to achieve 
+material sufficiency, are different by the qualities of the former desiring to enhance or stabilize 
+their societal paradigm and the other desiring to construct new societal paradigms. This is quite 
+basic and does not capture the curious cases of individuals that are materially sufficient yet do 
+not know how to be at ease with this material sufficiency. Complaints about the bourgeois class 
+frequently mention this incongruency between material sufficiency and spiritual emptiness: something 
+just is not quite right even with such things as monetary income. There must be a lack of application 
+in these cases, for all the glories and glamours that the archetype Parisian Civilisatrice had to offer, 
+the man of good honor and good faith died in vain, having never hurt a fly or spoken a dirty lie, by 
+being smothered and entangled in culture. 
