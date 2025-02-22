@@ -4926,12 +4926,12 @@ their societal paradigm and the other desiring to construct new societal paradig
 basic and does not capture the curious cases of individuals that are materially sufficient yet do 
 not know how to be at ease with this material sufficiency. Complaints about the bourgeois class 
 frequently mention this incongruency between material sufficiency and spiritual emptiness: something 
-just is not quite right even with such things as monetary income. There must be a lack of application 
-in these cases, for all the glories and glamours that the archetype Parisian Civilisatrice had to offer, 
-the man of good honor and good faith died in vain, having never hurt a fly or spoken a dirty lie, by 
-being entangled and smothered in culture. It is necessary to apply questions onto the political that 
-think they are "materially insufficient". How can one that is "materially insufficient" be in the position 
-to construct new societal paradigms that do not revolve around just that, the material, and the 
+just is not quite right even with such things as adequate monetary income. There must be a lack of 
+application in these cases, for all the glories and glamours that the archetype Parisian Civilisatrice 
+had to offer, the man of good honor and good faith died in vain, having never hurt a fly or spoken a dirty 
+lie, by being entangled and smothered in culture. It is necessary to apply questions onto the political 
+that think they are "materially insufficient". How can one that is "materially insufficient" be in the 
+position to construct new societal paradigms that do not revolve around just that, the material, and the 
 remainder of their successes dedicated to depravity? The same can be asked of the "materially 
 sufficient", since that is just how politics works: inspections fastidious, bordering on pathological 
 if not pathologically full of falsehoods, of the political individual and/or organization. But 
