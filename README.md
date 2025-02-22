@@ -4911,4 +4911,6 @@ section 65, on the initiative of politicking being elevated to the forefront whe
 sufficiency. The statement's use of the term "politick" is reserved for the thought and procedures 
 organized around developed social ideas and executed to enable rule. Someone that is not "materially 
 sufficient" naturally has to produce or look for products to satisfy the most basic of necessities 
-so that living is extended. 
+so that living is extended. The phrase "materially sufficient" cannot be entirely objective. The 
+proclivities of each individual human being, effects from their passions, seldom lead to wants 
+singular and streamlined. 
