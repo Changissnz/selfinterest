@@ -4908,4 +4908,7 @@ Some of the statements made in elaboration on the concept of the media, in secti
 are certainly dubious due to the multi-interpretative routes. Simply, who is to say "black" is 
 not "black" but "white" when hue is not the central topic? Consider the statement made, in 
 section 65, on the initiative of politicking being elevated to the forefront when there is material 
-sufficiency. 
+sufficiency. The statement's use of the term "politick" is reserved for the thought and procedures 
+organized around developed social ideas and executed to enable rule. Someone that is not "materially 
+sufficient" naturally has to produce or look for products to satisfy the most basic of necessities 
+so that living is extended. 
