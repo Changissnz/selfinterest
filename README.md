@@ -4979,5 +4979,5 @@ the classic usage pattern of the upside-down V. When the usage changes and sours
 of alternatives, the media is supplanted by superior or more affluent designs, and one could objectively 
 state that that is time-agnostic progress. When the usage changes quite simply because of shifts in 
 objectives, however, that are actually not very original in the thematic comparison, then the first 
-impression of the motives of that context are the applications surrounding those motives so that the 
+impression of the motives of that context are the applications surrounding those motives, so that the 
 progress of revising or developing improved forms from that media form are not as recognized. 
