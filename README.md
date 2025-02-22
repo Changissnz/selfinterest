@@ -4906,6 +4906,6 @@ the existence of the media in its form of features and design must be the one/s 
 
 Some of the statements made in elaboration on the concept of the media, in sections 65 and 66, 
 are certainly dubious due to the multi-interpretative routes. Simply, who is to say "black" is 
-"black" instead of "white" when hue is not the central topic? Consider the statement made, in 
+not "black" but "white" when hue is not the central topic? Consider the statement made, in 
 section 65, on the initiative of politicking being elevated to the forefront when there is material 
 sufficiency. 
