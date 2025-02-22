@@ -4949,4 +4949,9 @@ opposition. The goal for one to "mind their own business" is really about their 
 mindfulness on matters outside of their immediate goals and surroundings. Connectivity enabled by 
 media forms is considered less, de-prioritized in pursuit of the passion. It would be a cognitive 
 drain, an economic mismanagement, to focus on those matters outside of the pursuit for those solely 
-dedicated to their own "business". 
+dedicated to their own "business". One's unconsiderate regard for matters not related to their "business" 
+can only guarantee their focus for their "business", but their ignorance of the characteristic 
+connectivities pertaining to their business that then results in their going out of "business" 
+is partly their responsibility. The media, something ambivalent, something that cannot be described 
+fully on the specific instances of its utility, usually is fixated towards purposes clear enough in 
+its users' beliefs. 
