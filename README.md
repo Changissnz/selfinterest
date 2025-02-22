@@ -4969,16 +4969,16 @@ another. The media expands the surface of interpretation on its users. Its users
 the extra class of variables that represent that media. The task of attribution involves solving 
 the sub-problem of differentiating between the media and the user. Through the media, the pragmatic 
 of forging alliances with historical enemies is realized and furthermore, these becomings are 
-understood adequately enough for handling by knowing the predicted outcomes of ends and the specifics 
-of the media's use. The media can also act as a demotivator to change: it projects the image of freedom 
+understood adequately enough for handling by knowing the predicted outcomes of ends and the media's 
+usage patterns. The media can also act as a demotivator to change: it projects the image of freedom 
 to use it for objectives borne out of self-interest, yet the themes of these objectives are seldom 
 novel in comparative analysis through the span of time. So the objectives do not radically change 
 despite the changes of the media's forms. And the intention from self-interest to change the form of 
-the media is categorically scientific. Every media that human beings have designed or ascribed as follows 
-the classic usage pattern of the upside-down V. When the usage changes and sours with the emergence of 
-alternatives, the media is supplanted by superior or more affluent designs, and one could objectively 
-state that that is progress. When the usage changes quite simply because of shifts in objectives, however, 
-that are actually not very original in the thematic comparison, then the first impression of the motives of 
-that context are the applications surrounding those motives so that the progress of revising or developing 
-improved forms from that media form are not as recognized. 
+the media is categorically scientific. Every media that human beings have designed followed the classic 
+usage pattern of the upside-down V. When the usage changes and sours with the emergence of alternatives, 
+the media is supplanted by superior or more affluent designs, and one could objectively state that that 
+is progress. When the usage changes quite simply because of shifts in objectives, however, that are actually 
+not very original in the thematic comparison, then the first impression of the motives of that context are 
+the applications surrounding those motives so that the progress of revising or developing improved forms 
+from that media form are not as recognized. 
 
