@@ -4983,4 +4983,4 @@ impression of the motives of that context are the applications surrounding those
 progress of revising or developing improved forms from that media form are not as recognized. A last 
 note of question on this for example, how can it be a universal rule to mourn a middle agent when it 
 was always their profit for their self-interest in their waking life? Well, that would be the artificial 
-axiom to mourn because that is the socially acceptable thing to do.
+axiom to mourn from the cause of that being the socially acceptable thing to do.
