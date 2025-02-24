@@ -4990,4 +4990,16 @@ thing to do.
 
 The media allows for its strategy to proceed and reconfiguration to other possible forms. Perhaps 
 the only relevant interactions one sentient being has with another are those actions by pre-defined 
-features, many of which are not naturally occurring, of the media through the media. 
+features, many of which are not naturally occurring, of the media through the media. There is not 
+a direct correlation between the controllability of a particular media and the magnitude of human design 
+that was used to produce that media. The media of default that has enabled human existence on Planet 
+Earth is the starting point for the constructing by human beings of any media, that is, these categories 
+of media would not have existed if not for the willful endeavors from sentience that greatly depended 
+on a certain degree of mastery over any related axiom of natural law. The term "artificial", as used 
+to denote the concept of the "artificial axiom", is used to differentiate that from without the input 
+of sentient decision-making and effort. A great deal of strategy surrounds media, in contexts 
+concerning human beings. The decision to use one media over another for the same objective is an 
+example of human differentiation. Achievements in constructing newer forms of media has a connotation 
+of competition associated with it, the replacement of one media over another characteristic of 
+gradualism, that things can only be phased out and usually not without resistance from proponents 
+of the predecessor. 
