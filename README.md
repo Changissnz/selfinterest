@@ -5001,8 +5001,14 @@ of sentient decision-making and effort. A great deal of strategy surrounds media
 concerning human beings. The decision to use one media form over another for the same objective is an 
 example of human-to-human differentiation. Achievements in constructing newer forms of media have 
 connotations of competition associated with them, the replacement of one media over another 
-characteristic of gradualism, how the form with the associated methodologies can only be phased out 
+characteristic of gradualism, how the form and its associated methodologies can only be phased out 
 and usually not without resistance from proponents of the predecessor. Examples in the category of 
 "media" allow for relations that would never have occurred, amplification and further projection of 
 some default strength, and comprehension of a particular what-is that depends on interpretation 
-through media instead of by observation directly on that what-is. 
+through media instead of by observation directly on that what-is. So the decisions that have been 
+made and continue to be made on utility constitute a significant part of human strategy to co-exist 
+and assert with one another. The preferences in language, although ephemeral in speech and dependent 
+on interpretation in writing, are a differentiator between peoples, and the utility of any language 
+serves to differentiate the matters of the implicit in the what-is and to concentrate meaning into 
+aims, and is also the most frequent tool used in deception, at least serving as the initial element 
+in any deceptive chain of events. 
