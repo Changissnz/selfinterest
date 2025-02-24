@@ -4985,3 +4985,7 @@ note of question on this for example, how can it be a universal rule to mourn a 
 passed away when it was always their profit for their self-interest in their waking life? Well, 
 that would be the artificial axiom to mourn from the cause of that being the socially acceptable 
 thing to do.
+
+## More on philosophies of self-interest #68 
+
+The media allows for its reconfiguration to other possible forms and strategy to proceed. 
