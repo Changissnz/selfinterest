@@ -4988,4 +4988,6 @@ thing to do.
 
 ## More on philosophies of self-interest #68 
 
-The media allows for its reconfiguration to other possible forms and strategy to proceed. 
+The media allows for its strategy to proceed and reconfiguration to other possible forms. Perhaps 
+the only relevant interactions one sentient being has with another are acting by pre-defined 
+features, many of which are not naturally occurring, of the media through the media. 
