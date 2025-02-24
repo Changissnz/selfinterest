@@ -5011,4 +5011,8 @@ and assert with one another. The preferences in language, although ephemeral in 
 on interpretation in writing, are a differentiator between peoples, and the utility of any language 
 serves to differentiate the matters of the implicit in the what-is and to concentrate meaning into 
 aims of objective, and additionally is the most frequent tool used in deception, at least serving as 
-the initial element in any deceptive chain of events. 
+the initial element in any deceptive chain of events. A class of phenomena that is peculiar to note, 
+if not for the consideration of the traits pertaining to the sentient agents, is one group of 
+human beings viewing some media form for granted while others marvel at it as if it were something 
+closer to a higher power than what is below man, such that man has the power to make and break it after 
+a satisfied threshold for the industrialization of its production methodology. 
