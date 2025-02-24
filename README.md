@@ -4998,8 +4998,11 @@ of media would not have existed if not for the willful endeavors from sentience 
 on a certain degree of mastery over any related axiom of natural law. The term "artificial", as used 
 to denote the concept of the "artificial axiom", is used to differentiate that from without the input 
 of sentient decision-making and effort. A great deal of strategy surrounds media, in contexts 
-concerning human beings. The decision to use one media over another for the same objective is an 
-example of human differentiation. Achievements in constructing newer forms of media has a connotation 
-of competition associated with it, the replacement of one media over another characteristic of 
-gradualism, that things can only be phased out and usually not without resistance from proponents 
-of the predecessor. 
+concerning human beings. The decision to use one media form over another for the same objective is an 
+example of human-to-human differentiation. Achievements in constructing newer forms of media have 
+connotations of competition associated with them, the replacement of one media over another 
+characteristic of gradualism, how the form with the associated methodologies can only be phased out 
+and usually not without resistance from proponents of the predecessor. Examples in the category of 
+"media" allow for relations that would never have occurred, amplification and further projection of 
+some default strength, and comprehension of a particular what-is that depends on interpretation 
+through media instead of by observation directly on that what-is. 
