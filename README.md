@@ -5010,5 +5010,5 @@ made and continue to be made on utility constitute a significant part of human s
 and assert with one another. The preferences in language, although ephemeral in speech and dependent 
 on interpretation in writing, are a differentiator between peoples, and the utility of any language 
 serves to differentiate the matters of the implicit in the what-is and to concentrate meaning into 
-aims, and is also the most frequent tool used in deception, at least serving as the initial element 
-in any deceptive chain of events. 
+aims of objective, and additionally is the most frequent tool used in deception, at least serving as 
+the initial element in any deceptive chain of events. 
