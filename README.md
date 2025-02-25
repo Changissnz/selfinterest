@@ -5032,4 +5032,13 @@ although may be difficult to be understood, and those ideas novel in relativity 
 prime for constructive application are the most difficult to accept in the scope of use, for the 
 informed decision to believe in such things must have taken into consideration the "whole" of the 
 construct that it is supposed to materialize in; deconstructive processes are necessary to make 
-room in the same space. 
+room in the same space that is the "whole". The field of commerce provides a sufficient area of 
+discussion on priorities with respect to development. When the means to acquire is markedly easier, 
+cheaper in monetary terms, than the means to produce, the centrality for the product's existence 
+is kept constrained and regulated, thus elevating rarity of the product as a significant variable 
+in its valuation; this statement is the basic premise that states and companies alike seek to 
+control. The consistency in the magnitude of ease for the means of acquisition is a crucial part 
+of conserving social constructs. Artificial axioms becoming heavily geared towards solving for 
+the decision junctions required in matters concerning the product. Ways of life were established 
+and then upheld. Stability and order become fixtures, and ideas accepted are primarily for entertainment 
+outside of the social centrality of the product. 
