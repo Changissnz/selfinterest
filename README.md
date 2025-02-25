@@ -5041,7 +5041,7 @@ to control. The consistency in the magnitude of ease for the means of acquisitio
 of conserving social constructs. Artificial axioms becoming heavily geared towards solving for 
 the decision junctions required in matters concerning the product. Ways of life were established 
 and then are upheld. Stability and order become fixtures, and ideas accepted are those primarily for 
-entertainment outside of the social centrality of the product. These previous statements 
+entertainment outside of the social centrality around the product. These previous statements 
 partly constitute a conceptual thesis for why monopolies in production and distribution are formed. 
 The dividing line between high technological production and raw material production is indeed 
 predominantly economy by region, and for most intents and purposes, an arbitrary society probably 
@@ -5058,7 +5058,7 @@ around artificial axioms, these of course being set by self-interest. A Pax Stat
 peace as effect from constraints in decisions towards pre-set artificial axioms that have been 
 agreed upon in consensus of command. Robustness of self-interest to adopt new ways of thinking and 
 producing quickly craters under the need to be one with the constant that concerns peers. Most 
-societies cannot be robust enough to adopt to certain categories of change, since those social 
+societies cannot be robust enough to adapt to certain categories of change, since those social 
 networks were formed around common cause. The splintering of common cause into obsolescence forces 
 each member to resort back to their self-interest, and motives suppressed for what was once their 
 "greater good" unleashed in ways that are seldom different in principle from the others, the 
