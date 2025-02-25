@@ -5052,6 +5052,17 @@ it is not until these pre-set ways of living are tested past the point of accept
 that the foundation for objectives in production are questioned enough for possible reform. For 
 all the prestige associated with careers of services, the factor of monotony remains an underlying 
 possibility. Movement is the basis for change, and requires energy of form different from the 
-root step, that of no movement. The concept of "movement" does prove to be quite challenging of 
-a task when the practice is not in line with the constants of effects from decisions based around 
-artificial axioms, these of course being set by self-interest.
+root step, that of no movement. The concept of "movement" does prove to be quite challenging to 
+handle as a task when the practice is not in line with the constants of effects from decisions based 
+around artificial axioms, these of course being set by self-interest. A Pax Status. Harmony and 
+peace at the expense of constraining decisions to pre-set artificial axioms that have been agreed 
+upon in consensus of command. Robustness of self-interest to adopt new ways of thinking and 
+producing quickly craters under the need to be one with the constant that concerns peers. Most 
+societies cannot be robust to adopt to certain categories of change, since those social networks 
+were formed around common cause. The splintering of common cause into obsolescence forces each 
+member to resort back to their self-interest, and motives suppressed for what was once their 
+"greater good" unleashed in ways that are seldom different in principle from the others, the 
+"barbarians", per se. As such, the empirical recognition of a rapid pace of change must somehow 
+correlate to rapid revision in common causes, which does sometimes amount to violence not of 
+consensus, especially when the innermost essence of the "social fabric" for a people is ordered 
+function for cause. 
