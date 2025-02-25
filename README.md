@@ -5075,5 +5075,5 @@ of self-interest possessing privatization properties, from material to immateria
 It is easier to use as examples those that are not part of the discussion, so that conversation about 
 them in delicate and intimate aspects do not directly shine relational discomfort onto members of that 
 discussion. Furthermore, the proceedings from these arrangements for discourse test at least the 
-reactions from revelation and falsities alike, these reactions indicative of the underlying truths 
+reactions from revelation and falsities alike, these reactions corresponding to the underlying truths 
 of the members that are not readily able to be known due to choice expression. 
