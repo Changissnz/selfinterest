@@ -5006,11 +5006,11 @@ and usually not without resistance from proponents of the predecessor. Examples 
 "media" allow for relations that would never have occurred, amplification and further projection of 
 some default strength, and comprehension of a particular what-is that depends on interpretation 
 through media instead of by observation directly on that what-is. So the decisions that have been 
-made and continue to be made on utility constitute a significant part of human strategy to co-exist 
-and assert with one another. The preferences in language, although ephemeral in speech and dependent 
-on interpretation in writing, are a differentiator between peoples, and the utility of any language 
-serves to differentiate the matters of the implicit in the what-is and to concentrate meaning into 
-aims of objective, and additionally is the most frequent tool used in deception, at least serving as 
+made and continue to be made on media utility constitute a significant part of human strategy to 
+co-exist and assert with one another. The preferences in language, although ephemeral in speech and 
+dependent on interpretation in writing, are a differentiator between peoples, and the utility of any 
+language serves to differentiate the matters of the implicit in the what-is and to concentrate meaning 
+into aims of objective, and additionally is the most frequent tool used in deception, at least serving as 
 the initial element in any deceptive chain of events. A class of phenomena that is peculiar to note, 
 if not for the consideration of the traits pertaining to the sentient agents, is one group of 
 human beings viewing some media form for granted while others marvel at it as if it were something 
