@@ -5062,7 +5062,7 @@ societies cannot be robust to adopt to certain categories of change, since those
 were formed around common cause. The splintering of common cause into obsolescence forces each 
 member to resort back to their self-interest, and motives suppressed for what was once their 
 "greater good" unleashed in ways that are seldom different in principle from the others, the 
-"barbarians", per se. As such, the empirical recognition of a rapid pace of change must somehow 
-correlate to rapid revision in common causes, which does sometimes amount to violence not of 
+"barbarians", per se. As such, the empirical recognition of a rapid pace of change mistakenly 
+reasons into rapid revision of common causes, which does sometimes amount to violence not of 
 consensus, especially when the innermost essence of the "social fabric" for a people is ordered 
 function for cause. 
