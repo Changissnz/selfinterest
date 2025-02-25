@@ -5024,6 +5024,7 @@ The factor of competition becoming decentralized away from a singular objective,
 the objective is associated with object, is cause for additional problems that networked sentient beings 
 such as humans have to contend with. Then the notion of the development and improvement of conception from 
 the idea is regarded as not that important when the source, the raw material, is already there should the 
-time comes for appropriate use. Some call the decision to uphold this notion exemplary of complacency, 
-others of modesty, and the evidence for the superiority of form development becomes subjective in the 
-lens of preferred styles and initiatives, even when objective measures capture the inequality. 
+time come for appropriate use, but that would require implementation first. Some call the decision to 
+uphold this notion exemplary of complacency, others of modesty, and the evidence for the superiority of 
+form development becomes subjective in the lens of preferred styles and initiatives, even when objective 
+measures capture the inequality. 
