@@ -4988,8 +4988,8 @@ thing to do.
 
 ## More on philosophies of self-interest #68 
 
-The media allows for its strategy to proceed and reconfiguration to other possible forms. Perhaps 
-the only relevant interactions one sentient being has with another are those actions by pre-defined 
+The media allows for strategy to proceed and reconfiguration to other possible forms. Perhaps the 
+only relevant interactions one sentient being has with another are those actions by pre-defined 
 features, many of which are not naturally occurring, of the media through the media. There is not 
 a direct correlation between the controllability of a particular media and the magnitude of human design 
 that was used to produce that media. The media of default that has enabled human existence on Planet 
@@ -4997,7 +4997,7 @@ Earth is the starting point for the constructing by human beings of any media, t
 of media would not have existed if not for the willful endeavors from sentience that greatly depended 
 on a certain degree of mastery over any related axiom of natural law. The term "artificial", as used 
 to denote the concept of the "artificial axiom", is used to differentiate that from without the input 
-of sentient decision-making and effort. A great deal of strategy surrounds media, in contexts 
+of sentient decision-making and effort. A great deal of strategy surrounds media in contexts 
 concerning human beings. The decision to use one media form over another for the same objective is an 
 example of human-to-human differentiation. Achievements in constructing newer forms of media have 
 connotations of competition associated with them, the replacement of one media over another 
@@ -5073,7 +5073,7 @@ in cases where an other not part of the discussion is discussed, also serves pur
 of truths concerning the members of that discussion. This statement is a truth from the consequence 
 of self-interest possessing privatization properties, from material to immaterial wants and aversions. 
 It is easier to use as examples those that are not part of the discussion, so that conversation about 
-them in delicate and intimate aspects do not directly shine discomfort onto members of that discussion. 
-Furthermore, the proceedings from these arrangements for discourse test at least the reactions from 
-revelation and falsities alike, these reactions indicative of the underlying truths of the members 
-that are not readily able to be known due to choice expression. 
+them in delicate and intimate aspects do not directly shine relational discomfort onto members of that 
+discussion. Furthermore, the proceedings from these arrangements for discourse test at least the 
+reactions from revelation and falsities alike, these reactions indicative of the underlying truths 
+of the members that are not readily able to be known due to choice expression. 
