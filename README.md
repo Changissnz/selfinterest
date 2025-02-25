@@ -5005,7 +5005,7 @@ characteristic of gradualism, how the form and its associated methodologies can 
 and usually not without resistance from proponents of the predecessor. Examples in the category of 
 "media" allow for relations that would never have occurred, amplification and further projection of 
 some default strength, and comprehension of a particular what-is that depends on interpretation 
-through media instead of by observation directly on that what-is. So the decisions that have been 
+through media instead of by direct observation on that what-is. So the decisions that have been 
 made and continue to be made on media utility constitute a significant part of human strategy to 
 co-exist and assert with one another. The preferences in language, although ephemeral in speech and 
 dependent on interpretation in writing, are a differentiator between peoples, and the utility of any 
@@ -5024,7 +5024,7 @@ The factor of competition becoming decentralized away from a singular objective,
 the objective is associated with object, is cause for additional problems that networked sentient beings 
 such as humans have to contend with. Then the notion of the development and improvement of conception from 
 the idea is regarded as not that important when the source, the raw material, is already there should the 
-time come for appropriate use, but that would require implementation first. Some call the decision to 
+time come for appropriate use, but that would first require the drive to develop. Some call the decision to 
 uphold this notion exemplary of complacency, others of modesty, and the evidence for the superiority of 
 form development becomes subjective in the lens of preferred styles and initiatives, even when objective 
 measures capture the inequality. The idea is the easiest for self-interest to intentionally transmit 
@@ -5064,7 +5064,7 @@ each member to resort back to their self-interest, and motives suppressed for wh
 "greater good" unleashed in ways that are seldom different in principle from the others, the 
 "barbarians", per se. As such, the empirical recognition of a rapid pace of change mistakenly 
 reasons into rapid revisions of common cause, which does sometimes amount to violence not of 
-consensus, especially when the innermost essence of the "social fabric" for a people is ordered 
+consensus especially when the innermost essence of the "social fabric" for a people is ordered 
 function for cause. The topic of gossip is a classic one in the conceptual umbrella of the "media". 
 For one, gossip is a social security practice of sorts. If gossip does not uncover the truth, then 
 at least there is still the possibility of knowing the chains of transmission concerning that 
