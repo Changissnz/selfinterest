@@ -5020,3 +5020,10 @@ misconception is what is below in the metaphysical ranking is closer to the phys
 is inconsequential. The abundance of raw material is oftentimes the priority over the idea and can 
 even be of greater concern than conception of the idea. Development demands cognitive functions critical 
 of this base, the raw material, and propagates competition in forms extending beyond material ownership. 
+The factor of competition becoming decentralized away from a singular objective, most recognizable when 
+the objective is associated with object, is cause for additional problems that networked sentient beings 
+such as humans have to contend with. Then the notion of the development and improvement of conception from 
+the idea is regarded as not that important when the source, the raw material, is already there should the 
+time comes for appropriate use. Some call the decision to uphold this notion exemplary of complacency, 
+others of modesty, and the evidence for the superiority of form development becomes subjective in the 
+lens of preferred styles and initiatives, even when objective measures capture the inequality. 
