@@ -5014,5 +5014,5 @@ aims of objective, and additionally is the most frequent tool used in deception,
 the initial element in any deceptive chain of events. A class of phenomena that is peculiar to note, 
 if not for the consideration of the traits pertaining to the sentient agents, is one group of 
 human beings viewing some media form for granted while others marvel at it as if it were something 
-closer to a higher power than what is below man, such that man has the power to make and break it after 
-a satisfied threshold for the industrialization of its production methodology. 
+closer to a higher power than what is below man, such that man has the power to make or break it after 
+the proliferation of its production methodology has satisfied a threshold. 
