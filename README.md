@@ -5027,4 +5027,7 @@ the idea is regarded as not that important when the source, the raw material, is
 time come for appropriate use, but that would require implementation first. Some call the decision to 
 uphold this notion exemplary of complacency, others of modesty, and the evidence for the superiority of 
 form development becomes subjective in the lens of preferred styles and initiatives, even when objective 
-measures capture the inequality. 
+measures capture the inequality. The idea is the easiest to transmit although difficult to understand, 
+and those ideas novel in relativity to the recipient and prime for constructive application are the 
+most difficult to accept in the scope of use, for the informed decision to believe in such things must 
+have taken into consideration the "whole" of the construct that it is supposed to materialize in. 
