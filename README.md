@@ -5017,7 +5017,7 @@ human beings viewing some media form for granted while others marvel at it as if
 closer to a higher power than what it is in origin, below man such that man has the power to make or 
 break it after the proliferation of its production methodology has satisfied a threshold. One 
 misconception is what is below in the metaphysical ranking is closer to the physical zero, so it 
-is inconsequential. The abundance of raw material oftentimes takes priority over the idea and must 
+is inconsequential. The abundance of raw material oftentimes takes priority over the idea, so must 
 then be of greater concern than conception of the idea. Development demands cognitive functions critical 
 of this base, the raw material, and propagates competition in forms extending beyond material ownership. 
 The factor of competition becoming decentralized away from a singular objective, most recognizable when 
