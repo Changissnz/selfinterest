@@ -5043,7 +5043,7 @@ the decision junctions required in matters concerning the product. Ways of life 
 and then are upheld. Stability and order become fixtures, and ideas accepted are those primarily for 
 entertainment outside of the social centrality around the product. These previous statements 
 partly constitute a conceptual thesis for why monopolies in production and distribution are formed. 
-The dividing line between high technological production and raw material production is indeed 
+The dividing line between high technology production and raw material production is indeed 
 predominantly economy by region, and for most intents and purposes, an arbitrary society probably 
 can not afford to divest its cognition from one side in this division to another, out of the 
 lack of support through dependency via socio-political connection. The will of a people becomes 
