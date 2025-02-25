@@ -5040,5 +5040,10 @@ in its valuation; this statement is the basic premise that states and companies 
 control. The consistency in the magnitude of ease for the means of acquisition is a crucial part 
 of conserving social constructs. Artificial axioms becoming heavily geared towards solving for 
 the decision junctions required in matters concerning the product. Ways of life were established 
-and then upheld. Stability and order become fixtures, and ideas accepted are primarily for entertainment 
-outside of the social centrality of the product. 
+and then upheld. Stability and order become fixtures, and ideas accepted are those primarily for 
+entertainment outside of the social centrality of the product. These previous statements made 
+constitute an explanatory thesis for why monopolies in production and distribution are formed. 
+The dividing line between high technological production and raw material production is indeed 
+predominantly economy by region, and for most intents and purposes, an arbitrary society probably 
+could not afford to divest its cognition from one side in this division to another, out of the 
+lack of support through dependency via socio-political connection. 
