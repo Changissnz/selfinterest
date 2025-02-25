@@ -5014,5 +5014,9 @@ aims of objective, and additionally is the most frequent tool used in deception,
 the initial element in any deceptive chain of events. A class of phenomena that is peculiar to note, 
 if not for the consideration of the traits pertaining to the sentient agents, is one group of 
 human beings viewing some media form for granted while others marvel at it as if it were something 
-closer to a higher power than what is below man, such that man has the power to make or break it after 
-the proliferation of its production methodology has satisfied a threshold. 
+closer to a higher power than what it is in origin, below man such that man has the power to make or 
+break it after the proliferation of its production methodology has satisfied a threshold. One 
+misconception is what is below in the metaphysical ranking is closer to the physical zero, so it 
+is inconsequential. The abundance of raw material is oftentimes the priority over the idea and can 
+even be of greater concern than conception of the idea. Development demands cognitive functions critical 
+of this base, the raw material, and propagates competition in forms extending beyond material ownership. 
