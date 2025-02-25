@@ -5055,8 +5055,8 @@ possibility. Movement is the basis for change, and requires energy of form diffe
 root step, that of no movement. The concept of "movement" does prove to be quite challenging to 
 handle as a task when the practice is not in line with the constants of effects from decisions based 
 around artificial axioms, these of course being set by self-interest. A Pax Status. Harmony and 
-peace at the expense of constraining decisions to pre-set artificial axioms that have been agreed 
-upon in consensus of command. Robustness of self-interest to adopt new ways of thinking and 
+peace as effect from constraints in decisions towards pre-set artificial axioms that have been 
+agreed upon in consensus of command. Robustness of self-interest to adopt new ways of thinking and 
 producing quickly craters under the need to be one with the constant that concerns peers. Most 
 societies cannot be robust to adopt to certain categories of change, since those social networks 
 were formed around common cause. The splintering of common cause into obsolescence forces each 
