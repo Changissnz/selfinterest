@@ -5070,10 +5070,10 @@ For one, gossip is a social security practice of sorts. If gossip does not uncov
 at least there is still the possibility of knowing the chains of transmission concerning that 
 gossip, allowing members to note what is pre-eminent in communication from member cognition. Gossip, 
 in cases where an other not part of the discussion is discussed, also serves purposes in discovery 
-of traits concerning the members of that discussion. This statement is a truth from the consequence 
+of truths concerning the members of that discussion. This statement is a truth from the consequence 
 of self-interest possessing privatization properties, from material to immaterial wants and aversions. 
 It is easier to use as examples those that are not part of the discussion, so that conversation about 
 them in delicate and intimate aspects do not directly shine discomfort onto members of that discussion. 
 Furthermore, the proceedings from these arrangements for discourse test at least the reactions from 
-revelation and falsities alike, these reactions indicative of the underlying motives of the members 
-that are not readily able to be understood due to choice expression. 
+revelation and falsities alike, these reactions indicative of the underlying truths of the members 
+that are not readily able to be known due to choice expression. 
