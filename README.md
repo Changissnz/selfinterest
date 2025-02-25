@@ -5040,10 +5040,18 @@ in its valuation; this statement is the basic premise that states and companies 
 control. The consistency in the magnitude of ease for the means of acquisition is a crucial part 
 of conserving social constructs. Artificial axioms becoming heavily geared towards solving for 
 the decision junctions required in matters concerning the product. Ways of life were established 
-and then upheld. Stability and order become fixtures, and ideas accepted are those primarily for 
-entertainment outside of the social centrality of the product. These previous statements made 
-constitute an explanatory thesis for why monopolies in production and distribution are formed. 
+and then are upheld. Stability and order become fixtures, and ideas accepted are those primarily for 
+entertainment outside of the social centrality of the product. These previous statements 
+partly constitute a conceptual thesis for why monopolies in production and distribution are formed. 
 The dividing line between high technological production and raw material production is indeed 
 predominantly economy by region, and for most intents and purposes, an arbitrary society probably 
-could not afford to divest its cognition from one side in this division to another, out of the 
-lack of support through dependency via socio-political connection. 
+can not afford to divest its cognition from one side in this division to another, out of the 
+lack of support through dependency via socio-political connection. The will of a people becomes 
+streamlined for the cause of effecting product in mass. Reason is constrained to these ends, and 
+it is not until these pre-set ways of living are tested past the point of acceptable adversity 
+that the foundation for objectives in production are questioned enough for possible reform. For 
+all the prestige associated with careers of services, the factor of monotony remains an underlying 
+possibility. Movement is the basis for change, and requires energy of form different from the 
+root step, that of no movement. The concept of "movement" does prove to be quite challenging of 
+a task when the practice is not in line with the constants of effects from decisions based around 
+artificial axioms, these of course being set by self-interest.
