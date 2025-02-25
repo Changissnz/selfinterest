@@ -5017,8 +5017,8 @@ human beings viewing some media form for granted while others marvel at it as if
 closer to a higher power than what it is in origin, below man such that man has the power to make or 
 break it after the proliferation of its production methodology has satisfied a threshold. One 
 misconception is what is below in the metaphysical ranking is closer to the physical zero, so it 
-is inconsequential. The abundance of raw material is oftentimes the priority over the idea and can 
-even be of greater concern than conception of the idea. Development demands cognitive functions critical 
+is inconsequential. The abundance of raw material oftentimes takes priority over the idea and must 
+then be of greater concern than conception of the idea. Development demands cognitive functions critical 
 of this base, the raw material, and propagates competition in forms extending beyond material ownership. 
 The factor of competition becoming decentralized away from a singular objective, most recognizable when 
 the objective is associated with object, is cause for additional problems that networked sentient beings 
@@ -5029,15 +5029,15 @@ uphold this notion exemplary of complacency, others of modesty, and the evidence
 form development becomes subjective in the lens of preferred styles and initiatives, even when objective 
 measures capture the inequality. The idea is the easiest for self-interest to intentionally transmit 
 although may be difficult to be understood, and those ideas novel in relativity to the recipient and 
-prime for constructive application are the most difficult to accept in the scope of use, for the 
+prime for constructive application are the most difficult to accept for the scope of use, since the 
 informed decision to believe in such things must have taken into consideration the "whole" of the 
 construct that it is supposed to materialize in; deconstructive processes are necessary to make 
 room in the same space that is the "whole". The field of commerce provides a sufficient area of 
 discussion on priorities with respect to development. When the means to acquire is markedly easier, 
 cheaper in monetary terms, than the means to produce, the centrality for the product's existence 
-is kept constrained and regulated, thus elevating rarity of the product as a significant variable 
-in its valuation; this statement is the basic premise that states and companies alike seek to 
-control. The consistency in the magnitude of ease for the means of acquisition is a crucial part 
+is kept constrained and regulated, thus elevating source rarity for the product as a significant 
+variable in its valuation; this statement is the basic premise that states and companies alike seek 
+to control. The consistency in the magnitude of ease for the means of acquisition is a crucial part 
 of conserving social constructs. Artificial axioms becoming heavily geared towards solving for 
 the decision junctions required in matters concerning the product. Ways of life were established 
 and then are upheld. Stability and order become fixtures, and ideas accepted are those primarily for 
@@ -5051,16 +5051,16 @@ streamlined for the cause of effecting product in mass. Reason is constrained to
 it is not until these pre-set ways of living are tested past the point of acceptable adversity 
 that the foundation for objectives in production are questioned enough for possible reform. For 
 all the prestige associated with careers of services, the factor of monotony remains an underlying 
-possibility. Movement is the basis for change, and requires energy of form different from the 
+possibility. Movement is the basis for change and requires energy of form different from the 
 root step, that of no movement. The concept of "movement" does prove to be quite challenging to 
 handle as a task when the practice is not in line with the constants of effects from decisions based 
 around artificial axioms, these of course being set by self-interest. A Pax Status. Harmony and 
 peace as effect from constraints in decisions towards pre-set artificial axioms that have been 
 agreed upon in consensus of command. Robustness of self-interest to adopt new ways of thinking and 
 producing quickly craters under the need to be one with the constant that concerns peers. Most 
-societies cannot be robust to adopt to certain categories of change, since those social networks 
-were formed around common cause. The splintering of common cause into obsolescence forces each 
-member to resort back to their self-interest, and motives suppressed for what was once their 
+societies cannot be robust enough to adopt to certain categories of change, since those social 
+networks were formed around common cause. The splintering of common cause into obsolescence forces 
+each member to resort back to their self-interest, and motives suppressed for what was once their 
 "greater good" unleashed in ways that are seldom different in principle from the others, the 
 "barbarians", per se. As such, the empirical recognition of a rapid pace of change mistakenly 
 reasons into rapid revision of common cause, which does sometimes amount to violence not of 
