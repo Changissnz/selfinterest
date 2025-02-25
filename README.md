@@ -5063,7 +5063,7 @@ were formed around common cause. The splintering of common cause into obsolescen
 member to resort back to their self-interest, and motives suppressed for what was once their 
 "greater good" unleashed in ways that are seldom different in principle from the others, the 
 "barbarians", per se. As such, the empirical recognition of a rapid pace of change mistakenly 
-reasons into rapid revision of common causes, which does sometimes amount to violence not of 
+reasons into rapid revision of common cause, which does sometimes amount to violence not of 
 consensus, especially when the innermost essence of the "social fabric" for a people is ordered 
 function for cause. The topic of gossip is a classic one in the conceptual umbrella of the "media". 
 For one, gossip is a social security practice of sorts. If gossip does not uncover the truth, then 
