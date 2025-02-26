@@ -5123,8 +5123,8 @@ or collide in interests that may be conceived as loss a necessity for the gain. 
 hierarchy, especially the cases where command structure is consequence from the specific hierarchy, 
 the assignment of status is a non-null variable in the specifics of wants corresponding to the 
 involved agents. Assignment of status could be perceived as zero sum: there is the expected and 
-the actual course of events that serves as the variable for measure of gains and losses. The 
-complexity of arrangements surely does not pre-determine the actualizations, but the relativity 
-of status in a connected arrangement of agents is one of those categories of variables often 
-used by one to reason about why their expectations were not met, the class of belief that a 
-different status would have resulted in the satisfaction of those expectations. 
+the actual course of events that serve as two categories of variables for comparative measures into 
+gains and losses. The complexity of arrangements surely does not pre-determine the actualizations, 
+but the relativity of status in a connected arrangement of agents is one of those categories of 
+variables often used by one to reason about why their expectations were not met, the class of belief 
+that a different status would have resulted in the satisfaction of those expectations. 
