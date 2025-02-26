@@ -5111,9 +5111,15 @@ choices. So there are aims prior to the use of those particular media that remai
 implicative of the motive remaining the same and only performance along some metrics sought to be 
 enhanced. The aversion to objectivity and initiative for some particular human beings is an objective 
 itself. Imagine that some matters, once placed into the differentiating realm of problem or solution, 
-sparks a need for objective from the views of self-interest. And the objective is then acted out in 
+spark a need for objective from the views of self-interest. And the objective is then acted out in 
 ways that must benefit one more than the other in some way. Would not aimlessness as a requirement 
 for being a participant in the media be preferred over movement for unwanted change? And then 
 "aimlessness" would be synonymized with "freedom": acting in chains of events that are not for any 
 singular or known objective, not aware of being beholden to any agenda, not making effort for purposes 
-constructive to one's application but intrusive into another's domain. 
+constructive to one's application but intrusive into another's domain. A related topic to aimlessness 
+in multi-agent contexts is the concept of nonzero sum changes. Now nonzero sum typically requires 
+willful participation of the involved parties through actions that do not invoke zero sum matters 
+or collide in interests that may be conceived as loss a necessity for the gain. In situations of 
+hierarchy, especially the cases where command structure is consequential from the specific hierarchy, 
+the assignment of status is a non-null variable in the specifics of wants corresponding to the 
+involved agents. 
