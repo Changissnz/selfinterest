@@ -5104,4 +5104,5 @@ as product from engineering by human beings. The category of efficiency is assoc
 directness: streamlined, concentrated, and uni-directional. Maintenance of confidence in the media 
 oftentimes proceeds to its users agreeing to some form of efficiency for use; in the realm of communication, 
 this could mean being forthright and honest, with a preference for humorless as opposed to possible cause 
-for disruption. 
+for disruption, but because of inevitable differences in matters of complication is more so something like 
+common courtesy. 
