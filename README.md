@@ -5087,4 +5087,16 @@ issue with the cost-effectiveness possibly being sufficient yet degenerative ove
 what is to be said when one of the ends are supposed to be excised out of the equation for the balance, 
 seemingly arbitrary, is it not? One instance one end concerning the media really matters, the next not. 
 Artificial media clearly is not the endpoint beyond all else, and although it can serve as solution or 
-for solution, the decision to use or improve it are not guaranteed, as already stated. 
+for solution, the decision to use or improve it is not guaranteed, as already stated. The commonality 
+in user perception of media is relational. Through the relations of connectivity that allow each to 
+participate in the media, in other words, sharing the same space, the status of participant implies 
+a kind of equality shared between the users. Thus, each user preference possibly unique is nevertheless 
+factored into the workings of this shared media. In the realm of decision-making, there exists 
+transformative processes to turn truth or falsity into objective and perhaps fiction into underlying 
+truth of principle into cause. Even when the solution is associated with the highest statistical marks 
+of quality, the solution may not be the one that fits the problem; in practices of the natural sciences, 
+this is demonstrated very frequently in medical treatment, where the treatment fails the benchmark to 
+be categorized as a cure yet is still used only to prolong suffering, or when the "cure" is not officially 
+recognized as such because the body of evidence for it is scarce and not from established authorities in 
+the field of health, not very surprising since biology is stochastic in the available choices of axioms 
+for operation and cause of biological life seldom originates as product from human engineering. 
