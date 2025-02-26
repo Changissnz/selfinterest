@@ -5139,5 +5139,5 @@ have already been maximalized, so that there are virtually no available extensio
 to that media that could preserve the identity of form for that media, and that particular media is 
 designated for use. The truth behind lies is guarded by chained defenses, and the relative equality 
 of its members does not enable any member, except for the sender, to detect the lie when analysis is 
-constrained entirely to the realm of that media; this is a conceptual description of the cryptographic 
-power of blockchain technology. 
+constrained entirely to the realm of that media; this is related to the theoretics of the 
+cryptographic power behind blockchain technology. 
