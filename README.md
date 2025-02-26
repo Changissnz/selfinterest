@@ -5102,7 +5102,7 @@ authorities in the field of health, not very surprising since biology is stochas
 choices of axioms for operation (permutatorial) and cause of biological life does not entirely originate 
 as product from engineering by human beings. The category of efficiency has intersection with that of 
 directness: streamlined, concentrated, and uni-directional. Maintenance of confidence in the media 
-oftentimes proceeds into its users agreeing to some way of efficiency for use; in the realm of 
+oftentimes proceeds into its users agreeing on some way of efficiency for use; in the realm of 
 communication, this could mean being forthright and honest, with a preference for humorless as opposed 
 to producing possible cause for disruption, but because of inevitable differences in matters of 
 complication is more so something like common courtesy. On the concept of freedom, there are many 
