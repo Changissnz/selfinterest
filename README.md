@@ -5002,7 +5002,7 @@ concerning human beings. The decision to use one media form over another for the
 example of human-to-human differentiation. Achievements in constructing newer forms of media have 
 connotations of competition associated with them, the replacement of one media over another 
 characteristic of gradualism, how the form and its associated methodologies can only be phased out 
-and usually not without resistance from proponents of the predecessor. Examples in the category of 
+and still not without resistance from proponents of the predecessor. Examples in the category of 
 "media" allow for relations that would never have occurred, amplification and further projection of 
 some default strength, and comprehension of a particular what-is that depends on interpretation 
 through media instead of by direct observation on that what-is. So the decisions that have been 
@@ -5115,5 +5115,5 @@ sparks a need for objective from the views of self-interest. And the objective i
 ways that must benefit one more than the other in some way. Would not aimlessness as a requirement 
 for being a participant in the media be preferred over movement for unwanted change? And then 
 "aimlessness" would be synonymized with "freedom": acting in chains of events that are not for any 
-singular or known objective, not making effort for purposes constructive to one's application but 
-intrusive into another's domain. 
+singular or known objective, not aware of being beholden to any agenda, not making effort for purposes 
+constructive to one's application but intrusive into another's domain. 
