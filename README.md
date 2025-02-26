@@ -5122,8 +5122,8 @@ willful participation of the involved parties through actions that do not invoke
 or collide in interests that may be conceived as gain for one necessitating loss from another. In 
 situations of hierarchy, especially the cases where command structure is consequence from the specific 
 hierarchy, the assignment of status is a non-null variable in the specifics of actualized wants 
-corresponding to the involved agents. Assignment of status could be perceived as zero sum: there is the 
-expected and the actual course of events that serve as two categories of variables for comparative 
+corresponding to the involved agents. Assignment of status could be perceived as zero sum: there are the 
+expected and the actual courses of events that serve as two categories of variables for comparative 
 measures into gains and losses. A complexity through hierarchy surely does not pre-determine all 
 actualizations, but the relativity of status in a connected arrangement of agents is one of those 
 categories of variables often used by one to reason about why their expectations were not met, the 
