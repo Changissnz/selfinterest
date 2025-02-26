@@ -5100,9 +5100,9 @@ benchmark to be categorized as a cure yet is still used only to prolong sufferin
 officially recognized as such because the body of evidence for it is scarce and not from established 
 authorities in the field of health, not very surprising since biology is stochastic in the available 
 choices of axioms for operation (permutatorial) and cause of biological life does not entirely originate 
-as product from engineering by human beings. The category of efficiency is associated with that of 
+as product from engineering by human beings. The category of efficiency has intersection with that of 
 directness: streamlined, concentrated, and uni-directional. Maintenance of confidence in the media 
-oftentimes proceeds into its users agreeing to some form of efficiency for use; in the realm of 
+oftentimes proceeds into its users agreeing to some way of efficiency for use; in the realm of 
 communication, this could mean being forthright and honest, with a preference for humorless as opposed 
 to producing possible cause for disruption, but because of inevitable differences in matters of 
 complication is more so something like common courtesy. On the concept of freedom, there are many 
@@ -5113,8 +5113,8 @@ enhanced. The aversion to objectivity and initiative for some particular human b
 itself. Imagine that some matters, once placed into the differentiating realm of problem or solution, 
 spark a need for objective from the views of self-interest. And the objective is then acted out in 
 ways that must benefit one more than the other in some way. Would not aimlessness as a requirement 
-for being a participant in the media be preferred over movement for unwanted change? And then 
-"aimlessness" would be synonymized with "freedom": acting in chains of events that are not for any 
+for being a participant in the media be preferred over pre-meditated movement for unwanted change? And 
+then "aimlessness" would be synonymized with "freedom": acting in chains of events that are not for any 
 singular or known objective, not aware of being beholden to any agenda, not making effort for purposes 
 constructive to one's application but intrusive into another's domain. A related topic to aimlessness 
 in multi-agent contexts is the concept of nonzero sum changes. Now, nonzero sum typically requires 
