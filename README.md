@@ -5078,13 +5078,13 @@ discussion. Furthermore, the proceedings from these arrangements for discourse t
 reactions from revelation and falsities alike, these reactions corresponding to the underlying truths 
 that concern the members, not readily able to be known due to choice expression. 
 
-## More on philosophies of self-interest #68 
+## More on philosophies of self-interest #69 
 
 Media allows for strategy from one end to deliver formulated vectors to another. This is exactly 
 why the innermost essence of problems concerning one end are difficult to solve even in the most 
 efficiently networked situations via media. Mathematically, this could be presented as a balancing 
-issue with the cost-effectiveness possibly being sufficient yet degenerative over time. But really, 
-what is to be said when one of the ends are supposed to be excised out of the equation for the balance, 
+issue with the cost-effectiveness possibly being sufficient yet still degenerative over time. But really, 
+what is to be said when one of the ends is supposed to be excised out of the equation for the balance, 
 seemingly arbitrary, is it not? One instance one end concerning the media really matters, the next not. 
 Artificial media clearly is not the endpoint beyond all else, and although it can serve as solution or 
 for solution, the decision to use or improve it is not guaranteed, as already stated. The commonality 
@@ -5099,5 +5099,9 @@ natural sciences, this is demonstrated very frequently in medical treatment, whe
 benchmark to be categorized as a cure yet is still used only to prolong suffering, or when the "cure" is not 
 officially recognized as such because the body of evidence for it is scarce and not from established 
 authorities in the field of health, not very surprising since biology is stochastic in the available 
-choices of axioms for operation (permutatorial) and cause of biological life seldom originates as product 
-from human engineering. 
+choices of axioms for operation (permutatorial) and cause of biological life does not entirely originate 
+as product from engineering by human beings. The category of efficiency is associated with that of 
+directness: streamlined, concentrated, and uni-directional. Maintenance of confidence in the media 
+oftentimes proceeds to its users agreeing to some form of efficiency for use; in the realm of communication, 
+this could mean being forthright and honest, with a preference for humorless as opposed to possible cause 
+for disruption. 
