@@ -5115,10 +5115,10 @@ spark a need for objective from the views of self-interest. And the objective is
 ways that must benefit one more than the other in some way. Would not aimlessness as a requirement 
 for being a participant in the media be preferred over pre-meditated movement for unwanted change? And 
 then "aimlessness" would be synonymized with "freedom": acting in chains of events that are not for any 
-singular or known objective, not aware of being beholden to any agenda, not making effort for purposes 
-constructive to one's application and intrusive into another's domain. A related topic to aimlessness 
-in multi-agent contexts is the concept of nonzero sum changes. Now, nonzero sum typically requires 
-willful participation of the involved parties through actions that do not invoke zero sum matters 
+singular or known objective, not aware of being beholden to any agenda, not having to make effort for 
+purposes constructive to one's application and intrusive into another's domain. A related topic to 
+aimlessness in multi-agent contexts is the concept of nonzero sum changes. Now, nonzero sum typically 
+requires willful participation of the involved parties through actions that do not invoke zero sum matters 
 or collide in interests that may be conceived as gain for one necessitating loss from another. In 
 situations of hierarchy, especially the cases where command structure is consequence from the specific 
 hierarchy, the assignment of status is a non-null variable in the specifics of actualized wants 
