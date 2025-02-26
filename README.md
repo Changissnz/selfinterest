@@ -5132,9 +5132,9 @@ of media, in its various forms, may under-deliver to participants. The relationa
 attributes of media entail some primary routes in decision-making as reaction to the available 
 good at the time. To elaborate, good times encourage participants of the same media to act in ways 
 benign and in declining times, the connectivity dilutes desire into disappointment, debt into 
-greater debt, and generosity into thievery. The media that is maximalized in capability and relatively 
-unrestricted in intention for usage is utilized by its participants that are confident without 
-guarantee. Consider the challenge of detecting deception in this kind of media. The capabilities 
+greater debt, and generosity into thievery. The media that is maximalized in expressive capability 
+and relatively unrestricted in intention for usage is utilized by its participants that are confident 
+without guarantee. Consider the challenge of detecting deception in this kind of media. The capabilities 
 have already been maximalized so that there are virtually no available extensions or revisions 
 to that media that could preserve the identity of form for that media, and that particular media is 
 designated for use. The truth behind lies is guarded by chained defenses, and the relative equality 
