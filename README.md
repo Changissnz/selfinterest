@@ -5105,7 +5105,7 @@ that of directness: streamlined, concentrated, and uni-directional. Maintenance 
 oftentimes proceeds into its users agreeing on some way of efficiency for use; in the realm of 
 communication, this could mean being forthright and honest with a preference for being humorless as opposed 
 to producing possible cause for disruption, but because of inevitable differences in matters of 
-complication is more so something like common courtesy. On the concept of freedom, there are many 
+complication is moreso something like common courtesy. On the concept of freedom, there are many 
 examples of media that do not promote greater spans of choice, only greater speed in whatever available 
 choices. So there are aims prior to the use of those particular media that remain as aims, heavily 
 implicative of the motive remaining the same and only performance along some metrics sought to be 
