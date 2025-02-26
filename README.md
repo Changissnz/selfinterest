@@ -5094,9 +5094,10 @@ a kind of equality shared between the users. Thus, each user preference possibly
 factored into the workings of this shared media. In the realm of decision-making, there exists 
 transformative processes to turn truth or falsity into objective and perhaps fiction into underlying 
 truth of principle into cause. Even when the solution is associated with the highest statistical marks 
-of quality, the solution may not be the one that fits the problem; in practices of the natural sciences, 
-this is demonstrated very frequently in medical treatment, where the treatment fails the benchmark to 
-be categorized as a cure yet is still used only to prolong suffering, or when the "cure" is not officially 
-recognized as such because the body of evidence for it is scarce and not from established authorities in 
-the field of health, not very surprising since biology is stochastic in the available choices of axioms 
-for operation and cause of biological life seldom originates as product from human engineering. 
+of quality, the solution for problem may not be the one that fits the problem case; in practices of the 
+natural sciences, this is demonstrated very frequently in medical treatment, where the treatment fails the 
+benchmark to be categorized as a cure yet is still used only to prolong suffering, or when the "cure" is not 
+officially recognized as such because the body of evidence for it is scarce and not from established 
+authorities in the field of health, not very surprising since biology is stochastic in the available 
+choices of axioms for operation (permutatorial) and cause of biological life seldom originates as product 
+from human engineering. 
