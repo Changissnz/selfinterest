@@ -5143,4 +5143,4 @@ the realm of that media; this is related to the theoretics of the cryptographic 
 technology. Then participants, out of their self-interest, may use alternative forms of media in 
 asymmetric fashion to deal with shortcomings of this kind of media. In all, there was asymmetry present 
 in the use of this media due to not every possible agent being a participant, and asymmetry by 
-participants diverting towards alternative forms to this media as solution. 
+participants diverting towards alternative forms to this media as solution to its problems. 
