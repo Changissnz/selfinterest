@@ -5136,7 +5136,8 @@ greater debt, and generosity into thievery. The media that is maximalized in cap
 unrestricted in intention for usage is utilized by its participants that are confident without 
 guarantee. Consider the challenge of detecting deception in this kind of media. The capabilities 
 have already been maximalized, so that there are virtually no available extensions or revisions 
-to that media that could preserve the identity of that media. The truth behind lies is guarded by 
-chained defenses, and the relative equality of its members does not enable any member, except for 
-the sender, to detect the lie when analysis is constrained entirely to the realm of that media; this 
-is a conceptual description of the cryptographic power of blockchain technology. 
+to that media that could preserve the identity of form for that media, and that particular media is 
+designated for use. The truth behind lies is guarded by chained defenses, and the relative equality 
+of its members does not enable any member, except for the sender, to detect the lie when analysis is 
+constrained entirely to the realm of that media; this is a conceptual description of the cryptographic 
+power of blockchain technology. 
