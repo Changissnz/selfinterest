@@ -5086,3 +5086,5 @@ efficiently networked situations via media. Mathematically, this could be presen
 issue with the cost-effectiveness possibly being sufficient yet degenerative over time. But really, 
 what is to be said when one of the ends are supposed to be excised out of the equation for the balance, 
 seemingly arbitrary, is it not? One instance one end concerning the media really matters, the next not. 
+Artificial media clearly is not the endpoint beyond all else, and although it can serve as solution or 
+for solution, the decision to use or improve it are not guaranteed, as already stated. 
