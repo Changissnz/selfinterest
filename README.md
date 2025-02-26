@@ -5083,4 +5083,6 @@ that concern the members, not readily able to be known due to choice expression.
 Media allows for strategy from one end to deliver formulated vectors to another. This is exactly 
 why the innermost essence of problems concerning one end are difficult to solve even in the most 
 efficiently networked situations via media. Mathematically, this could be presented as a balancing 
-issue with the cost-effectiveness possibly being sufficient yet degenerative over time. 
+issue with the cost-effectiveness possibly being sufficient yet degenerative over time. But really, 
+what is to be said when one of the ends are supposed to be excised out of the equation for the balance, 
+seemingly arbitrary, is it not? 
