@@ -5121,15 +5121,15 @@ in multi-agent contexts is the concept of nonzero sum changes. Now, nonzero sum 
 willful participation of the involved parties through actions that do not invoke zero sum matters 
 or collide in interests that may be conceived as gain for one necessitating loss from another. In 
 situations of hierarchy, especially the cases where command structure is consequence from the specific 
-hierarchy, the assignment of status is a non-null variable in the specifics of wants corresponding 
-to the involved agents. Assignment of status could be perceived as zero sum: there is the expected and 
-the actual course of events that serve as two categories of variables for comparative measures into 
-gains and losses. A complexity of arrangements surely does not pre-determine the actualizations, 
-but the relativity of status in a connected arrangement of agents is one of those categories of 
-variables often used by one to reason about why their expectations were not met, the class of belief 
-that a different status would have resulted in the satisfaction of those expectations. The category 
-of media, in its various forms, may under-deliver to participants. The relational and connective 
-attributes of media entail some primary routes in decision-making as reaction to the available 
+hierarchy, the assignment of status is a non-null variable in the specifics of actualized wants 
+corresponding to the involved agents. Assignment of status could be perceived as zero sum: there is the 
+expected and the actual course of events that serve as two categories of variables for comparative 
+measures into gains and losses. A complexity of arrangements surely does not pre-determine the 
+actualizations, but the relativity of status in a connected arrangement of agents is one of those 
+categories of variables often used by one to reason about why their expectations were not met, the 
+class of belief that a different status would have resulted in the satisfaction of those expectations. 
+The category of media, in its various forms, may under-deliver to participants. The relational and 
+connective attributes of media entail some primary routes in decision-making as reaction to the available 
 good at the time. To elaborate, good times encourage participants of the same media to act in ways 
 benign and in declining times, the connectivity dilutes desire into disappointment, sponsors debt into 
 greater debt, and confuses thievery for generosity. The media that is maximalized in masking capability 
