@@ -5129,7 +5129,7 @@ but the relativity of status in a connected arrangement of agents is one of thos
 variables often used by one to reason about why their expectations were not met, the class of belief 
 that a different status would have resulted in the satisfaction of those expectations. The category 
 of media, in its various forms, may under-deliver to participants. The relational and connective 
-attributes of media entails some primary routes in decision-making as reaction to the available 
+attributes of media entail some primary routes in decision-making as reaction to the available 
 good at the time. To elaborate, good times allow participants of the same media to act in ways 
 benign, and in declining times, the connectivity dilutes desire into disappointment, debt into 
 greater debt, and generosity into thievery. 
