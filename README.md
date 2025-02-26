@@ -5138,10 +5138,10 @@ utilized by its participants that are confident without guarantee. Consider the 
 deception in this kind of media. The capabilities have already been maximalized so that there are 
 virtually no available extensions or revisions to that media that could preserve the identity of form 
 for that media, and that particular media is solely designated for use. The truth behind lies is guarded 
-by chained defenses, and the relative equality of its members does not enable any member to detect the lie 
-when analysis is constrained entirely to the realm of that media; this is related to the theoretics of 
-the cryptographic power behind blockchain technology. Then participants, out of their self-interest, may 
-use alternative forms of media in asymmetric fashion to deal with shortcomings of this kind of media. In 
-all, there was asymmetry present in the use of this media due to not every possible agent being a 
-participant, and asymmetry by participants diverting towards alternative forms to this media as solution 
-to its problems. 
+by chained defenses, and the relative equality of its members does not enable any member to detect the 
+transmitted lie when analysis is constrained entirely to the realm of that media; this is related to the 
+theoretics of the cryptographic power behind blockchain technology. Then participants, out of their 
+self-interest, may use alternative forms of media in asymmetric fashion to deal with shortcomings of this 
+kind of media. In all, there was asymmetry present in the use of this media due to not every possible agent 
+being a participant, and asymmetry by participants diverting towards alternative forms to this media as 
+solution to its problems. 
