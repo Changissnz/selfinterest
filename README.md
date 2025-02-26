@@ -5103,7 +5103,7 @@ choices of axioms for operating life (permutatorial) and cause of biological lif
 originate as product from engineering by human beings. The category of efficiency has intersection with 
 that of directness: streamlined, concentrated, and uni-directional. Maintenance of confidence in the media 
 oftentimes proceeds into its users agreeing on some way of efficiency for use; in the realm of 
-communication, this could mean being forthright and honest, with a preference for humorless as opposed 
+communication, this could mean being forthright and honest with a preference for being humorless as opposed 
 to producing possible cause for disruption, but because of inevitable differences in matters of 
 complication is more so something like common courtesy. On the concept of freedom, there are many 
 examples of media that do not promote greater spans of choice, only greater speed in whatever available 
