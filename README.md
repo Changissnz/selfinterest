@@ -5080,4 +5080,7 @@ that concern the members, not readily able to be known due to choice expression.
 
 ## More on philosophies of self-interest #68 
 
-Media allows for strategy from one end to deliver formulated vectors to another. 
+Media allows for strategy from one end to deliver formulated vectors to another. This is exactly 
+why the innermost essence of problems concerning one end are difficult to solve even in the most 
+efficiently networked situations via media. Mathematically, this could be presented as a balancing 
+issue with the cost-effectiveness possibly being sufficient yet degenerative over time. 
