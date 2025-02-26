@@ -5109,10 +5109,10 @@ complication is more so something like common courtesy. On the concept of freedo
 examples of media that do not promote greater spans of choice, only greater speed in whatever available 
 choices. So there are aims prior to the use of those particular media that remain as aims, heavily 
 implicative of the motive remaining the same and only performance along some metrics sought to be 
-enhanced. The aversion to objectivity and initiative for some particular human beings is an objective 
-itself. Imagine that some matters, once placed into the differentiating realm of problem or solution, 
-spark a need for objective from the views of self-interest. And the objective is then acted out in 
-ways that must benefit one more than the other in some way. Would not aimlessness as a requirement 
+enhanced. Fostering aversion to objectivity and initiative for some particular human beings is an 
+objective itself. Imagine that some matters, once placed into the differentiating realm of problem or 
+solution, spark a need for objective from the views of self-interest. And the objective is then acted 
+out in ways that must benefit one more than the other in some way. Would not aimlessness as a requirement 
 for being a participant in the media be preferred over pre-meditated movement for unwanted change? And 
 then "aimlessness" would be synonymized with "freedom": acting in chains of events that are not for any 
 singular or known objective, not aware of being beholden to any agenda, not having to make effort for 
