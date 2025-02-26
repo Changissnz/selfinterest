@@ -5130,6 +5130,13 @@ variables often used by one to reason about why their expectations were not met,
 that a different status would have resulted in the satisfaction of those expectations. The category 
 of media, in its various forms, may under-deliver to participants. The relational and connective 
 attributes of media entail some primary routes in decision-making as reaction to the available 
-good at the time. To elaborate, good times allow participants of the same media to act in ways 
-benign, and in declining times, the connectivity dilutes desire into disappointment, debt into 
-greater debt, and generosity into thievery. 
+good at the time. To elaborate, good times encourage participants of the same media to act in ways 
+benign and in declining times, the connectivity dilutes desire into disappointment, debt into 
+greater debt, and generosity into thievery. The media that is maximalized in capability and relatively 
+unrestricted in intention for usage is utilized by its participants that are confident without 
+guarantee. Consider the challenge of detecting deception in this kind of media. The capabilities 
+have already been maximalized, so that there are virtually no available extensions or revisions 
+to that media that could preserve the identity of that media. The truth behind lies is guarded by 
+chained defenses, and the relative equality of its members does not enable any member, except for 
+the sender, to detect the lie when analysis is constrained entirely to the realm of that media; this 
+is a conceptual description of the cryptographic power of blockchain technology. 
