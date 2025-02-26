@@ -5116,7 +5116,7 @@ ways that must benefit one more than the other in some way. Would not aimlessnes
 for being a participant in the media be preferred over pre-meditated movement for unwanted change? And 
 then "aimlessness" would be synonymized with "freedom": acting in chains of events that are not for any 
 singular or known objective, not aware of being beholden to any agenda, not making effort for purposes 
-constructive to one's application but intrusive into another's domain. A related topic to aimlessness 
+constructive to one's application and intrusive into another's domain. A related topic to aimlessness 
 in multi-agent contexts is the concept of nonzero sum changes. Now, nonzero sum typically requires 
 willful participation of the involved parties through actions that do not invoke zero sum matters 
 or collide in interests that may be conceived as gain for one necessitating loss from another. In 
