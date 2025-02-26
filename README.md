@@ -5077,3 +5077,7 @@ them in delicate and intimate aspects do not directly shine relational discomfor
 discussion. Furthermore, the proceedings from these arrangements for discourse test at least the 
 reactions from revelation and falsities alike, these reactions corresponding to the underlying truths 
 that concern the members, not readily able to be known due to choice expression. 
+
+## More on philosophies of self-interest #68 
+
+Media allows for strategy from one end to deliver formulated vectors to another. 
