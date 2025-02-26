@@ -5131,8 +5131,8 @@ that a different status would have resulted in the satisfaction of those expecta
 of media, in its various forms, may under-deliver to participants. The relational and connective 
 attributes of media entail some primary routes in decision-making as reaction to the available 
 good at the time. To elaborate, good times encourage participants of the same media to act in ways 
-benign and in declining times, the connectivity dilutes desire into disappointment, debt into 
-greater debt, and generosity into thievery. The media that is maximalized in masking capability 
+benign and in declining times, the connectivity dilutes desire into disappointment, sponsors debt into 
+greater debt, and confuses thievery for generosity. The media that is maximalized in masking capability 
 and relatively unrestricted in intention for usage is utilized by its participants that are confident 
 without guarantee. Consider the challenge of detecting deception in this kind of media. The capabilities 
 have already been maximalized so that there are virtually no available extensions or revisions 
@@ -5143,4 +5143,4 @@ the realm of that media; this is related to the theoretics of the cryptographic 
 technology. Then participants, out of their self-interest, may use alternative forms of media in 
 asymmetric fashion to deal with shortcomings of this kind of media. In all, there was asymmetry present 
 in the use of this media due to not every possible agent being a participant, and asymmetry by 
-alternative forms to this media as solution. 
+participants diverting towards alternative forms to this media as solution. 
