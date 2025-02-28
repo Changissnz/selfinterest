@@ -5145,3 +5145,8 @@ self-interest, may use alternative forms of media in asymmetric fashion to deal 
 kind of media. In all, there was asymmetry present in the use of this media due to not every possible agent 
 being a participant, and asymmetry by participants diverting towards alternative forms to this media as 
 solution to its problems. 
+
+## More on philosophies of self-interest #70 
+
+Oftentimes in life, a belief in the inherent goodness of things is required of one for them to be at 
+ease with proceeding forward in however which way. 
