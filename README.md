@@ -5191,4 +5191,5 @@ reaching or meeting checkpoints in experience. Meditation, allocated time expire
 from this state of cognition are perceived as poetic nonsense fit for circular slumber far removed 
 from the pertinence, so must be distanced from. In the media of multi-agent activity, integrity could 
 translate into the need for identity-based selflessness, something very subject to the whims of design 
-by more than one instance of self-interest. 
+by more than one instance of self-interest; the default identity of a media with multiple participants 
+is the whole of them all and functionally contained at that. 
