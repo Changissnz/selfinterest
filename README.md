@@ -5187,4 +5187,5 @@ on on what is to be done commanded in real-time or derived from the media fundam
 to too far of an extent, perhaps even a second thought, and the innermost essence of things have to be 
 metaphorically disintegrated and replaced with an essence that can still move forward however. The 
 navigation as the wanted effect and the objective of motion as the wanted essence is superior for 
-reaching or meeting checkpoints in experience. 
+reaching or meeting checkpoints in experience. Meditation, allocated time expired, and supposed wisdoms 
+from this state of cognition are perceived as poetic nonsense fit for heartbroken drunkards. 
