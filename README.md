@@ -5196,7 +5196,7 @@ is the whole of them all and functionally contained at that. Identity provides d
 has meaning, allusion to identity strengthens resistance against doubt, and correspondence to identity 
 reaffirms origin that must be good of strength. The force of self-interest would produce thought and 
 action as if there were no self responsible for the instance of it if there were no identity at all 
-in this mix of media and if identity of self excluding remainder remains, haphazard in the consideration 
+in this mix of media, and if identity of self excluding remainder remains, haphazard in the consideration 
 of the rules of artificial or natural axiom. Delicacy in preserving the fitting match between participants 
 and media for complex situations is conducive to stasis only because the positive effort is not there to 
 displace the jagged complements that form the multi-sourced fusing into whole. The clarity of perceiving 
