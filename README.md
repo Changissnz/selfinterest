@@ -5202,4 +5202,5 @@ and media for complex situations is conducive to stasis only because the positiv
 displace the jagged complements that form the multi-sourced fusing. The clarity of perceiving the whole 
 may be lost, but rediscovery could always proceed as long as it stays whole in the identity of original 
 formation. And the clarity of this introspection by a media participant does not have to occur or be 
-accurate for there to be motion that is driven by self-interest from the self with its motivation. 
+accurate for there to be motion that is driven by self-interest from the self with its motivation. So 
+sometimes, hard points are driven for closure while sparing the question that remains open. 
