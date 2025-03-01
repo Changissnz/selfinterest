@@ -5149,6 +5149,6 @@ solution to its problems.
 ## More on philosophies of self-interest #70 
 
 Oftentimes in life, a belief in the inherent goodness of things is required of one for them to be at 
-ease with proceeding forward in however which way. Goodness, predominantly relative in all and personal 
-as one, of a passing threshold is required for the continuing use of any media not immediately necessary 
-for prolonging life. 
+ease with proceeding forward in however which way. Goodness, predominantly relative in relation between 
+some of all and preference as one, of a passing threshold is required for the continuing use of any media 
+not immediately necessary for prolonging life. 
