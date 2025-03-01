@@ -5218,6 +5218,6 @@ about the delegation of agency to one or more of these ends in the participant e
 by the media. The media that is experienced through participation cannot be observed in full, logic 
 on the metaphor of the bird's eye. It must oftentimes be thought that wisdom is not found by memorizing 
 words and phrases, and wisdom only through language is by reaching the meaning such that for completeness, 
-the origin of spirit and activity through social construct that produced it; observation translated into 
-communicated meaning is not necessarily power of observation over the experience without. 
+the origin of spirit and activity through social construct that produced it is also known; observation 
+translated into communicated meaning is not necessarily power of observation over the experience without. 
 
