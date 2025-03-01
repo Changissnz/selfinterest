@@ -5162,7 +5162,7 @@ there are many variables, and interests born out of self-interest are not fixate
 experience. The notion of there being an ideal practice, the practice being not a compensation but 
 a necessary realization for the ideal, is but a belief if not for the force of standing up for and 
 advancing it. Ideal practices may never be implemented through to the decisive end of all ends in 
-cases where the rigidity necessitates limitation. The belief in the inherent goodness of the media 
-that falls short of optimal performance persists out of fear for the alternative of formulation 
-that was already determined to be nullified as proof of allegiance to the form and function for the 
-ends of the media to interact in. 
+cases where the rigidity necessitates limitation, and fear of limitation means defeat already. The 
+belief in the inherent goodness of the media that falls short of optimal performance persists out of 
+fear for the alternative of formulation that was already determined to be nullified, as proof of 
+allegiance to the form and function for the ends of that one media to interact in. 
