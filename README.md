@@ -5172,9 +5172,9 @@ primes at critical points in duration, there is still yet another opportunity, a
 to other activities and remains confident that the other ends of the media will re-calibrate themselves 
 into different execution of the function agreed on at the beginning as the best for the respective test. 
 To question the fundamentals of this media the self, being a participant, has already agreed on is 
-adversarial to its existence so that events proceed with or without error, the objectivity of error 
-however accurate is questionable and may be even dangerous to the fundamental of this media's form and 
-function. If the issue was not resolved by now or the activity did not go as planned, the demand is 
-still there to stay and not above or alongside, but under. The media is good in belief then, because it 
-serves any participant of one end through its existence that ultimately supercedes every end, although some 
-ends may very much be in predominating administration of it. 
+adversarial to its existence so that events must still proceed with or without error, the objectivity of 
+error-recognition however accurate is questionable and may be even dangerous to the fundamental of this 
+media's form and function. If the issue was not resolved by now or the activity did not go as planned, 
+the demand is still there to stay and not above or alongside, but under. The media is good in belief then, 
+because it serves any participant of one end through its existence that ultimately supercedes every end, 
+although some ends may very much be in predominating administration of it. 
