@@ -5203,7 +5203,7 @@ displace the jagged complements that form the multi-sourced fusing into whole. T
 the whole may be lost, but rediscovery could always proceed as long as it stays whole in the identity of 
 original formation. And the clarity of this introspection by a media participant does not have to occur or 
 be accurate for there to be motion driven by self-interest from the self with its motivation. So 
-sometimes, hard points are driven for closure while sparing questions that remain open. Besides from 
+sometimes, hard points are driven for closure while questions are spared to remain open. Besides from 
 the effects produced by function of media, a balancing question takes effect to demand answers in 
 relation to the demands for non-static effect, which would pose difficulties related not merely to 
 persistence as in the case of constancy, that demands function of contextually differing effects. The 
