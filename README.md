@@ -5180,9 +5180,11 @@ because it serves any participant of one end through its existence that ultimate
 although some ends may very much be in predominating administration of it. What is the body of ideas 
 for the media outside of its uses? Those desperate for answers of any form of function worth passing 
 grade will have to follow in the image of that one media effector. In these cases, the recognition that 
-the effects work is the satisfied metric for merit and the topic of ideological purity unfit for the 
-context. The tendencies of the participants to react to the "nature" of the matters in the media they 
-are a part of for the solution of one endeavored by all has already been put into motion. Backtrack on 
-on what is to be done commanded in real-time or derived from the media fundamental of form and function 
+the effects work is the satisfied metric for merit and the correspondence to ideological purity unfit 
+for the context. The tendencies of the participants to react to the "nature" of the matters in the media 
+they are a part of for the solution of one endeavored by all has already been put into motion. Backtrack 
+on on what is to be done commanded in real-time or derived from the media fundamental of form and function 
 to too far of an extent, perhaps even a second thought, and the innermost essence of things have to be 
-metaphorically disintegrated and replaced with an essence that can still move forward however. 
+metaphorically disintegrated and replaced with an essence that can still move forward however. The 
+navigation as the wanted effect and the objective of motion as the wanted essence is superior for 
+reaching or meeting checkpoints in experience. 
