@@ -5151,6 +5151,6 @@ solution to its problems.
 Oftentimes in life, a belief in the inherent goodness of things is required of one for them to be at 
 ease with proceeding forward in however which way. Goodness, predominantly relative in relation between 
 some of all and preference as one, of a passing threshold is required for the continuing use of any media 
-not immediately necessary for prolonging life. Tact of immediacy loses direction for the varying trials 
-under the same aims, the strength and speed and vitality lost through effort to collapse nonetheless, an 
-example of the necessity of patience. 
+not immediately necessary for prolonging life. Tact of immediacy loses direction to the varying trials 
+under the same aims of adversary, the strength and speed and vitality lost through fretful effort to 
+collapse nonetheless, an example of the necessity of patience. 
