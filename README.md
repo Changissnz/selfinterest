@@ -5156,4 +5156,7 @@ from the adversary with the same aims, the strength and speed and vitality lost 
 to collapse nonetheless, an example of the necessity of patience. Those that desire to participate in 
 a media sacrifice clarity, that is, the notions of non-contradicting relation to one another, for 
 relations to the content of that media's objects. Clarity in statement and action does blur the 
-recognition of a media with more than one end into a mass of homogenous anatomy. 
+recognition of a media with more than one end into a mass of homogenous anatomy. For every variable, 
+atomic-like understandings of a media assign each end to an interest. And in any media of relevance, 
+there are many, and interests born out of self-interest are not fixated to the experience that is 
+non-static. 
