@@ -5178,4 +5178,11 @@ media's form and function. If the issue was not resolved by now or the activity 
 the demand is still there to stay and not above or alongside, but under. The media is good in belief then, 
 because it serves any participant of one end through its existence that ultimately supercedes every end, 
 although some ends may very much be in predominating administration of it. What is the body of ideas 
-for the media outside of its uses? 
+for the media outside of its uses? Those desperate for answers of any form of function worth passing 
+grade will have to follow in the image of that one media effector. In these cases, the recognition that 
+the effects work is the satisfied metric for merit and the topic of ideological purity unfit for the 
+context. The tendencies of the participants to react to the "nature" of the matters in the media they 
+are a part of are part of the solution, and the solution has already been put into motion. Backtrack on 
+on what is to be done commanded in real-time or derived from the media fundamental of form and function, 
+and the innermost essence of things have to be metaphorically disintegrated and replaced with an essence 
+that can move forward however. 
