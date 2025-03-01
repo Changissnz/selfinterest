@@ -5215,4 +5215,9 @@ to this environment. The ends have minds of their own then, and this is more imp
 of individuation that, in turn, produces dependency for the whole to preserve function of met 
 satisfaction in robustness. And this becomes a management problem, one that handles doubt as well 
 about the delegation of agency to one or more of these ends in the participant environment connected 
-by the media. 
+by the media. The media that is experienced through participation cannot be observed in full, logic 
+on the metaphor of the bird's eye. It must oftentimes be thought that wisdom is not found by memorizing 
+words and phrases, and wisdom only through language is by reaching the meaning such that for completeness, 
+the origin of spirit and activity through social construct that produced it; observation translated into 
+communicated meaning is not necessarily power of observation over the experience without. 
+
