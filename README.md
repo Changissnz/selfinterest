@@ -5182,7 +5182,7 @@ for the media outside of its uses? Those desperate for answers of any form of fu
 grade will have to follow in the image of that one media effector. In these cases, the recognition that 
 the effects work is the satisfied metric for merit and the topic of ideological purity unfit for the 
 context. The tendencies of the participants to react to the "nature" of the matters in the media they 
-are a part of are part of the solution, and the solution has already been put into motion. Backtrack on 
+are a part of for the solution of one endeavored by all has already been put into motion. Backtrack on 
 on what is to be done commanded in real-time or derived from the media fundamental of form and function, 
 and the innermost essence of things have to be metaphorically disintegrated and replaced with an essence 
-that can move forward however. 
+that can still move forward however. 
