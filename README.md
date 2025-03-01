@@ -5212,6 +5212,7 @@ of identity regardless of the quality of identity at initial point. The ends of 
 into inconsistent comparisons of identity quality through quality that is not only for a non-null 
 answer, but something genuine right down to the innermost essence of any thought or action related 
 to this environment. The ends have minds of their own then, and this is more important in this kind 
-of individuation that, in turn, becomes a dependency for the whole to preserve function of met 
-satisfaction. And this becomes a management problem, one in conjunction with doubt about the delegation 
-of agency to one or more of these ends in the participant environment connected by the media. 
+of individuation that, in turn, produces dependency for the whole to preserve function of met 
+satisfaction in robustness. And this becomes a management problem, one that handles doubt as well 
+about the delegation of agency to one or more of these ends in the participant environment connected 
+by the media. 
