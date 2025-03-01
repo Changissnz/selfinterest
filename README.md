@@ -5193,4 +5193,7 @@ from the pertinence, so must be distanced from. In the media of multi-agent acti
 translate into the need for identity-based selflessness, something very subject to the whims of design 
 by more than one instance of self-interest; the default identity of a media with multiple participants 
 is the whole of them all and functionally contained at that. Identity provides definition, definition 
-has meaning, allusion to identity strengthens resistance against doubt, and correspondence to identity reaffirms origin that must be good of strength. 
+has meaning, allusion to identity strengthens resistance against doubt, and correspondence to identity 
+reaffirms origin that must be good of strength. The force of self-interest would produce thought and 
+action as if there were no self responsible for the instance of it if there were no identity at all 
+in this mix of media and haphazard in the awareness of the rules of artificial or natural axiom. 
