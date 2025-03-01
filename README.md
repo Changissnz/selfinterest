@@ -5152,9 +5152,9 @@ Oftentimes in life, a belief in the inherent goodness of things is required of o
 ease with proceeding forward in however which way. Goodness, relative in relation between some of all 
 and preference as one, of a passing threshold is required for the continuing use of any media not 
 immediately necessary for prolonging life. Tact of immediacy loses direction to the varying trials 
-from the adversary with the same aims, the strength and speed and vitality lost through fretful effort 
-to collapse nonetheless, an example of the necessity of patience. Those that desire to participate in 
-a media sacrifice clarity, that is, the notions of non-contradicting relation to one another, for 
+from the adversary with the constant aims, the strength and speed and vitality lost through fretful 
+effort to collapse nonetheless, an example of the necessity of patience. Those that desire to participate 
+in a media sacrifice clarity, that is, the notions of non-contradicting relation to one another, for 
 relations to the content of that media's objects. Clarity in statement and action does blur the 
 recognition of a media with more than one end into a mass of homogenous anatomy. For every variable, 
 atomic-like understandings of a media assign each end to an interest. And in any media of relevance, 
