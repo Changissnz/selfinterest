@@ -5189,4 +5189,6 @@ metaphorically disintegrated and replaced with an essence that can still move fo
 navigation as the wanted effect and the objective of motion as the wanted essence is superior for 
 reaching or meeting checkpoints in experience. Meditation, allocated time expired, for supposed wisdoms 
 from this state of cognition are perceived as poetic nonsense fit for circular slumber far removed 
-from the pertinence, so must be distanced from. 
+from the pertinence, so must be distanced from. In the media of multi-agent activity, there is the 
+need for identity-based selflessness, something very subject to the whims of design by more than one 
+instance of self-interest. 
