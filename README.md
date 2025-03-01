@@ -5177,4 +5177,5 @@ error-recognition however accurate is questionable and may be even dangerous to 
 media's form and function. If the issue was not resolved by now or the activity did not go as planned, 
 the demand is still there to stay and not above or alongside, but under. The media is good in belief then, 
 because it serves any participant of one end through its existence that ultimately supercedes every end, 
-although some ends may very much be in predominating administration of it. 
+although some ends may very much be in predominating administration of it. What is the body of ideas 
+for the media outside of its uses? 
