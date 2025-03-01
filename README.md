@@ -5171,8 +5171,8 @@ in the exponentially negative sense. For the multitude of media variables that d
 primes at critical points in duration, there is still yet another opportunity, and the self goes ahead 
 to other activities and remains confident that the other ends of the media will re-calibrate themselves 
 into different execution of the function agreed on at the beginning as the best for the respective test. 
-To question the fundamentals of this media the self, being a participant, has already agreed on is a 
+To question the fundamentals of this media the self, being a participant, has already agreed on is 
 adversarial to its existence so that events proceed with or without error, the objectivity of error 
 however accurate is questionable and may be even dangerous to the fundamental of this media's form and 
-function. If the issue was not resolved now or the activity did not go as planned, the demand is still 
-there to stay and not above or alongside, but under. 
+function. If the issue was not resolved by now or the activity did not go as planned, the demand is 
+still there to stay and not above or alongside, but under. 
