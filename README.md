@@ -5199,8 +5199,11 @@ action as if there were no self responsible for the instance of it if there were
 in this mix of media and if identity of self excluding remainder remains, haphazard in the consideration 
 of the rules of artificial or natural axiom. Delicacy in preserving the fitting match between participants 
 and media for complex situations is conducive to stasis only because the positive effort is not there to 
-displace the jagged complements that form the multi-sourced fusing. The clarity of perceiving the whole 
-may be lost, but rediscovery could always proceed as long as it stays whole in the identity of original 
-formation. And the clarity of this introspection by a media participant does not have to occur or be 
-accurate for there to be motion that is driven by self-interest from the self with its motivation. So 
-sometimes, hard points are driven for closure while sparing the question that remains open. 
+displace the jagged complements that form the multi-sourced fusing into whole. The clarity of perceiving 
+the whole may be lost, but rediscovery could always proceed as long as it stays whole in the identity of 
+original formation. And the clarity of this introspection by a media participant does not have to occur or 
+be accurate for there to be motion driven by self-interest from the self with its motivation. So 
+sometimes, hard points are driven for closure while sparing questions that remain open. Besides from 
+the effects produced by function of media, a balancing question takes effect to demand answers in 
+relation to the demands for non-static effect, which would pose difficulties related not merely to 
+persistence as in the case of constancy, that demands function of contextually differing effects. 
