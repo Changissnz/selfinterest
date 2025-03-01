@@ -5164,5 +5164,15 @@ a necessary realization for the ideal, is but a belief if not for the force of s
 advancing it. Ideal practices may never be implemented through to the decisive end of all ends in 
 cases where the rigidity necessitates limitation, and fear of limitation for defeat becomes already 
 present. The belief in the inherent goodness of the media that falls short of optimal performance 
-persists out of fear for the alternative of formulation that was already determined to be nullified, 
-as proof of allegiance to the form and function for the ends of that one media to interact in. 
+persists out of fear for any alternative of formulation that was already determined to always be 
+nullified, as proof of allegiance to the form and function for the ends of that one media to interact 
+in. In the train of thought for this belief, experience of sub-optimal conditions are not registered 
+in the exponentially negative sense. For the multitude of media variables that did not produce the 
+primes at critical points in duration, there is still yet another opportunity, and the self goes ahead 
+to other activities and remains confident that the other ends of the media will re-calibrate themselves 
+into different execution of the function agreed on at the beginning as the best for the respective test. 
+To question the fundamentals of this media the self, being a participant, has already agreed on is a 
+adversarial to its existence so that events proceed with or without error, the objectivity of error 
+however accurate is questionable and may be even dangerous to the fundamental of this media's form and 
+function. If the issue was not resolved now or the activity did not go as planned, the demand is still 
+there to stay and not above or alongside, but under. 
