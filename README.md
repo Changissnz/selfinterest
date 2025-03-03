@@ -5253,7 +5253,7 @@ attempt to formulate absolutist thinking into words; what merely "surrounds" may
 For example, deception takes place, the deception becomes recognized for what it is, and then the deceiver 
 expresses themselves in remorseful appearances and tones to signify acknowledgment of the innermost essence 
 of what occurred to those formerly deceived. Those formerly deceived interpret the remorseful appearances 
-and tones as extensions of the deception, and from their perspective, the deception must constitute a 
+and tones as extensions of the deception and, from their perspective, the deception must constitute a 
 deception campaign of not just lone acts because the characteristic extends to every play of event by 
-the deceiver because of the backtracking connection to what is recognized as the innermost essence: 
-deception in origin. 
+the deceiver, and the backtracking connection to what is recognized as the innermost essence: deception 
+in origin. 
