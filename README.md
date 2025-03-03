@@ -5271,4 +5271,8 @@ risk, deception in origin. Efforts focus on maintaining the closure to assert co
 of sanity, from self-interest. Information is an important asset in security. The practical uses of 
 knowledge presented in formats, verifiable for authenticity of the content, are under the umbrella 
 of self-interest. From sentient being to sentient being, there are three categories besides from 
-discovery of knowledge: leverage, proliferation, and order. 
+discovery of knowledge: leverage, proliferation, and equilibrium. Notions of security are implemented 
+in ways that partially overlap with uses and possessions of information. In the context of application 
+without further development, what exists in the present is all that there is available for use via the 
+known methodologies. Deception is peculiar in representation of it into information, for if it would be 
+recognizable if it was not peculiar in its design for intention. 
