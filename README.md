@@ -5253,11 +5253,11 @@ attempt to formulate absolutist thinking into words; what merely "surrounds" may
 For example, deception takes place, the deception becomes recognized for what it is, and then the deceiver 
 expresses themselves in remorseful appearances and tones to signify acknowledgment of the innermost essence 
 of what occurred to those formerly deceived. Those formerly deceived interpret the remorseful appearances 
-and tones as extensions of the deception and, from their perspective, the deception must constitute a 
+and tones as continuation of the deception and, from their perspective, the deception must constitute a 
 deception campaign of not just lone acts because the characteristic extends to every play of event by 
 the deceiver, and the backtracking connection to what is recognized as the innermost essence: deception 
 in origin. The notion, any sentient being has the right to be deceptive by default, delivers 
 powerful connotation, especially since said notion is a fact of the default in matters processed by 
 data structures void of the appropriate experience from reference. To know more and more, and the 
-knowing still no use for guarantee what is next, in terms of movement, with the sentient being is 
+knowing still no use for guaranteeing what is next, in terms of movement, with the sentient being is 
 limitation undefined and still existent.  
