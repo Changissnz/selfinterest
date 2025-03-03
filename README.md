@@ -5292,4 +5292,6 @@ deception in practice to produce one or more sequences of events intended to be 
 explanation is that gains needed to occur and there were impediments perceived. And since circumstances 
 personal to self-interest were lackluster, filled with incongruencies and unfairness borne partially out 
 of misunderstanding, likewise the intended effect for deception, the merit of producing that deception 
-was judged on a spectrum instead of somewhere with hard lines. 
+was judged on a spectrum instead of somewhere with hard lines. The right to be deceptive by default 
+becomes decisions of degree of being pro-active in expression of this quality. 
+
