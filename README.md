@@ -5202,7 +5202,7 @@ and media for complex situations is conducive to stasis only because the positiv
 displace the jagged complements that form the multi-sourced fusing into whole. The clarity of perceiving 
 the whole may be lost, but rediscovery could always proceed as long as it stays whole in the identity of 
 original formation. And the clarity of this introspection by a media participant does not have to occur or 
-be accurate for there to be motion driven by self-interest from the self with its motivation. So 
+be accurate for there to be motion, driven by self-interest from the self with its motivation to will. So 
 sometimes, hard points are driven for closure while questions are spared to remain open. Besides from 
 the effects produced by function of media, a balancing question takes effect to demand answers in 
 relation to the demands for non-static effect, which would pose difficulties related not merely to 
@@ -5230,16 +5230,18 @@ a damn shame, really, for security to be critical in balance for balance and all
 align with political interests, because then, conversations on and implementations of security are forever 
 bound to the asymmetry of the protected and the protector, amongst other categories in these dynamical 
 systems. Somewhere in the design and execution of security in flux for the wanted stases is relation to or 
-output from purely political interests, in other words. It would definitely be easier for matters to just be 
-set into stone, from sentience a will-lessness, but that is precisely why words unchallenged could be 
-dangerous regardless of the supposed nobility in cause of preference, typically by use of artificial axiom 
-justifying the decision as principle very grounded yet from up high and beyond, the unattainable ideal if 
-the practice is challenged because the practice is the most ideal in relativity so much that it should serve 
-as the pinnacle for standard. Consider the cases of decisions made that are then placed under subjective 
-scrutiny. For these decisions, there is a representative that finalizes the output from the decision-making 
-process into decision. The representative is called these truths such as "weak" and "strong", "high-minded" 
-and "lowly", these dichotomies go on, in the first lines of argument, and the substance underneath or 
-surrounding taken for granted although not all of it is known. And perhaps even if all is known, there 
-is still preference not for singularity. There is always some thing backing the representative, a truism 
-of infantile reasoning that nevertheless is convincing enough when the security for that representative 
-is considered; the backing does exist. 
+output from purely political interests, in other words. It would definitely be easier for comprehension if 
+matters are set into stone, from sentience a will-lessness, but that is precisely why words unchallenged 
+could be dangerous regardless of the supposed nobility in cause of preference, typically by use of 
+artificial axiom justifying the decision as principle very grounded yet from up high and beyond, the 
+unattainable ideal if the practice is challenged because the practice is the most ideal in relativity so 
+much that it should serve as the pinnacle for standard. Consider the cases of decisions made that are then 
+placed under subjective scrutiny. For these decisions, there is a representative that finalizes the output 
+from the decision-making process into decision. The representative is called these truths such as "weak" and 
+"strong", "high-minded" and "lowly", these dichotomies go on, in the first lines of argument, and the 
+substance underneath or surrounding taken for granted although not all of it is known. And perhaps even if 
+all is known, there is still preference not for singularity. There is always some thing backing the 
+representative, a truism of infantile reasoning that nevertheless is convincing enough when the security for 
+that representative is considered; the backing does exist. Condensation produces basis, and intended effects 
+that stem from the apparent will-lessness in these kinds of solidities to differ in their nature, presumed 
+to be slave. 
