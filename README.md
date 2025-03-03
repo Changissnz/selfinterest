@@ -5246,4 +5246,7 @@ that representative is considered; the backing does exist. Condensation produces
 that stem from these kinds of solidities depend on apparent will-lessness to differ in their nature, 
 presumed to be slave. When matters are condensed for truth on multi-interpretative matters, it could be 
 argued the truth is still opinion and the condensation an obfuscative dishonesty. But the basis remains, 
-an assertion to any preference that does not align. 
+an assertion to any preference that does not align. Identification processes may be designed with the 
+convenience of singularity: the characteristic of the condensation connects to all matters that produced it 
+and also to the remaining matters that still revolve around it, one attempt to formulate absolutist 
+thinking into words.
