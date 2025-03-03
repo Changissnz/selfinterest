@@ -5239,6 +5239,6 @@ as the pinnacle for standard. Consider the cases of decisions made that are then
 scrutiny. For these decisions, there is a representative that finalizes the output from the decision-making 
 process into decision. The representative is called these truths such as "weak" and "strong", "high-minded" 
 and "lowly", these dichotomies go on, in the first lines of argument, and the substance underneath or 
-surrounding it taken for granted although not all of it is known. And perhaps even if all is known, there 
+surrounding taken for granted although not all of it is known. And perhaps even if all is known, there 
 is still preference not for singularity. There is always some thing backing the representative, a truism 
 of infantile reasoning that nevertheless is convincing with respect to the security for that representative. 
