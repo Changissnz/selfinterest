@@ -5251,7 +5251,7 @@ convenience of singularizing meaning in relation: the characteristic of the cond
 matters that produced it and also to the remaining matters that still revolve around it. This is one 
 attempt to formulate absolutist thinking into words; what merely "surrounds" may as well "revolve" around. 
 For example, deception takes place, the deception becomes recognized for what it is, and then the deceiver 
-expresses themselves in remorseful appearances and tones to signify acknowledgment of the innermost essence 
+expresses themself in remorseful appearances and tones to signify acknowledgment of the innermost essence 
 of what occurred to those formerly deceived. Those formerly deceived interpret the remorseful appearances 
 and tones as continuation of the deception and, from their perspective, the deception must constitute a 
 deception campaign of not just lone acts because the characteristic extends to every play of event by 
@@ -5273,13 +5273,13 @@ knowledge presented in formats, verifiable for authenticity of the content, are 
 of self-interest. From sentient being to sentient being, there are three categories besides from 
 discovery of knowledge: leverage, proliferation, and equilibrium. Notions of security are implemented 
 in ways that partially overlap with uses and possessions of information. In the context of application 
-without further development, what exists in the present is all that there is available for use via the 
+without further development, what exists in the present is all that there is available for use via 
 known methodologies. Deception is peculiar in representation of it into information, for it would not 
 be peculiar in its design for intention if it was recognized. In terms of recreation, deception turns 
 into a problem from a challenger that gambles with presentation of the occurrences to those, the 
 challenged, needy of demonstrating their place in chance and faculty of logic. Self-interest, motivated 
 in these situations of constructing and deconstructing puzzles, exists in hosts very much bound to 
-the objectives of these puzzles. Obsessions with solutions to these non-static constructs, of truths 
+the objectives of these puzzles. Obsessions for solutions to these non-static constructs, of truths 
 inconsistent so long as these puzzles ever-shifting remain unsolved, economize the choiceful experiential 
 input into self-interest such that the output cannot be that alien in relation to the standards of 
 non-unique input. Deception and security share a strange "chemistry" with one another. When any sentient 
