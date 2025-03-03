@@ -5281,17 +5281,17 @@ challenged, needy of demonstrating their place in chance and faculty of logic. S
 in these situations of constructing and deconstructing puzzles, exists in hosts very much bound to 
 the objectives of these puzzles. Obsessions for solutions to these non-static constructs, of truths 
 inconsistent so long as these puzzles ever-shifting remain unsolved, economize the choiceful experiential 
-input into self-interest such that the output cannot be that alien in relation to the standards of 
+input into self-interest such that the output cannot be that alien in relation to the expectations from 
 non-unique input. Deception and security share a strange "chemistry" with one another. When any sentient 
 being, including those for security, can support their livelihood and aspirations while using deception 
 for defense, the deception is commendable for their specific causes. There is or was external agency 
 of adversity. Deception that excuses what can be corrected or improved is obviously more fault for 
 faults that occurred. But these two statements on deception are primarily about the pragmatics in 
-utility, and clearly does not answer for the cause of question: why self-interest needed to employ 
+utility, and clearly does not answer for the cause in question: why self-interest needed to employ 
 deception in practice to produce one or more sequences of events intended to be misinterpreted. One 
 explanation is that gains needed to occur and there were impediments perceived. And since circumstances 
 personal to self-interest were lackluster, filled with incongruencies and unfairness borne partially out 
-of misunderstanding, likewise the intended effect for deception, the merit of that produced deception 
+of misunderstanding, likewise the effect intended from deception, the merit of that produced deception 
 was judged on a spectrum instead of somewhere with hard lines. The right to be deceptive by default, 
 when used, becomes decisions of degree of being pro-active in expression of this quality. Discovery in 
 contexts connected to or of deception is frequently just that on the quality of objective truth regarding 
