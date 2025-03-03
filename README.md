@@ -5237,7 +5237,7 @@ justifying the decision as principle very grounded yet from up high and beyond, 
 the practice is challenged because the practice is the most ideal in relativity so much that it should serve 
 as the pinnacle for standard. Consider the cases of decisions made that are then placed under subjective 
 scrutiny. For these decisions, there is a representative that finalizes the output from the decision-making 
-process into decision. The representative is called these truths such as "weak" or "strong", "high-minded" 
-or "lowly, these dichotomies go on, in the first lines of argument and the substance underneath or 
+process into decision. The representative is called these truths such as "weak" and "strong", "high-minded" 
+and "lowly, these dichotomies go on, in the first lines of argument, and the substance underneath or 
 surrounding it taken for granted although not all of it is known. And perhaps even if all is known, there 
 is still preference not for singularity. 
