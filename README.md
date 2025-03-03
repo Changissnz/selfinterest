@@ -5283,5 +5283,13 @@ the objectives of these puzzles. Obsessions with solutions to these non-static c
 inconsistent so long as these puzzles ever-shifting remain unsolved, economize the choiceful experiential 
 input into self-interest such that the output cannot be that alien in relation to the standards of 
 non-unique input. Deception and security share a strange "chemistry" with one another. When any sentient 
-being, including those for security, can support their livelihoods and aspirations besides from using 
-deception as defense, the deception is commendable for their specific causes. 
+being, including those for security, can support their livelihood and aspirations while using deception 
+for defense, the deception is commendable for their specific causes. There is an external agency that is 
+adversarial. Deception that excuses what can be corrected or improved is obviously more fault for 
+faults that occurred. But these two statements on deception are primarily about the pragmatics in 
+utility, and clearly does not answer for the cause of question: why self-interest needed to employ 
+deception in practice to produce one or more sequences of events intended to be misinterpreted. One 
+explanation is that gains needed to occur and there were impediments perceived. And since circumstances 
+personal to self-interest are lackluster, filled with incongruencies and unfairness borne out of 
+misunderstanding, likewise the intended effect of deception, the merit of acting for that deception 
+is judged on a spectrum instead of somewhere with hard lines. 
