@@ -5270,8 +5270,8 @@ of risk are viewed as reliably corrupted via association with the innermost esse
 risk, deception in origin. Efforts focus on maintaining the closure to assert consistency, a demonstration 
 of sanity, from self-interest. Information is an important asset in security. The practical uses of 
 knowledge presented in formats, verifiable for authenticity of the content, are under the umbrella 
-of self-interest. From sentient being to sentient being, there are three categories besides from 
-discovery of knowledge: leverage, proliferation, and equilibrium. Notions of security are implemented 
+of self-interest. From sentient being to sentient being, there are three categories of knowledge 
+besides from discovery: leverage, proliferation, and equilibrium. Notions of security are implemented 
 in ways that partially overlap with uses and possessions of information. In the context of application 
 without further development, what exists in the present is all that there is available for use via 
 known methodologies. Deception is peculiar in representation of it into information, for it would not 
