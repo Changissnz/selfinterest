@@ -5265,7 +5265,7 @@ The sense of doubt becomes a problem for the present state. Anticipation for wha
 concern in repelling chance of the unwanted. The attempted guarantee to repel this kind of chance 
 restricts movement. A security that can maintain a static state, but in practical terms is a non-absolute 
 static kind of state, accomplishes the objective of continuing the image of order. Simply put in a few 
-more words, risk aversion closes the metaphorical doors and views the ensuing effects from those directions 
-of risk as reliably corrupted via association with the innermost essence that posed the original risk, 
-deception in origin, and efforts focus on maintaining the closure to assert consistency, a demonstration 
+more words, risk aversion closes the metaphorical doors, so that any ensuing effects from those directions 
+of risk are viewed as reliably corrupted via association with the innermost essence that posed the original 
+risk, deception in origin. Efforts focus on maintaining the closure to assert consistency, a demonstration 
 of sanity, from self-interest. 
