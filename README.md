@@ -5243,5 +5243,7 @@ substance underneath or surrounding taken for granted although not all of it is 
 all is known, there is still preference not for singularity. There is always some thing backing the 
 representative, a truism of infantile reasoning that nevertheless is convincing enough when the security for 
 that representative is considered; the backing does exist. Condensation produces basis, and intended effects 
-that stem from the apparent will-lessness in these kinds of solidities to differ in their nature, presumed 
-to be slave. 
+that stem from these kinds of solidities depend on apparent will-lessness to differ in their nature, 
+presumed to be slave. When matters are condensed for truth on multi-interpretative matters, it could be 
+argued the truth is still opinion and the condensation an obfuscative dishonesty. But the basis remains, 
+an assertion to any preference that does not align. 
