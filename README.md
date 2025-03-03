@@ -5255,4 +5255,5 @@ expresses themselves in remorseful appearances and tones to signify acknowledgme
 of what occurred to those formerly deceived. Those formerly deceived interpret the remorseful appearances 
 and tones as extensions of the deception, and from their perspective, the deception must constitute a 
 deception campaign of not just lone acts because the characteristic extends to every play of event by 
-the deceiver because of the connection to what is recognized as the innermost essence: deception in origin. 
+the deceiver because of the backtracking connection to what is recognized as the innermost essence: 
+deception in origin. 
