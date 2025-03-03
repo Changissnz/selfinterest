@@ -5280,6 +5280,8 @@ into a problem from a challenger that gambles with presentation of the occurrenc
 challenged, needy of demonstrating their place in chance and faculty of logic. Self-interest, motivated 
 in these situations of constructing and deconstructing puzzles, exists in hosts very much bound to 
 the objectives of these puzzles. Obsessions with solutions to these non-static constructs, of truths 
-inconsistent so long as the puzzles ever-shifting remain unsolved, economizes the choiceful experiential 
-input into self-interest such that the output cannot be that alien in relation to the expectation of 
-non-unique input. 
+inconsistent so long as these puzzles ever-shifting remain unsolved, economize the choiceful experiential 
+input into self-interest such that the output cannot be that alien in relation to the standards of 
+non-unique input. Deception and security share a strange "chemistry" with one another. When any sentient 
+being, including those for security, can support their livelihoods and aspirations besides from using 
+deception as defense, the deception is commendable for their specific causes. 
