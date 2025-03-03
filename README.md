@@ -5258,4 +5258,6 @@ deception campaign of not just lone acts because the characteristic extends to e
 the deceiver, and the backtracking connection to what is recognized as the innermost essence: deception 
 in origin. The notion, any sentient being has the right to be deceptive by default, delivers 
 powerful connotation, especially since said notion is a fact of the default in matters processed by 
-data structures without the appropriate experience from reference. 
+data structures without the appropriate experience from reference. To know more and more, and the 
+knowing still no use for guarantee what is next, in terms of movement, with the sentient being is 
+limitation undefined and still existent.  
