@@ -5267,5 +5267,5 @@ restricts movement. A security that can maintain a static state, but in practica
 static kind of state, accomplishes the objective of continuing the image of order. Simply put in a few 
 more words, risk aversion closes the metaphorical doors and views the ensuing effects from those directions 
 of risk as reliably corrupted via association with the innermost essence that posed the original risk, 
-deception in origin, and efforts focus on maintaining the closure against to assert consistency, a 
-demonstration of sanity, from self-interest. 
+deception in origin, and efforts focus on maintaining the closure to assert consistency, a demonstration 
+of sanity, from self-interest. 
