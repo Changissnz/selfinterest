@@ -5241,4 +5241,5 @@ process into decision. The representative is called these truths such as "weak" 
 and "lowly", these dichotomies go on, in the first lines of argument, and the substance underneath or 
 surrounding taken for granted although not all of it is known. And perhaps even if all is known, there 
 is still preference not for singularity. There is always some thing backing the representative, a truism 
-of infantile reasoning that nevertheless is convincing with respect to the security for that representative. 
+of infantile reasoning that nevertheless is convincing enough when the security for that representative 
+is considered; the backing does exist. 
