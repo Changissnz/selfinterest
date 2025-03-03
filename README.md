@@ -5256,4 +5256,6 @@ of what occurred to those formerly deceived. Those formerly deceived interpret t
 and tones as extensions of the deception and, from their perspective, the deception must constitute a 
 deception campaign of not just lone acts because the characteristic extends to every play of event by 
 the deceiver, and the backtracking connection to what is recognized as the innermost essence: deception 
-in origin. 
+in origin. The notion that any sentient being has the right to be deceptive by default delivers 
+powerful connotation, especially since said notion is a fact of the default in matters processed by 
+data structures. 
