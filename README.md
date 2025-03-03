@@ -5277,4 +5277,9 @@ without further development, what exists in the present is all that there is ava
 known methodologies. Deception is peculiar in representation of it into information, for it would not 
 be peculiar in its design for intention if it was recognized. In terms of recreation, deception turns 
 into a problem from a challenger that gambles with presentation of the occurrences to those, the 
-challenged, needy of demonstrating their place in chance and faculty of logic. 
+challenged, needy of demonstrating their place in chance and faculty of logic. Self-interest, motivated 
+in these situations of constructing and deconstructing puzzles, exists in hosts very much bound to 
+the objectives of these puzzles. Obsessions with solutions to these non-static constructs, of truths 
+inconsistent so long as the puzzles ever-shifting remain unsolved, economizes the choiceful experiential 
+input into self-interest such that the output cannot be that alien in relation to the expectation of 
+non-unique input. 
