@@ -5248,5 +5248,5 @@ presumed to be slave. When matters are condensed for truth on multi-interpretati
 argued the truth is still opinion and the condensation an obfuscative dishonesty. But the basis remains, 
 an assertion to any preference that does not align. Identification processes may be designed with the 
 convenience of singularizing meaning in relation: the characteristic of the condensation connects to all 
-matters that produced it and also to the remaining matters that still revolve around it. And that is one 
-attempt to formulate absolutist thinking into words.
+matters that produced it and also to the remaining matters that still revolve around it. This is one 
+attempt to formulate absolutist thinking into words; what merely "surrounds" may as well "revolve" around. 
