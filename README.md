@@ -5223,16 +5223,21 @@ translated into communicated meaning is not necessarily power of observation ove
 
 ## More on philosophies of self-interest #71 
 
-The notion of security translates into fixtures virtually guaranteed to deliver or execute as intended, 
-which is a sort of business robust in the capabilities of covering or targeting the objects and objectives 
-labeled as pertinent, regardless of the designation of it as public or private enterprise. It is a damn 
-shame, really, for security to be critical in balance for balance and all the while also having to align 
-with political interests, because then, conversations on and implementations of security are forever bound 
-to the asymmetry of the protected and the protector, amongst other categories in these dynamical systems. 
-Somewhere in the design and execution of security in flux for the wanted stases is relation to or output 
-from purely political interests, in other words. It would definitely be easier for matters to just be set 
-into stone, from sentience a will-lessness, but that is precisely why words unchallenged could be dangerous 
-regardless of the supposed nobility in cause of preference, typically by use of artificial axiom justifying 
-the decision as principle very grounded yet from up high and beyond, the unattainable ideal if the practice 
-is challenged because the practice is the most ideal in relativity so much that it should serve as the 
-pinnacle for standard. 
+The notion of security is attempted translation into fixtures virtually guaranteed to deliver or execute as 
+intended, which is a sort of business robust in the capabilities of covering or targeting the objects and 
+objectives labeled as pertinent, regardless of the designation of it as public or private enterprise. It is 
+a damn shame, really, for security to be critical in balance for balance and all the while also having to 
+align with political interests, because then, conversations on and implementations of security are forever 
+bound to the asymmetry of the protected and the protector, amongst other categories in these dynamical 
+systems. Somewhere in the design and execution of security in flux for the wanted stases is relation to or 
+output from purely political interests, in other words. It would definitely be easier for matters to just be 
+set into stone, from sentience a will-lessness, but that is precisely why words unchallenged could be 
+dangerous regardless of the supposed nobility in cause of preference, typically by use of artificial axiom 
+justifying the decision as principle very grounded yet from up high and beyond, the unattainable ideal if 
+the practice is challenged because the practice is the most ideal in relativity so much that it should serve 
+as the pinnacle for standard. Consider the cases of decisions made that are then placed under subjective 
+scrutiny. For these decisions, there is a representative that finalizes the output from the decision-making 
+process into decision. The representative is called these truths such as "weak" or "strong", "high-minded" 
+or "lowly, these dichotomies go on, in the first lines of argument and the substance underneath or 
+surrounding it taken for granted although not all of it is known. And perhaps even if all is known, there 
+is still preference not for singularity. 
