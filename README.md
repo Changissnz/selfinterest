@@ -5290,6 +5290,6 @@ faults that occurred. But these two statements on deception are primarily about 
 utility, and clearly does not answer for the cause of question: why self-interest needed to employ 
 deception in practice to produce one or more sequences of events intended to be misinterpreted. One 
 explanation is that gains needed to occur and there were impediments perceived. And since circumstances 
-personal to self-interest are lackluster, filled with incongruencies and unfairness borne out of 
-misunderstanding, likewise the intended effect of deception, the merit of acting for that deception 
-is judged on a spectrum instead of somewhere with hard lines. 
+personal to self-interest were lackluster, filled with incongruencies and unfairness borne partially out 
+of misunderstanding, likewise the intended effect of deception, the merit of acting for that deception 
+was judged on a spectrum instead of somewhere with hard lines. 
