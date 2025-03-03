@@ -5301,4 +5301,5 @@ understanding for arbitrary agenda.
 ## More on philosophies of self-interest #72 
 
 Advanced persistent threats are a category of adversarial organization that are worthy enough for 
-elaboration in the area of security. 
+elaboration in the area of security. Belligerence is the characteristic in many forms and degrees, 
+difficult to quantify for control. 
