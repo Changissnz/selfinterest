@@ -5230,4 +5230,9 @@ shame, really, for security to be critical in balance for balance and all the wh
 with political interests, because then, conversations on and implementations of security are forever bound 
 to the asymmetry of the protected and the protector, amongst other categories in these dynamical systems. 
 Somewhere in the design and execution of security in flux for the wanted stases is relation to or output 
-from political interests, in other words. 
+from purely political interests, in other words. It would definitely be easier for things to just be set 
+in stone, from sentience a will-lessness, but that is precisely why words unchallenged could be dangerous 
+regardless of the supposed nobility in cause of preference, typically by use of artificial axiom justifying 
+the decision as principle very grounded yet from up high and beyond, the unattainable ideal if the practice 
+is challenged because the practice is the most ideal in relativity so much that it should serve as the 
+pinnacle for standard. 
