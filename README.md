@@ -5224,23 +5224,23 @@ translated into communicated meaning is not necessarily power of observation ove
 ## More on philosophies of self-interest #71 
 
 The notion of security is attempted translation into fixtures virtually guaranteed to deliver or execute as 
-intended, which is a sort of business robust in the capabilities of covering or targeting the objects and 
-objectives labeled as pertinent, regardless of the designation of it as public or private enterprise. It is 
-a damn shame, really, for security to be critical in balance for balance and all the while also having to 
-align with political interests, because then, conversations on and implementations of security are forever 
-bound to the asymmetry of the protected and the protector, amongst other categories in these dynamical 
-systems. Somewhere in the design and execution of security in flux for the wanted stases is relation to or 
-output from purely political interests, in other words. It would definitely be easier for comprehension if 
-matters are set into stone, from sentience a will-lessness, but that is precisely why words unchallenged 
-could be dangerous regardless of the supposed nobility in cause of preference, typically by use of 
-artificial axiom justifying the decision as principle very grounded yet from up high and beyond, the 
+formally declared, which is a sort of business robust in the capabilities of covering or targeting the 
+objects and objectives labeled as pertinent, regardless of the designation of it as public or private 
+enterprise. It is a damn shame, really, for security to be critical in balance for balance and all the while 
+also having to align with political interests, because then, conversations on and implementations of 
+security are forever bound to the asymmetry of the protected and the protector, amongst other categories in 
+these dynamical systems. Somewhere in the design and execution of security in flux for the wanted stases is 
+relation to or output from purely political interests, in other words. It would definitely be easier for 
+comprehension if matters are set into stone, from sentience a will-lessness, but that is precisely why words 
+unchallenged could be dangerous regardless of the supposed nobility in cause of preference, typically by use 
+of artificial axiom justifying the decision as principle very grounded yet from up high and beyond, the 
 unattainable ideal if the practice is challenged because the practice is the most ideal in relativity so 
 much that it should serve as the pinnacle for standard. Consider the cases of decisions made that are then 
 placed under subjective scrutiny. For these decisions, there is a representative that finalizes the output 
 from the decision-making process into decision. The representative is called these truths such as "weak" and 
 "strong", "high-minded" and "lowly", these dichotomies go on, in the first lines of argument, and the 
-substance underneath or surrounding taken for granted although not all of it is known. And perhaps even if 
-all is known, there is still preference not for singularity. There is always some thing backing the 
+substance underneath or surrounding is taken for granted although not all of it is known. And perhaps even 
+if all is known, there is still preference not for singularity. There is always some thing backing the 
 representative, a truism of infantile reasoning that nevertheless is convincing enough when the security for 
 that representative is considered; the backing does exist. Condensation produces basis, and intended effects 
 that stem from these kinds of solidities depend on apparent will-lessness to differ in their nature, 
@@ -5250,3 +5250,9 @@ an assertion to any preference that does not align. Identification processes may
 convenience of singularizing meaning in relation: the characteristic of the condensation connects to all 
 matters that produced it and also to the remaining matters that still revolve around it. This is one 
 attempt to formulate absolutist thinking into words; what merely "surrounds" may as well "revolve" around. 
+For example, deception takes place, the deception becomes recognized for what it is, and then the deceiver 
+expresses themselves in remorseful appearances and tones to signify acknowledgment of the innermost essence 
+of what occurred to those formerly deceived. Those formerly deceived interpret the remorseful appearances 
+and tones as extensions of the deception, and from their perspective, the deception must constitute a 
+deception campaign of not just lone acts because the characteristic extends to every play of event by 
+the deceiver because of the connection to what is recognized as the innermost essence: deception in origin. 
