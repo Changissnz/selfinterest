@@ -5268,4 +5268,7 @@ static kind of state, accomplishes the objective of continuing the image of orde
 more words, risk aversion closes the metaphorical doors, so that any ensuing effects from those directions 
 of risk are viewed as reliably corrupted via association with the innermost essence that posed the original 
 risk, deception in origin. Efforts focus on maintaining the closure to assert consistency, a demonstration 
-of sanity, from self-interest. 
+of sanity, from self-interest. Information is an important asset in security. The practical uses of 
+knowledge presented in formats, verifiable for authenticity of the content, are under the umbrella 
+of self-interest. From sentient being to sentient being, there are three categories besides from 
+discovery of knowledge: leverage, proliferation, and order. 
