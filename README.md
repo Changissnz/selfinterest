@@ -5260,4 +5260,8 @@ in origin. The notion, any sentient being has the right to be deceptive by defau
 powerful connotation, especially since said notion is a fact of the default in matters processed by 
 data structures void of the appropriate experience from reference. To know more and more, and the 
 knowing still no use for guaranteeing what is next, in terms of movement, with the sentient being is 
-limitation undefined and still existent.  
+categorically limitation undefined and still existent. The sense of doubt becomes a problem for the 
+present state. Anticipation for what is next concentrates into concern in repelling chance of the 
+unwanted. And the classic approach to repelling this kind of chance is restriction of movement. A 
+security that can maintain a static state but in practical terms, a non-absolute kind of static state, 
+accomplishes the objective of continuing the image of order. 
