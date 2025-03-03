@@ -5267,7 +5267,7 @@ restricts movement. A security that can maintain a static state, but in practica
 static kind of state, accomplishes the objective of continuing the image of order. Simply put in a few 
 more words, risk aversion closes the metaphorical doors, so that any ensuing effects from those directions 
 of risk are viewed as reliably corrupted via association with the innermost essence that posed the original 
-risk, deception in origin. Efforts focus on maintaining the closure to assert consistency, a demonstration 
+risk, deception in origin. Efforts focus on maintaining this closure to assert consistency, a demonstration 
 of sanity, from self-interest. Information is an important asset in security. The practical uses of 
 knowledge presented in formats, verifiable for authenticity of the content, are under the umbrella 
 of self-interest. From sentient being to sentient being, there are three categories of knowledge 
@@ -5282,10 +5282,10 @@ in these situations of constructing and deconstructing puzzles, exists in hosts 
 the objectives of these puzzles. Obsessions for solutions to these non-static constructs, of truths 
 inconsistent so long as these puzzles ever-shifting remain unsolved, economize the choiceful experiential 
 input into self-interest such that the output cannot be that alien in relation to the expectations from 
-non-unique input. Deception and security share a strange "chemistry" with one another. When any sentient 
-being, including those for security, can support their livelihood and aspirations while using deception 
-for defense, the deception is commendable for their specific causes. There is or was external agency 
-of adversity. Deception that excuses what can be corrected or improved is obviously more fault for 
+that non-unique input. Deception and security share a strange "chemistry" with one another. When any 
+sentient being, including those for security, can support their livelihood and aspirations while using 
+deception for defense, the deception is commendable for their specific causes. There is or was external 
+agency of adversity. Deception that excuses what can be corrected or improved is obviously more fault for 
 faults that occurred. But these two statements on deception are primarily about the pragmatics in 
 utility, and clearly does not answer for the cause in question: why self-interest needed to employ 
 deception in practice to produce one or more sequences of events intended to be misinterpreted. One 
