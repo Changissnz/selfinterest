@@ -5260,8 +5260,12 @@ in origin. The notion, any sentient being has the right to be deceptive by defau
 powerful connotation, especially since said notion is a fact of the default in matters processed by 
 data structures void of the appropriate experience from reference. To know more and more, and the 
 knowing still no use for guaranteeing what is next, in terms of movement, with the sentient being is 
-categorically limitation undefined and still existent. The sense of doubt becomes a problem for the 
-present state. Anticipation for what is next concentrates into concern in repelling chance of the 
-unwanted. And the classic approach to repelling this kind of chance is restriction of movement. A 
-security that can maintain a static state but in practical terms, a non-absolute kind of static state, 
-accomplishes the objective of continuing the image of order. 
+categorically limitation undefined and still existent, but that is challenge for a challenging other. 
+The sense of doubt becomes a problem for the present state. Anticipation for what is next concentrates into 
+concern in repelling chance of the unwanted. The attempted guarantee to repel this kind of chance 
+restricts movement. A security that can maintain a static state, but in practical terms is a non-absolute 
+static kind of state, accomplishes the objective of continuing the image of order. Simply put in a few 
+more words, risk aversion closes the metaphorical doors and views the ensuing effects from those directions 
+of risk as reliably corrupted via association with the innermost essence that posed the original risk, 
+deception in origin, and efforts focus on maintaining the closure against to assert consistency, a 
+demonstration of sanity, from self-interest. 
