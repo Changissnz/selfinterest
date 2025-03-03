@@ -5291,10 +5291,14 @@ utility, and clearly does not answer for the cause in question: why self-interes
 deception in practice to produce one or more sequences of events intended to be misinterpreted. One 
 explanation is that gains needed to occur and there were impediments perceived. And since circumstances 
 personal to self-interest were lackluster, filled with incongruencies and unfairness borne partially out 
-of misunderstanding, likewise the effect intended from deception, the merit of that produced deception 
+of misunderstanding, likewise the effect intended from any deception, the merit of that produced deception 
 was judged on a spectrum instead of somewhere with hard lines. The right to be deceptive by default, 
 when used, becomes decisions of degree of being pro-active in expression of this quality. Discovery in 
 contexts connected to or of deception is frequently just that on the quality of objective truth regarding 
 it, rather than what is unknown by default since the default was used to propagate more fault in 
 understanding for arbitrary agenda. 
 
+## More on philosophies of self-interest #72 
+
+Advanced persistent threats are a category of adversarial organization that are worthy enough for 
+elaboration in the area of security. 
