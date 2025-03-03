@@ -5221,3 +5221,8 @@ words and phrases, and wisdom only through language is by reaching the meaning s
 the origin of spirit and activity through social construct that produced it is also known; observation 
 translated into communicated meaning is not necessarily power of observation over the experience without. 
 
+## More on philosophies of self-interest #71 
+
+The notion of security translates into fixtures virtually guaranteed to deliver or execute as intended, 
+which is a sort of business robust in the capabilities of covering or targeting the objects and objectives 
+labeled as pertinent, regardless of the designation of it as public or private enterprise. 
