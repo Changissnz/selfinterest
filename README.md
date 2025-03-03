@@ -5302,4 +5302,8 @@ understanding for arbitrary agenda.
 
 Advanced persistent threats are a category of adversarial organization that are worthy enough for 
 elaboration in the area of security. Belligerence is the characteristic in many forms and degrees, 
-difficult to quantify for control. 
+difficult to quantify for control. The phraseme "advanced persistent threat" (APT) has only become 
+popular with the proliferation of internet use, although the concept is not solely rooted in the domain 
+of the internet; APTs are, first and foremost, offendors and the naming of threat actors that use the 
+internet as the domain to wage offense is purely out of the convenience of cheapness in the transmission 
+of offense. 
