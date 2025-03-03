@@ -5274,5 +5274,7 @@ of self-interest. From sentient being to sentient being, there are three categor
 discovery of knowledge: leverage, proliferation, and equilibrium. Notions of security are implemented 
 in ways that partially overlap with uses and possessions of information. In the context of application 
 without further development, what exists in the present is all that there is available for use via the 
-known methodologies. Deception is peculiar in representation of it into information, for if it would be 
-recognizable if it was not peculiar in its design for intention. 
+known methodologies. Deception is peculiar in representation of it into information, for it would not 
+be peculiar in its design for intention if it was recognized. In terms of recreation, deception turns 
+into a problem from a challenger that gambles with presentation of the occurrences to those, the 
+challenged, needy of demonstrating their place in chance and faculty of logic. 
