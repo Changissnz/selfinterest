@@ -5284,7 +5284,7 @@ inconsistent so long as these puzzles ever-shifting remain unsolved, economize t
 input into self-interest such that the output cannot be that alien in relation to the expectations from 
 that non-unique input. Deception and security share a strange "chemistry" with one another. When any 
 sentient being, including those for security, can support their livelihood and aspirations while using 
-deception for defense, the deception is commendable for their specific causes. There is or was external 
+deception for defense, the deception is commendable to their specific causes. There is or was external 
 agency of adversity. Deception that excuses what can be corrected or improved is obviously more fault for 
 faults that occurred. But these two statements on deception are primarily about the pragmatics in 
 utility, and clearly does not answer for the cause in question: why self-interest needed to employ 
