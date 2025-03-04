@@ -5309,8 +5309,8 @@ offendors and this labeling for threat actors that use the internet as the domai
 purely out of the convenience of cheapness in the transmission of offense. Computing is practically  
 operation of the materialized product of devices primarily electronic in means; the applications from this 
 field touch every corner of human activity because of applicable quantification and industrial 
-mechanisms for calculation. As such, there is a lot of benefit in understanding APTs by examining fields 
-not confined to the theoretics of computing. APTs are, in fact, organized for purposes always somehow 
+mechanisms for calculation. As such, there is a lot of benefit in examining fields not confined to the 
+theoretics of computing to understand APTs. APTs are, in fact, organized for purposes always somehow 
 connected to political warfare, and not necessarily the physically violent variety either that bears fault 
 that can be gauged in objectively zero-sum terms amenable to the clean attribution of fault to the enemy. 
 Truthfully, APTs that operate in the internet domain derive their strengths from their expression perceived 
