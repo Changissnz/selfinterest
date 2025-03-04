@@ -5307,7 +5307,7 @@ The phraseme "advanced persistent threat" (APT) has only become popular with the
 use, although the concept is not solely rooted in the domain of the internet; APTs are, first and foremost, 
 offendors and this labeling for threat actors that use the internet as the domain to wage offense is 
 purely out of the convenience of cheapness in the transmission of offense. Computing is fundamentally 
-operation on the materialized product of devices primarily electronic in nature; the applications of this 
+operation of the materialized product of devices primarily electronic in nature; the applications of this 
 field touch every corner of human activity because of their applicable quantification and industrialized 
 mechanisms for calculation. As such, there is a lot of benefit in understanding APTs by examining fields 
 not confined to the theoretics of computing. APTs are, in fact, organized for purposes always somehow 
@@ -5344,5 +5344,10 @@ non-null success effect target containment by target self-constrainment. The tar
 shrivel and shy away from outlets that are believed to be conducive to the networked threat that is the 
 APT. Open development cannot proceed and security is allocated to matters long past. Conversion of 
 construction and equilibrium processes to penalist policies; there is threat somewhere, the source of 
-the threat is distances away, but the tentacles connected to the threat are nearby, so therefore, trust 
-the erected defense mechanisms for these threats over else. 
+the threat is distances away although the tentacles connected to the threat are nearby, so therefore, trust 
+the erected defense mechanisms for these threats over else. Persistence of source for adversity implies 
+a possibility: the adversary would rather rule than destroy. This possibility is a cornerstone of civil 
+politics. The source persists as adversary maybe because said source cannot deal a conclusive effect to 
+the target, due to insufficiency of capability. But imagine, for a second, a bird "playing" around with 
+a worm, pecking it in continual fashion, perhaps deriving a sense of pleasure from prolonging the 
+consumption of its next meal. This analogy describes another possibility that APTs may strive for. 
