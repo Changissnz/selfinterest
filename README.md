@@ -5368,7 +5368,7 @@ decisions that took place in the past was fault by technical judgment. Therefore
 the best way to deal with liabilities from "utility" of these pasts is to duplicate their image in ways 
 that deflect fault onto the least valuable aspects that are nevertheless supposed to be guarded against 
 the APT. It is this kind of technique that is conducive to more pathology than what the past was worth, 
-since the past was attempted duplication of image as a form of defense against the threat that supposedly 
+since the past is attempted duplication of image as a form of defense against the threat that supposedly 
 wanted to use elements of the target's past to gain from the target's loss. But it is now the present. 
 Repetition for camouflage. Very curious. But alas, maybe the danger from a labeled APT really does 
 demand counter-intuitive mechanisms to guard against, so the supposed pathology is only so because of 
