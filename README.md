@@ -5324,30 +5324,30 @@ coupled with the physical defense mechanisms that would impede their physical of
 networked threats, that is, those that operate in multi-nodal formations, are difficult to resolve due 
 to factors of their scale and the identification of them as the adversarial source. The lack of linearity 
 belonging to the representation of networked threats is a problem that solutions designed for these kinds 
-of threats attempt to resolve, by use of singularized source attribution. From concept to practice, every 
-multi-branched or circular sequence can be at least partially decomposed into uni-directional sequences, 
-rays in the lexicon of geometry. The potential of networked threats to inflict measurable damage correlates 
-to the proximity of these threats' nearest points of concluding effects to the target. Who knows what 
-the usual goals of advanced persistent threats, any threats, are? But the first obvious sign of effects 
-is attempted denial of independence for the agency of the target, by the impact from connecting. And who 
-or what is the adversarial object of foremost importance when attempting to resolve networked threats? 
-That would be the most reachable ones identified as part of this adversarial force, and this usually 
-translates to one's ownership over devices as well as their close ones: friends, family, and acquaintances. 
-How tricky for self-interest to proceed in the way of benign reciprocity with their close ones and property 
-when trust is lacking and danger in close proximity imminent. The formulation of the experience for 
-self-interest is a notable part of the body of identity that self-interest operates for, in belief that 
-the internal is beholden to a part of the external. In these kinds of beliefs, it is as if one were to 
-cannibalize themself to attempt to persist more optimally in existence, but then that has parallel logic to 
-that of enabling oneself by crippling oneself; here is a balancing problem of ends not quite defined before 
-or during the balancing, maybe phrased as "necessitating sacrifice" in tones of religiosity. APTs of 
-non-null success effect target containment through target self-constrainment. The target takes the decision 
-to shrivel and shy away from outlets that are believed to be conducive to the networked threat that is the 
-APT. Open development cannot proceed and security is allocated to matters long past. Conversion of 
-construction and equilibrium processes into penalist policies; there is threat somewhere such that the 
-source of the threat is distances away, although the tentacles connected to the threat are nearby, so 
-therefore, trust the erected defense mechanisms, part of a new kind of equilibrium, for these threats 
-over else. Persistence of source of adversity implies a possibility: the adversary would rather rule 
-than destroy. This possibility of motive is a cornerstone of civil politics. The source persists as 
+of threats attempt to resolve, by use of singularized source attribution in piecewise approaches. From 
+concept to practice, every multi-branched or circular sequence can be at least partially decomposed into 
+uni-directional sequences, rays in the lexicon of geometry. The potential of networked threats to inflict 
+measurable damage correlates to the proximity of these threats' nearest points of concluding effects to the 
+target. Who knows what the usual goals of advanced persistent threats, any threats, are? But the first 
+obvious sign of effects is from attempted denial of independence for the agency of the target, by the impact 
+from connecting. And who or what is the adversarial object of foremost importance when attempting to 
+resolve networked threats? That would be the most reachable ones identified as part of this adversarial 
+force, and this usually translates to one's ownership over devices as well as their close ones: friends, 
+family, and acquaintances. How tricky for self-interest to proceed in the way of benign reciprocity with 
+their close ones and property when trust is lacking and danger in close proximity imminent. The formulation 
+of the experience for self-interest is a notable part of the body of identity that self-interest operates 
+for, in belief that the internal is beholden to a part of the external. In these kinds of beliefs, it is as 
+if one were to cannibalize themself to attempt to persist more optimally in existence, but then that has 
+parallel logic to that of enabling oneself by crippling oneself; here is a balancing problem of ends not 
+quite defined before or during the balancing, maybe phrased as "necessitating sacrifice" in tones of 
+religiosity. APTs of non-null success effect target containment through target self-constrainment. The 
+target takes the decision to shrivel and shy away from outlets that are believed to be conducive to the 
+networked threat that is the APT. Open development cannot proceed and security is allocated to matters long 
+past. Conversion of construction and equilibrium processes into penalist policies; there is threat somewhere 
+such that the source of the threat is distances away, although the tentacles connected to the threat are 
+nearby, so therefore, trust the erected defense mechanisms, part of a new kind of equilibrium, for these 
+threats over else. Persistence of source of adversity implies a possibility: the adversary would rather 
+rule than destroy. This possibility of motive is a cornerstone of civil politics. The source persists as 
 adversary maybe because said source cannot deal a conclusive effect to the target, due to insufficiency 
 in capability. But imagine, for a second, a bird "playing" around with a worm, pecking it in continual 
 fashion, perhaps deriving a sense of pleasure from prolonging the consumption of its next meal. This 
