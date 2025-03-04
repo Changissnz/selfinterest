@@ -5312,9 +5312,9 @@ field touch every corner of human activity because of their applicable quantific
 mechanisms for calculation. As such, there is a lot of benefit in understanding APTs by examining fields 
 not confined to the theoretics of computing. APTs are, in fact, organized for purposes always somehow 
 connected to political warfare, and not necessarily the physically violent variety either that bears fault 
-that can be gauged in zero-sum terms amenable to the clean attribution of fault to the enemy. Truthfully, 
-APTs that operate in the internet domain derive their strengths from their expression perceived as 
-being benign, just as the tyrannical gerontocrat uses words soft-spoken but directed, nonetheless, to 
+that can be gauged in objectively zero-sum terms amenable to the clean attribution of fault to the enemy. 
+Truthfully, APTs that operate in the internet domain derive their strengths from their expression perceived 
+as being benign, just as the tyrannical gerontocrat uses words soft-spoken but directed, nonetheless, to 
 command the pursuit of offense for aims of breaking and oppressing the will of those marked to bear the 
 brunt of his political leadership's exclusionary force, in his desperation to cling onto power as much 
 as life itself. Furthermore, just as the tyrannical gerontocrat cannot any longer muster the strength to 
@@ -5332,6 +5332,11 @@ the usual goals of advanced persistent threats, any threats, are? But the first 
 is attempted denial of independence for the agency of the target, by the impact from connecting. And who 
 or what is the adversarial object of foremost importance when attempting to resolve networked threats? 
 That would be the closest ones identified as part of this adversarial force, and this usually translates 
-to one's ownership over devices as well as their close ones, friends, family, and acquaintances. How 
+to one's ownership over devices as well as their close ones: friends, family, and acquaintances. How 
 tricky for self-interest to proceed in the way of benign reciprocity with their close ones and property 
-when trust is lacking and danger imminent by the close proximity. 
+when trust is lacking and danger imminent by the close proximity. The formulation of the experience of 
+self-interest is a notable part of the identity/ies that self-interest operates for, in the belief that 
+the internal is beholden to the external. In these kinds of beliefs, it is as if one were to cannibalize 
+themself in order to persist more optimally in existence, but then that has parallel logic to that of 
+enabling oneself by crippling oneself; a balancing problem, maybe phrased as "necessitating sacrifice" in 
+terms of religiosity. 
