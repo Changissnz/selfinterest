@@ -5340,8 +5340,8 @@ the internal is beholden to a part of the external. In these kinds of beliefs, i
 cannibalize themself to attempt to persist more optimally in existence, but then that has parallel logic to 
 that of enabling oneself by crippling oneself; here is a balancing problem of ends not quite defined before 
 or during the balancing, maybe phrased as "necessitating sacrifice" in tones of religiosity. APTs of 
-non-null success effect target containment by target self-constrainment. The target takes the decision to 
-shrivel and shy away from outlets that are believed to be conducive to the networked threat that is the 
+non-null success effect target containment through target self-constrainment. The target takes the decision 
+to shrivel and shy away from outlets that are believed to be conducive to the networked threat that is the 
 APT. Open development cannot proceed and security is allocated to matters long past. Conversion of 
 construction and equilibrium processes into penalist policies; there is threat somewhere such that the 
 source of the threat is distances away although the tentacles connected to the threat are nearby, so 
@@ -5372,6 +5372,6 @@ since the past is attempted duplication of image as a form of defense against th
 wanted to use elements of the target's past to gain from the target's loss. But it is now the present. 
 Repetition for camouflage. Very curious. But alas, maybe the danger from a labeled APT really does 
 demand counter-intuitive mechanisms to guard against, so the supposed pathology is only so because of 
-the deliberateness that is defiant of the belief that events should take place in ways not so 
+the deliberateness in defiance of the belief that events should take place in ways not so 
 deliberately connected in appearance to what is prior. 
 
