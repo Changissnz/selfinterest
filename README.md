@@ -5338,7 +5338,7 @@ their close ones and property when trust is lacking and danger in close proximit
 of the experience for self-interest is a notable part of the body of identity that self-interest operates 
 for, in belief that the internal is beholden to a part of the external. In these kinds of beliefs, it is as 
 if one were to cannibalize themself to attempt to persist more optimally in existence, but then that has 
-parallel logic to that of enabling oneself by crippling oneself; here is a balancing problem of ends not 
+parallel logic to that of enabling oneself by crippling oneself; here is a problem of balancing ends not 
 quite defined before or during the balancing, maybe phrased as "necessitating sacrifice" in tones of 
 religiosity. APTs of non-null success effect target containment through target self-constrainment. The 
 target takes the decision to shrivel and shy away from outlets that are believed to be conducive to the 
