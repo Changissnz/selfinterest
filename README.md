@@ -5372,6 +5372,6 @@ since the past was attempted duplication of image as a form of defense against t
 wanted to use elements of the target's past to gain from the target's loss. But it is now the present. 
 Repetition for camouflage. Very curious. But alas, maybe the danger from a labeled APT really does 
 demand counter-intuitive mechanisms to guard against, so the supposed pathology is only so because of 
-the deliberateness that defies the belief that events should take place in ways not so deliberately 
-connected in appearance to what is prior. 
+the deliberateness that is defiant of the belief that events should take place in ways not so 
+deliberately connected in appearance to what is prior. 
 
