@@ -5345,17 +5345,29 @@ shrivel and shy away from outlets that are believed to be conducive to the netwo
 APT. Open development cannot proceed and security is allocated to matters long past. Conversion of 
 construction and equilibrium processes into penalist policies; there is threat somewhere such that the 
 source of the threat is distances away although the tentacles connected to the threat are nearby, so 
-therefore, trust the erected defense mechanisms for these threats over else. Persistence of source for 
-adversity implies a possibility: the adversary would rather rule than destroy. This possibility is a 
-cornerstone of civil politics. The source persists as adversary maybe because said source cannot deal a 
-conclusive effect to the target, due to insufficiency of capability. But imagine, for a second, a bird 
-"playing" around with a worm, pecking it in continual fashion, perhaps deriving a sense of pleasure from 
-prolonging the consumption of its next meal. This analogy describes another possibility that APTs may 
-strive for: an infinite-like dominance extorting for "value" of sorts. The retreat of a target, from 
-an APT, into its self poses the question to the target of how the activity of its elements is supposed 
-to proceed. If what is usually supposed to go up remains down, and what is usually underneath now elevated, 
-that would be a change of norms, would it not? A conjecture is that self-interest for the individual is 
-easier to describe in terms of objectives. Objectives remain almost identical in innermost essence, but 
-it is just that the changing phenomena, involving many selves, loosens the rigidity in affairs via 
-decisions of re-arrangement for the re-designed security that is supposed to combat the APT in more 
-effective forms. 
+therefore, trust the erected defense mechanisms, part of a new kind of equilibrium, for these threats 
+over else. Persistence of source for adversity implies a possibility: the adversary would rather rule 
+than destroy. This possibility of motive is a cornerstone of civil politics. The source persists as 
+adversary maybe because said source cannot deal a conclusive effect to the target, due to insufficiency 
+of capability. But imagine, for a second, a bird "playing" around with a worm, pecking it in continual 
+fashion, perhaps deriving a sense of pleasure from prolonging the consumption of its next meal. This 
+analogy describes another possibility that APTs may strive for: an infinite-like dominance extorting 
+for "value" of sorts. The retreat of a target, from an APT, into its self poses the question to the 
+target of how the activity of its elements is supposed to proceed. If what is usually supposed to go up 
+remains down, and what is usually underneath now elevated, that would be a change of norms, would it not 
+be? In these events, a conjecture is that self-interest for the individual instead of the collective is 
+easier to describe in terms of objectives. Objectives remain almost identical in comparison of their 
+innermost essence, but it is just that the shifting phenomena, where many selves are involved, loosens 
+the rigidity in affairs via decisions of re-arrangement for the re-designed security that is supposed 
+to combat the APT in more effective forms. Another classification of effect from defense mechanisms 
+to combat APTs is "regression". Imagine how activity cannot proceed appropriately for the current 
+spatiotemporal contexts. Instead, every little matter of past or present or potential is placed under 
+the guard of this security, due to the supposed opportunistic quality in decisions taken by the APT. 
+Exploitation would be inevitable if these matters were not guarded, goes the justification. Maybe some 
+decisions that took place in the past was fault in technical judgment. Therefore, the best way to deal 
+these pasts is to duplicate their image in ways that deflects fault onto the most valuable aspects 
+that are supposed to be guarded against the APT. It is this kind of technique that is conducive to 
+more pathology than what the past was worth, since the past was attempted duplication of image as a 
+form of defense against the threat that supposedly wanted to use elements of the target's past to 
+gain from the target's loss. Repetition for camouflage. Very curious. 
+
