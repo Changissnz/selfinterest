@@ -5364,10 +5364,11 @@ to combat APTs is "regression". Imagine how activity cannot proceed appropriatel
 spatiotemporal contexts. Instead, every little matter of past or present or potential is placed under 
 the guard of this security, due to the supposed opportunistic quality in decisions taken by the APT. 
 Exploitation would be inevitable if these matters were not guarded, goes the justification. Maybe some 
-decisions that took place in the past was fault in technical judgment. Therefore, the best way to deal 
-these pasts is to duplicate their image in ways that deflects fault onto the most valuable aspects 
-that are supposed to be guarded against the APT. It is this kind of technique that is conducive to 
-more pathology than what the past was worth, since the past was attempted duplication of image as a 
-form of defense against the threat that supposedly wanted to use elements of the target's past to 
-gain from the target's loss. Repetition for camouflage. Very curious. 
+decisions that took place in the past was fault by technical judgment. Therefore, goes the thinking, 
+the best way to deal with liabilities from "utility" of these pasts is to duplicate their image in ways 
+that deflect fault onto the least valuable aspects that are nevertheless supposed to be guarded against 
+the APT. It is this kind of technique that is conducive to more pathology than what the past was worth, 
+since the past was attempted duplication of image as a form of defense against the threat that supposedly 
+wanted to use elements of the target's past to gain from the target's loss. But it is now the present. 
+Repetition for camouflage. Very curious. 
 
