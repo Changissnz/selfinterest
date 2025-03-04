@@ -5330,7 +5330,7 @@ uni-directional sequences, rays in the lexicon of geometry. The potential of net
 measurable damage correlates to the proximity of these threats' nearest points of concluding effects to the 
 target. Who knows what the usual goals of advanced persistent threats, any threats, are? But the first 
 obvious sign of effects is from attempted denial of independence for the agency of the target, by the impact 
-from connecting. And who or what is the adversarial object of foremost importance when attempting to 
+from connecting. And who or what is the adversarial object of immediate importance when attempting to 
 resolve networked threats? That would be the most reachable ones identified as part of this adversarial 
 force, and this usually translates to one's ownership over devices as well as their close ones: friends, 
 family, and acquaintances. How tricky for self-interest to proceed in the way of benign reciprocity with 
