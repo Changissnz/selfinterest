@@ -5370,5 +5370,8 @@ that deflect fault onto the least valuable aspects that are nevertheless suppose
 the APT. It is this kind of technique that is conducive to more pathology than what the past was worth, 
 since the past was attempted duplication of image as a form of defense against the threat that supposedly 
 wanted to use elements of the target's past to gain from the target's loss. But it is now the present. 
-Repetition for camouflage. Very curious. 
+Repetition for camouflage. Very curious. But alas, maybe the danger from a labeled APT really does 
+demand counter-intuitive mechanisms to guard against, so the supposed pathology is only so because of 
+the deliberateness that defies the belief that events should take place in ways not so deliberately 
+connected in appearance to what is prior. 
 
