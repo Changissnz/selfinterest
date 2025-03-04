@@ -5343,11 +5343,12 @@ or during the balancing, maybe phrased as "necessitating sacrifice" in tones of 
 non-null success effect target containment by target self-constrainment. The target takes the decision to 
 shrivel and shy away from outlets that are believed to be conducive to the networked threat that is the 
 APT. Open development cannot proceed and security is allocated to matters long past. Conversion of 
-construction and equilibrium processes to penalist policies; there is threat somewhere, the source of 
-the threat is distances away although the tentacles connected to the threat are nearby, so therefore, trust 
-the erected defense mechanisms for these threats over else. Persistence of source for adversity implies 
-a possibility: the adversary would rather rule than destroy. This possibility is a cornerstone of civil 
-politics. The source persists as adversary maybe because said source cannot deal a conclusive effect to 
-the target, due to insufficiency of capability. But imagine, for a second, a bird "playing" around with 
-a worm, pecking it in continual fashion, perhaps deriving a sense of pleasure from prolonging the 
-consumption of its next meal. This analogy describes another possibility that APTs may strive for. 
+construction and equilibrium processes into penalist policies; there is threat somewhere such that the 
+source of the threat is distances away although the tentacles connected to the threat are nearby, so 
+therefore, trust the erected defense mechanisms for these threats over else. Persistence of source for 
+adversity implies a possibility: the adversary would rather rule than destroy. This possibility is a 
+cornerstone of civil politics. The source persists as adversary maybe because said source cannot deal a 
+conclusive effect to the target, due to insufficiency of capability. But imagine, for a second, a bird 
+"playing" around with a worm, pecking it in continual fashion, perhaps deriving a sense of pleasure from 
+prolonging the consumption of its next meal. This analogy describes another possibility that APTs may 
+strive for. 
