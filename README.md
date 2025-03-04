@@ -5327,4 +5327,6 @@ belonging to the representation of networked threats is a problem that solutions
 of threats attempt to resolve, by use of singularized source attribution. From concept to practice, every 
 multi-branched or circular sequence can be at least partially decomposed into uni-directional sequences, 
 rays in the lexicon of geometry. The potential of networked threats to inflict measurable damage correlates 
-to the proximity of these threats' nearest points of concluding effects to the target. 
+to the proximity of these threats' nearest points of concluding effects to the target. Who knows what 
+the usual goals of advanced persistent threats, any threats, are? But the first obvious sign of effects 
+is attempted denial of independence for the agency of the target, by the impact of connecting. 
