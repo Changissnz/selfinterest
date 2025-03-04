@@ -5306,7 +5306,7 @@ difficult to quantify for control so that this characteristic persists long past
 The phraseme "advanced persistent threat" (APT) has only become popular with the proliferation of internet 
 use, although the concept is not solely rooted in the domain of the internet; APTs are, first and foremost, 
 offendors and this labeling for threat actors that use the internet as the domain to wage offense is 
-purely out of the convenience of cheapness in the transmission of offense. Computing is practically  
+purely out of the convenience of cheapness in the transmission of offense. Computing is practically 
 operation of the materialized product of devices primarily electronic in means; the applications from this 
 field touch every corner of human activity because of applicable quantification and industrial 
 mechanisms for calculation. As such, there is a lot of benefit in examining fields not confined to the 
