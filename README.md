@@ -5315,7 +5315,7 @@ connected to political warfare, and not necessarily the physically violent varie
 that can be gauged in objectively zero-sum terms amenable to the clean attribution of fault to the enemy. 
 Truthfully, APTs that operate in the internet domain derive their strengths from their expression perceived 
 as being benign, just as the tyrannical gerontocrat uses words soft-spoken but directed, nonetheless, to 
-command the pursuit of offense for aims of breaking and oppressing the will of those marked to bear the 
+command the offensive pursuit for aims of breaking and oppressing the will of those marked to bear the 
 brunt of his political leadership's exclusionary force, in his desperation to cling onto power as much 
 as life itself. Furthermore, just as the tyrannical gerontocrat cannot any longer muster the strength to 
 fight physical battles yet can deliver effects through his networked political loyalists, APTs 
@@ -5331,12 +5331,18 @@ to the proximity of these threats' nearest points of concluding effects to the t
 the usual goals of advanced persistent threats, any threats, are? But the first obvious sign of effects 
 is attempted denial of independence for the agency of the target, by the impact from connecting. And who 
 or what is the adversarial object of foremost importance when attempting to resolve networked threats? 
-That would be the closest ones identified as part of this adversarial force, and this usually translates 
-to one's ownership over devices as well as their close ones: friends, family, and acquaintances. How 
-tricky for self-interest to proceed in the way of benign reciprocity with their close ones and property 
-when trust is lacking and danger imminent by the close proximity. The formulation of the experience of 
-self-interest is a notable part of the identity/ies that self-interest operates for, in the belief that 
-the internal is beholden to the external. In these kinds of beliefs, it is as if one were to cannibalize 
-themself to attempt to persist more optimally in existence, but then that has parallel logic to that of 
-enabling oneself by crippling oneself; a balancing problem of ends not quite defined before or during the 
-balancing, maybe phrased as "necessitating sacrifice" in tones of religiosity. 
+That would be the most reachable ones identified as part of this adversarial force, and this usually 
+translates to one's ownership over devices as well as their close ones: friends, family, and acquaintances. 
+How tricky for self-interest to proceed in the way of benign reciprocity with their close ones and property 
+when trust is lacking and danger in close proximity imminent. The formulation of the experience for 
+self-interest is a notable part of the body of identity that self-interest operates for, in belief that 
+the internal is beholden to a part of the external. In these kinds of beliefs, it is as if one were to 
+cannibalize themself to attempt to persist more optimally in existence, but then that has parallel logic to 
+that of enabling oneself by crippling oneself; here is a balancing problem of ends not quite defined before 
+or during the balancing, maybe phrased as "necessitating sacrifice" in tones of religiosity. APTs of 
+non-null success effect target containment by target self-constrainment. The target takes the decision to 
+shrivel and shy away from outlets that are believed to be conducive to the networked threat that is the 
+APT. Open development cannot proceed and security is allocated to matters long past. Conversion of 
+construction and equilibrium processes to penalist policies; there is threat somewhere, the source of 
+the threat is distances away, but the tentacles connected to the threat are nearby, so therefore, trust 
+the erected defense mechanisms for these threats over else. 
