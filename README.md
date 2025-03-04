@@ -5351,4 +5351,7 @@ cornerstone of civil politics. The source persists as adversary maybe because sa
 conclusive effect to the target, due to insufficiency of capability. But imagine, for a second, a bird 
 "playing" around with a worm, pecking it in continual fashion, perhaps deriving a sense of pleasure from 
 prolonging the consumption of its next meal. This analogy describes another possibility that APTs may 
-strive for. 
+strive for: an infinite-like dominance extorting for "value" of sorts. The retreat of a target, from 
+an APT, into its self poses the question to the target of how the activity of its elements is supposed 
+to proceed. If what is usually supposed to go up remains down, and what is usually underneath now elevated, 
+that would be a change of norms, would it not? 
