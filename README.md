@@ -5302,12 +5302,12 @@ understanding for arbitrary agenda.
 
 Advanced persistent threats are a category of adversarial organization that is worthy enough for 
 elaboration in the area of security. Belligerence is the characteristic in many forms and degrees, 
-difficult to quantify for control so that this characterist persists long past the limits for acceptance. 
+difficult to quantify for control so that this characteristic persists long past the limits for acceptance. 
 The phraseme "advanced persistent threat" (APT) has only become popular with the proliferation of internet 
 use, although the concept is not solely rooted in the domain of the internet; APTs are, first and foremost, 
 offendors and this labeling for threat actors that use the internet as the domain to wage offense is 
 purely out of the convenience of cheapness in the transmission of offense. Computing is fundamentally 
-operation of the materialized product of devices primarily electronic in nature; the applications of this 
+operation of the materialized product of devices primarily electronic in means; the applications of this 
 field touch every corner of human activity because of their applicable quantification and industrialized 
 mechanisms for calculation. As such, there is a lot of benefit in understanding APTs by examining fields 
 not confined to the theoretics of computing. APTs are, in fact, organized for purposes always somehow 
@@ -5315,7 +5315,7 @@ connected to political warfare, and not necessarily the physically violent varie
 that can be gauged in objectively zero-sum terms amenable to the clean attribution of fault to the enemy. 
 Truthfully, APTs that operate in the internet domain derive their strengths from their expression perceived 
 as being benign, just as the tyrannical gerontocrat uses words soft-spoken but directed, nonetheless, to 
-command the offensive pursuit for aims of breaking and oppressing the will of those marked to bear the 
+command offensive pursuit for aims of oppressing and breaking the will of those marked to bear the 
 brunt of his political leadership's exclusionary force, in his desperation to cling onto power as much 
 as life itself. Furthermore, just as the tyrannical gerontocrat cannot any longer muster the strength to 
 fight physical battles yet can deliver effects through his networked political loyalists, APTs 
@@ -5344,12 +5344,12 @@ non-null success effect target containment through target self-constrainment. Th
 to shrivel and shy away from outlets that are believed to be conducive to the networked threat that is the 
 APT. Open development cannot proceed and security is allocated to matters long past. Conversion of 
 construction and equilibrium processes into penalist policies; there is threat somewhere such that the 
-source of the threat is distances away although the tentacles connected to the threat are nearby, so 
+source of the threat is distances away, although the tentacles connected to the threat are nearby, so 
 therefore, trust the erected defense mechanisms, part of a new kind of equilibrium, for these threats 
-over else. Persistence of source for adversity implies a possibility: the adversary would rather rule 
+over else. Persistence of source of adversity implies a possibility: the adversary would rather rule 
 than destroy. This possibility of motive is a cornerstone of civil politics. The source persists as 
 adversary maybe because said source cannot deal a conclusive effect to the target, due to insufficiency 
-of capability. But imagine, for a second, a bird "playing" around with a worm, pecking it in continual 
+in capability. But imagine, for a second, a bird "playing" around with a worm, pecking it in continual 
 fashion, perhaps deriving a sense of pleasure from prolonging the consumption of its next meal. This 
 analogy describes another possibility that APTs may strive for: an infinite-like dominance extorting 
 for "value" of sorts. The retreat of a target, from an APT, into its self poses the question to the 
@@ -5362,16 +5362,16 @@ the rigidity in affairs via decisions of re-arrangement for the re-designed secu
 to combat the APT in more effective forms. Another classification of effect from defense mechanisms 
 to combat APTs is "regression". Imagine how activity cannot proceed appropriately for the current 
 spatiotemporal contexts. Instead, every little matter of past or present or potential is placed under 
-the guard of this security, due to the supposed opportunistic quality in decisions taken by the APT. 
+the guard of this security, due to the supposedly opportunistic quality in decisions taken by the APT. 
 Exploitation would be inevitable if these matters were not guarded, goes the justification. Maybe some 
 decisions that took place in the past was fault by technical judgment. Therefore, goes the thinking, 
-the best way to deal with liabilities from "utility" of these pasts is to duplicate their image in ways 
-that deflect fault onto the least valuable aspects that are nevertheless supposed to be guarded against 
-the APT. It is this kind of technique that is conducive to more pathology than what the past was worth, 
-since the past is attempted duplication of image as a form of defense against the threat that supposedly 
-wanted to use elements of the target's past to gain from the target's loss. But it is now the present. 
-Repetition for camouflage. Very curious. But alas, maybe the danger from a labeled APT really does 
-demand counter-intuitive mechanisms to guard against, so the supposed pathology is only so because of 
-the deliberateness in defiance of the belief that events should take place in ways not so 
-deliberately connected in appearance to what is prior. 
+the best way to deal with liabilities from "utility" of these pasts is to duplicate these pasts' image 
+in ways that deflect fault onto the least valuable aspects that are nevertheless supposed to be guarded 
+against the APT. It is this kind of technique that is conducive to more pathology than what the past was 
+worth, since the past is attempted duplication of image as a form of defense against the threat that 
+supposedly wanted to use elements of the target's past to gain from the target's loss. But it is now the 
+present. Repetition for camouflage. Very curious. But alas, maybe the danger from a labeled APT really 
+does demand counter-intuitive mechanisms to guard against, so the supposed pathology is only so because 
+of the deliberateness in defiance of the belief that events should take place in ways not so deliberately 
+connected in appearance to what is prior. 
 
