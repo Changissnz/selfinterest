@@ -5354,4 +5354,8 @@ prolonging the consumption of its next meal. This analogy describes another poss
 strive for: an infinite-like dominance extorting for "value" of sorts. The retreat of a target, from 
 an APT, into its self poses the question to the target of how the activity of its elements is supposed 
 to proceed. If what is usually supposed to go up remains down, and what is usually underneath now elevated, 
-that would be a change of norms, would it not? 
+that would be a change of norms, would it not? A conjecture is that self-interest for the individual is 
+easier to describe in terms of objectives. Objectives remain almost identical in innermost essence, but 
+it is just that the changing phenomena, involving many selves, loosens the rigidity in affairs via 
+decisions of re-arrangement for the re-designed security that is supposed to combat the APT in more 
+effective forms. 
