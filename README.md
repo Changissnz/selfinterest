@@ -5332,7 +5332,7 @@ target. Who knows what the usual goals of advanced persistent threats, any threa
 obvious sign of effects is from attempted denial of independence for the agency of the target, by the impact 
 from connecting. And who or what is the adversarial object of immediate importance when attempting to 
 resolve networked threats? That would be the most reachable ones identified as part of this adversarial 
-force, and this usually translates to one's ownership over devices as well as their close ones: friends, 
+force, and this usually translates to one's own devices as well as their close ones: friends, 
 family, and acquaintances. How tricky for self-interest to proceed in the way of benign reciprocity with 
 their close ones and property when trust is lacking and danger in close proximity imminent. The formulation 
 of the experience for self-interest is a notable part of the body of identity that self-interest operates 
