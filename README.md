@@ -5337,6 +5337,6 @@ tricky for self-interest to proceed in the way of benign reciprocity with their 
 when trust is lacking and danger imminent by the close proximity. The formulation of the experience of 
 self-interest is a notable part of the identity/ies that self-interest operates for, in the belief that 
 the internal is beholden to the external. In these kinds of beliefs, it is as if one were to cannibalize 
-themself in order to persist more optimally in existence, but then that has parallel logic to that of 
-enabling oneself by crippling oneself; a balancing problem, maybe phrased as "necessitating sacrifice" in 
-terms of religiosity. 
+themself to attempt to persist more optimally in existence, but then that has parallel logic to that of 
+enabling oneself by crippling oneself; a balancing problem of ends not quite defined before or during the 
+balancing, maybe phrased as "necessitating sacrifice" in tones of religiosity. 
