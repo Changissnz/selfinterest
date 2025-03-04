@@ -5367,11 +5367,11 @@ Exploitation would be inevitable if these matters were not guarded, goes the jus
 decisions that took place in the past is fault by technical judgment. Therefore, goes the thinking, 
 the best way to deal with liabilities from "utility" of these pasts is to duplicate these pasts' image 
 in ways that deflect fault onto the least valuable aspects that are nevertheless supposed to be guarded 
-from the APT. It is this kind of technique that is conducive to more pathology than what the past was 
-worth, since the past is attempted duplication of image as a form of defense against the threat that 
-supposedly wanted to use elements of the target's past to gain from the target's loss. But it is now the 
-present. Repetition for camouflage. Very curious. But alas, maybe the danger from a labeled APT really 
-does demand counter-intuitive mechanisms to guard against, so the supposed pathology is only so because 
-of the deliberateness in defiance of the belief that events should take place in ways not so deliberately 
-connected in appearance to what is prior. 
+from the APT. It is this kind of technique that is positively conducive to more pathology than what the 
+past was worth, since the past is attempted duplication of image as a form of defense against the threat 
+that supposedly wanted to use elements of the target's past to gain from the target's loss. But it is now 
+the present. Measured replication for camouflage. Very curious. But alas, maybe the danger from a labeled 
+APT really does demand counter-intuitive mechanisms to guard against, so the supposed pathology is only so 
+because of the deliberateness in defiance of the belief that events should take place in ways not so 
+deliberately connected in appearance to what is prior. 
 
