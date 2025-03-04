@@ -5326,4 +5326,5 @@ to factors of their scale and the identification of them as the adversarial sour
 belonging to the representation of networked threats is a problem that solutions designed for these kinds 
 of threats attempt to resolve, by use of singularized source attribution. From concept to practice, every 
 multi-branched or circular sequence can be at least partially decomposed into uni-directional sequences, 
-rays in the lexicon of geometry. 
+rays in the lexicon of geometry. The potential of networked threats to inflict measurable damage correlates 
+to the proximity of these threats' nearest points of concluding effects to the target. 
