@@ -5313,7 +5313,7 @@ mechanisms for calculation. As such, there is a lot of benefit in understanding 
 not confined to the theoretics of computing. APTs are, in fact, organized for purposes always somehow 
 connected to political warfare, and not necessarily the physically violent variety either that bears fault 
 that can be gauged in zero-sum terms amenable to the clean attribution of fault to the enemy. Truthfully, 
-APTs that operate in the internet domain derive their strengths from the perception of their expression 
+APTs that operate in the internet domain derive their strengths from their expression perceived as 
 being benign, just as the tyrannical gerontocrat uses words soft-spoken but directed, nonetheless, to 
 command the pursuit of offense for aims of breaking and oppressing the will of those marked to bear the 
 brunt of his political leadership's exclusionary force, in his desperation to cling onto power as much 
@@ -5322,4 +5322,8 @@ fight physical battles yet can deliver effects through his networked political l
 operate for results in the domain of cyberspace to compensate for the physical distance to their targets 
 coupled with the physical defense mechanisms that would impede their physical offenses. Ominosity of 
 networked threats, that is, those that operate in multi-nodal formations, are difficult to resolve due 
-to factors of their scale and the identification of them as the adversarial source. 
+to factors of their scale and the identification of them as the adversarial source. The lack of linearity 
+belonging to the representation of networked threats is a problem that solutions designed for these kinds 
+of threats attempt to resolve, by use of singularized source attribution. From concept to practice, every 
+multi-branched or circular sequence can be at least partially decomposed into uni-directional sequences, 
+rays in the lexicon of geometry. 
