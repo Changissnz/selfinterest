@@ -5312,12 +5312,14 @@ field touch every corner of human activity because of their applicable quantific
 mechanisms for calculation. As such, there is a lot of benefit in understanding APTs by examining fields 
 not confined to the theoretics of computing. APTs are, in fact, organized for purposes always somehow 
 connected to political warfare, and not necessarily the physically violent variety either that bears fault 
-that can be gauged in zero-sum terms amenable to cleanly attributing fault to the enemy. Truthfully, APTs 
-that operate in the internet domain derive their strengths from the perception of their expression being 
-benign, just as the tyrannical gerontocrat uses words soft-spoken but directed, nonetheless, to command 
-the pursuit of offense for aims of breaking and oppressing the will of those marked to bear the brunt of 
-his political leadership's exclusive force, in his desperation to desperate to cling onto power as much 
+that can be gauged in zero-sum terms amenable to the clean attribution of fault to the enemy. Truthfully, 
+APTs that operate in the internet domain derive their strengths from the perception of their expression 
+being benign, just as the tyrannical gerontocrat uses words soft-spoken but directed, nonetheless, to 
+command the pursuit of offense for aims of breaking and oppressing the will of those marked to bear the 
+brunt of his political leadership's exclusionary force, in his desperation to cling onto power as much 
 as life itself. Furthermore, just as the tyrannical gerontocrat cannot any longer muster the strength to 
-fight physical battles yet can deliver effects through his networked political loyalists, APTs operate 
-for results in the domain of cyberspace to compensate for the physical distance to their targets coupled 
-with the physical defense mechanisms that would impede their physical offenses. 
+fight physical battles yet can deliver effects through his networked political loyalists, APTs 
+operate for results in the domain of cyberspace to compensate for the physical distance to their targets 
+coupled with the physical defense mechanisms that would impede their physical offenses. Ominosity of 
+networked threats, that is, those that operate in multi-nodal formations, are difficult to resolve due 
+to factors of their scale and the identification of them as the adversarial source. 
