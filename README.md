@@ -5307,8 +5307,8 @@ The phraseme "advanced persistent threat" (APT) has only become popular with the
 use, although the concept is not solely rooted in the domain of the internet; APTs are, first and foremost, 
 offendors and this labeling for threat actors that use the internet as the domain to wage offense is 
 purely out of the convenience of cheapness in the transmission of offense. Computing is practically  
-operation of the materialized product of devices primarily electronic in means; the applications of this 
-field touch every corner of human activity because of their applicable quantification and industrialized 
+operation of the materialized product of devices primarily electronic in means; the applications from this 
+field touch every corner of human activity because of applicable quantification and industrial 
 mechanisms for calculation. As such, there is a lot of benefit in understanding APTs by examining fields 
 not confined to the theoretics of computing. APTs are, in fact, organized for purposes always somehow 
 connected to political warfare, and not necessarily the physically violent variety either that bears fault 
