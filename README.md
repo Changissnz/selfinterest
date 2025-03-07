@@ -5226,8 +5226,8 @@ translated into communicated meaning is not necessarily power of observation ove
 The notion of security is attempted translation into fixtures virtually guaranteed to deliver or execute as 
 formally declared, which is a sort of business robust in the capabilities of covering or targeting the 
 objects and objectives labeled as pertinent, regardless of the designation of it as public or private 
-enterprise. It is a damn shame, really, for security to be critical in balance for balance and all the while 
-also having to align with political interests, because then, conversations on and implementations of 
+enterprise. It is a damned shame, really, for security to be critical in balance for balance and all the 
+while also having to align with political interests, because then, conversations on and implementations of 
 security are forever bound to the asymmetry of the protected and the protector, amongst other categories in 
 these dynamical systems. Somewhere in the design and execution of security in flux for the wanted stases is 
 relation to or output from purely political interests, in other words. It would definitely be easier for 
