@@ -5445,5 +5445,5 @@ dependent on what is underlying as rigid design for the high-level freedom of mo
 are plenty of examples of scientists and philosophers that were not low-level in the socio-economic 
 context, and their categorization as being low-level is for the clarity of attributing occupation to 
 hierarchicized field for phenomena. The objective of direct perception of phenomena and structures 
-sees effect before cause; the primary government branches, for example, of judicial (fear), legislative 
-(reason), and executive (force) are not mere metaphysical bodies. 
+inclines attention to effect before cause; the primary government branches, for example, of judicial (fear), 
+legislative (reason), and executive (force) are not mere metaphysical bodies. 
