@@ -5385,9 +5385,12 @@ so every sentient being is rightfully a reactionary agent of any time, without o
 circumstances, and arguably so far as being completely under nature as opposed to nurture, for the nurture 
 was spurred by circumstances not engineered or fully selected out of the possibilities and so must be effect 
 from nature. What is more, for the sake of self-empowerment and independence, one and the same, actions 
-taken without the source being known for them must be believed to be entirely spurred from the self, free 
-from influence and done especially out of the decision encompassed by a constantly equal pool of choice, 
-which is questionable. Connectionism is an issue in describing the thoughts and actions that have been 
-done by sentience. Everything is connected, the world that is, goes a certain line of thinking, and it 
-is only the phenomena of forms and new forms from this truth, this source, that makes any one believe that 
-they are operating in independent or exclusively grouped cause. 
+taken without the source being known by the actors must be believed to be entirely spurred from the self, 
+free from influence and done especially out of the decision encompassed by a constantly equal pool of 
+choice, which is questionable. Connectionism is an issue in describing the thoughts and actions that have 
+been done by sentience. Everything is connected, the world that is, goes a certain line of thinking, and it 
+is only the phenomena of forms and new forms from this truth, this source, that can convince any one to 
+believe that they are operating in independent or exclusively grouped cause. This line of thinking leads 
+way to more lines such as the necessity of exclusionary policies. But back to the statement of the 
+belief in sentient action being reaction when source is not known, this is one orthodoxy that places the 
+existence of knowing as the central body that demands relation to. 
