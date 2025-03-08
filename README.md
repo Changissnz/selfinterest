@@ -5450,7 +5450,7 @@ inclines attention to effect before cause; the primary government branches, for 
 legislative (reason), and executive (force) are not mere metaphysical bodies. Knowledge games are cause 
 for phenomena perceived as pathological between agents. Consider one that thinks they know something 
 about an other. When that one formulates their expression that alludes to this claimed known, the 
-cognition of the other may register the expression as allusion, that is, not sourced from that one. The 
+cognition of the other may register the expression as allusion, that is, not centered from that one. The 
 allusion effects the other becoming half-repellant to that one, since the fact of it may be privatized by 
 that other and even if said fact is labeled by them as not that sensitive, the occurrence of the event of 
 expression for allusion either removes the need for conversation on it (questionably solidarity) or 
