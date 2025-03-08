@@ -5414,6 +5414,6 @@ perspective is seldom enough out of the present divisions in resources and loyal
 categorized as "conservative" to allow for the freedom of attempting to know more without fearing the routes 
 and destinations of knowing. Obviously, if this principle is not thought to be conservative and the defining 
 motivation in one sphere of influence is unhinged to act against any knowing out of fear, the thought 
-and action to satisfy this sphere's equilibrium of rule is very different, as if the knowing is volatile 
-cause guaranteed for effect of action so that overall, knowledge subordinates action and must be dangerous 
-as cause for inactivity and misactivity. 
+and action to satisfy this sphere's equilibrium of rule implies the sphere's perception of knowing is 
+very different, as if the knowing is volatile cause guaranteed for effect of action so that overall, 
+knowledge subordinates action and must be dangerous as cause for inactivity and misactivity. 
