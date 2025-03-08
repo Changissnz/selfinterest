@@ -5455,7 +5455,7 @@ allusion effects the other becoming half-repellant to that one, since the fact o
 that other and even if said fact is labeled by them as not that sensitive, the occurrence of the event of 
 expression for allusion either removes the need for conversation on it (questionably solidarity) or 
 spurs the demand to clarify the truths on it, which may actually produce as much interaction between the 
-two as in the case of no allusion to the claimed known and definitely is an allocation of time and effort 
+two as in the case of no allusion to the claimed known, and definitely is an allocation of time and effort 
 in interaction that focuses on it. The degree of repellance is non-null to serve the defensive reaction, 
 part of the objective of privatization, to allusion. 
 
