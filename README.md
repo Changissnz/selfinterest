@@ -5381,7 +5381,10 @@ The circumstances of every instance in time are magnetic to the workings of sent
 designated words for the statement in many languages and if that is that, there would not be anything else 
 to write about on this truth. If the source of phenomenon for the action, this action being a reaction, 
 cannot be identified, it must be unequivocally believed that all sentient actions are, in fact, reactions, 
-so every sentient being is rightfully a reactionary agent of the time, without origin, passive to the 
+so every sentient being is rightfully a reactionary agent of any time, without origin, passive to the 
 circumstances, and arguably so far as being completely under nature as opposed to nurture, for the nurture 
 was spurred by circumstances not engineered or fully selected out of the possibilities and so must be effect 
-from nature. 
+from nature. What is more, for the sake of self-empowerment and independence, one and the same, actions 
+taken without the source being known for them must be believed to be entirely spurred from the self, free 
+from influence and done especially out of the decision encompassed by a constantly equal pool of choice, 
+which is questionable. 
