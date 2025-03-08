@@ -5430,7 +5430,7 @@ equivalent demand for control to conserve and maintain; as with many dichotomies
 must merge together for the ends of one, but merge too soon and there would be none that can work any role 
 of either halves. In the realm of knowing, a genuine interest in knowing better is morally superior to that 
 of knowing more, in the likeness of present greed and future exploitation. The "knowing better" is not 
-necessarily about reduction of scale of knowing in comparison with "knowing more". And the part of one 
+necessarily about reduction of scale of knowledge in comparison with "knowing more". And the part of one 
 knowing better can only be categorized as such when those related to that one share compatible bases for 
 living and acting, a concept that turns political in practice, demonstrated by the quality of the 
 corresponding artificial axioms defined, agreed upon, and prescribed en masse. The occupations of scientist 
