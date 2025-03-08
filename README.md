@@ -5457,3 +5457,5 @@ expression for allusion either removes the need for conversation on it (question
 spurs the demand to clarify the truths on it, which may actually produce as much interaction between the 
 two as in the case of no allusion to the claimed known. The degree of repellance is non-null to serve 
 the defensive reaction, part of the objective of privatization, to allusion. 
+
+## More on philosophies of self-interest #73 
