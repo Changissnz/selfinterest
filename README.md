@@ -5393,4 +5393,5 @@ is only the phenomena of forms and new forms from this truth, this source, that 
 believe that they are operating in independent or exclusively grouped cause. This line of thinking leads 
 way to more lines such as the necessity of exclusionary policies. But back to the statement of the 
 belief in sentient action being reaction when source is not known, this is one orthodoxy that places the 
-existence of knowing as the central body that demands relation to. 
+existence of knowing as the central body that demands relation to. This orthodoxy also reinforces the idea 
+that human beings are rational agents by their operation of self-interest. 
