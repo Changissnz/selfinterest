@@ -5442,7 +5442,7 @@ As elaboration on these views, these two occupations are generally much more min
 essence of matters and axioms of natural law, and both of these bodies are seldom directly pertinent to 
 the generated phenomena partly responsible by human beings. A certain line of thinking goes, to free the 
 cause is to change the effect, and these changes could be insulting to the expectations of the high-level 
-dependent on what is underlying, the rigid design to enable freedom of movement by the high-level. Of 
+dependent on what is underlying, the rigid design to help enable freedom of movement by the high-level. Of 
 course, there are plenty of examples of scientists and philosophers that were not low-level in the 
 socio-economic context, but their categorization of low-level is for the clarity of attributing occupation 
 to hierarchicized field for phenomena. The objective of directly perceiving phenomena and structures 
