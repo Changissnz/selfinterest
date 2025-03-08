@@ -5379,41 +5379,48 @@ deliberately connected in appearance to what is prior.
 
 The circumstances of every instance in time are magnetic to the workings of sentience. There are specially 
 designated words for the statement in many languages and if that is that, there would not be anything else 
-to write about on this truth. If the source of phenomenon for the action, this action being a reaction, 
-cannot be identified, it must be unequivocally believed that all sentient actions are, in fact, reactions, 
-so every sentient being is rightfully a reactionary agent of any time, without origin, passive to the 
-circumstances, and arguably so far as being completely under nature as opposed to nurture, for the nurture 
-was spurred by circumstances not engineered or fully selected out of the possibilities and so must be effect 
-from nature. What is more, for the sake of self-empowerment and independence, one and the same, actions 
-taken without the source being known by the actors must be believed to be entirely spurred from the self, 
-free from influence and done especially out of the decision encompassed by a constantly equal pool of 
-choice, which is questionable. Connectionism is an issue in describing the thoughts and actions that have 
-been done by sentience. Everything is connected, the world that is, goes a certain line of thinking, and it 
-is only the phenomena of forms and new forms from this truth, this source, that can convince any one to 
-believe that they are operating in independent or exclusively grouped cause. This line of thinking leads 
-way to more lines such as the necessity of exclusionary policies. But back to the statement of the 
-belief in sentient action being reaction when source is not known, this is one orthodoxy that places the 
-existence of knowing as the central body that demands relation to. This orthodoxy also reinforces the idea 
-that human beings are rational agents by their operation of self-interest, and a flawed assumption about 
-this idea is that human beings would therefore reliably make the best decisions, an effect that betrays 
-the actual weaknesses from handling the many complex and competitive systems in existence, these systems 
-categorized by labels such as anti-competitive, known, unknown, artificial, and natural. A perspective 
-oftentimes employed is that the knowledge and the possible action should be considered in the same vein, 
-with regards to the forecasting of the future. From this perspective, knowledge is almost always a positive 
-cause and so, to acknowledge is to empower, and to acknowledge is to direct focus of targeting towards that 
-specific topic; this is rather obtuse in wording but must be mentioned as a generalization of the expression 
-decided on by sentience given their capabilities, that which includes their knowledge base. The convention 
-of the ordering, knowing before acting, is a dogma in the permutatorial messiness of the world of unknown 
-source for phenomena coupled with axioms of natural law known only to generate additional phenomena. Cases 
-exist to challenge dogmas in these situations of permutatorial messiness, in other words. Perhaps the only 
-fair statement on the dogma of knowing before acting is that the knowing allows for deciding on the best of 
-the available choices. The knowing surely cannot be a cause that automates change of preference and 
-objective; this is one of those conservative principles for outcomes from valuation systems such as 
-knowledge economies and an undeniable truth for cause of cultural conflict, where knowing the other 
-perspective is seldom enough out of the present divisions in resources and loyalties. This principle is 
-categorized as "conservative" to allow for the freedom of attempting to know more without fearing the routes 
-to and destinations of knowing. Obviously, if this principle is not thought to be conservative and the 
-defining motivation in one sphere of influence is unhinged to act against any knowing out of fear, the 
-thought and action to satisfy this sphere's equilibrium of rule will demonstrate the sphere to have a 
-differing perception of knowing, as if the knowing is volatile cause guaranteed for effect of action so 
-that overall, knowledge subordinates action and must be dangerous as cause for inactivity and misactivity. 
+to write about on this truth. If the source of phenomenon for the action thought appropriate as result, 
+this action being a reaction, cannot be identified, it must be unequivocally believed that all sentient 
+actions are, in fact, reactions, so every sentient being is rightfully a reactionary agent of any time, 
+without origin, passive to the circumstances, and arguably so far as being completely under nature as 
+opposed to nurture, for the nurture was spurred by circumstances not engineered or fully selected out of the 
+possibilities and so must be effect from nature. What is more, for the sake of self-empowerment and 
+independence, one and the same, actions taken without the source being known by the actors must be believed 
+to be entirely spurred from the self, free from influence and done especially out of the decision 
+encompassed by a constantly equal pool of choice, which is questionable. Connectionism is an issue in 
+describing the thoughts and actions that have been done by sentience. Everything is connected, the world 
+that is, goes a certain line of thinking, and it is only the phenomena of forms and new forms from this 
+truth, this source, that can convince any one to believe that they are operating in independent or 
+exclusively grouped cause. This line of thinking leads way to more lines such as the necessity of 
+exclusionary policies. But back to the statement of the belief in sentient action being reaction when source 
+is not known, this is one orthodoxy that places the existence of knowing as the central body that demands 
+relation to. This orthodoxy also reinforces the idea that human beings are rational agents by their 
+operation of self-interest, and a flawed assumption about this idea is that human beings would therefore 
+reliably make the best decisions, an effect that betrays the actual weaknesses from handling the many 
+complex and competitive systems in existence, these systems categorized by labels such as anti-competitive, 
+known, unknown, artificial, and natural. A perspective oftentimes employed is that the knowledge and the 
+possible action should be considered in the same vein, with regards to the forecasting of the future. From 
+this perspective, knowledge is almost always a positive cause and so, to acknowledge is to empower, and to 
+acknowledge is to direct focus of targeting towards that specific topic; this is rather obtuse in wording 
+but must be mentioned as a generalization of the expression decided on by sentience given their 
+capabilities, that which includes their knowledge base. The convention of the ordering, knowing before 
+acting, is a dogma in the permutatorial messiness of the world of unknown source for phenomena coupled with 
+axioms of natural law known only to generate additional phenomena. Cases exist to challenge dogmas in these 
+situations of permutatorial messiness, in other words. Perhaps the only fair statement on the dogma of 
+knowing before acting is that the knowing allows for deciding on the best of the available choices. The 
+knowing surely cannot be a cause that automates change of preference and objective; this is one of those 
+conservative principles for outcomes from valuation systems such as knowledge economies and an undeniable 
+truth for cause of cultural conflict, where knowing the other perspective is seldom enough out of the 
+present divisions in resources and loyalties. This principle is categorized as "conservative" to allow for 
+the freedom of attempting to know more without fearing the routes to and destinations of knowing. Obviously, 
+if this principle is not thought to be conservative and the defining motivation in one sphere of influence 
+is unhinged to act against any knowing out of fear, the thought and action to satisfy this sphere's 
+equilibrium of rule will demonstrate the sphere to have a differing perception of knowing, as if the knowing 
+is volatile cause guaranteed for effect of action so that overall, knowledge subordinates action and must be 
+dangerous as cause for inactivity and misactivity. In section 23, the notion that sentient intelligence 
+is a social value in practice is argued for, on the premise of relation via connectivity. Products and 
+results are effects from sentient intelligence and are objectively measurable, but it is more difficult 
+to know the qualities of the sentient intelligence used to produce those products and results. Facts, 
+principles, practices, and chance are ingredients in the convolution of sentient intelligence; only for 
+the purpose of function can the attempted objective measurement of sentient intelligence be deemed 
+valid. 
