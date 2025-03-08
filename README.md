@@ -5387,4 +5387,7 @@ was spurred by circumstances not engineered or fully selected out of the possibi
 from nature. What is more, for the sake of self-empowerment and independence, one and the same, actions 
 taken without the source being known for them must be believed to be entirely spurred from the self, free 
 from influence and done especially out of the decision encompassed by a constantly equal pool of choice, 
-which is questionable. 
+which is questionable. Connectionism is an issue in describing the thoughts and actions that have been 
+done by sentience. Everything is connected, the world that is, goes a certain line of thinking, and it 
+is only the phenomena of forms and new forms from this truth, this source, that makes any one believe that 
+they are operating in independent or exclusively grouped cause. 
