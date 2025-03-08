@@ -5394,4 +5394,7 @@ believe that they are operating in independent or exclusively grouped cause. Thi
 way to more lines such as the necessity of exclusionary policies. But back to the statement of the 
 belief in sentient action being reaction when source is not known, this is one orthodoxy that places the 
 existence of knowing as the central body that demands relation to. This orthodoxy also reinforces the idea 
-that human beings are rational agents by their operation of self-interest. 
+that human beings are rational agents by their operation of self-interest, and a flawed assumption about 
+this idea is that human beings would therefore make the best decisions, an effect that betrays the 
+complexity of the many competitive systems in existence, these systems categorized by labels such as 
+anti-competitive, known, unknown, artificial, and natural. 
