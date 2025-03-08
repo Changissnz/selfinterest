@@ -5422,15 +5422,15 @@ intelligence is a social value in practice is argued for, on the premise of rela
 Products and results are effects from sentient intelligence and are objectively measurable, but it is more 
 difficult to know the qualities of the sentient intelligence used to produce those products and results. 
 Facts, principles, practices, and chance are ingredients in the convolution of sentient intelligence; only 
-for the purpose of function can attempted objective measurement of sentient intelligence be deemed valid. 
-And there are limits to uni-function in the realm of human activity. For example, a society of engineers and 
-builders is productive, visibly so, and are given more praise than the political, with their demands of 
-whims and ideals, until the administration of the built and engineered products requires a roughly 
-equivalent demand for control to conserve and maintain; as with many dichotomies, the differences somehow 
-must merge together for the ends of one, but merge too soon and there would be none that can work any role 
-of either halves. In the realm of knowing, a genuine interest in knowing better is morally superior to that 
-of knowing more, in the likeness of present greed and future exploitation. The "knowing better" is not 
-necessarily about reduction of scale of knowledge in comparison with "knowing more". And the part of one 
+for the purpose of function can attempted objective measurement of sentient intelligence be deemed 
+appropriate. And there are limits to uni-function in the realm of human activity. For example, a society of 
+engineers and builders is productive, visibly so, and are given more praise than the political, with their 
+demands of whims and ideals, until the administration of the built and engineered products requires a 
+roughly equivalent demand for control to conserve and maintain; as with many dichotomies, the differences 
+somehow must merge together for the ends of one, but merge too soon and there would be none that can work 
+any role of either halves. In the realm of knowing, a genuine interest in knowing better is morally superior 
+to that of knowing more, in the likeness of present greed and future exploitation. The "knowing better" is 
+not necessarily about reduction of scale of knowledge in comparison with "knowing more". And the part of one 
 knowing better can only be categorized as such when those related to that one share compatible bases for 
 living and acting, a concept that turns political in practice, demonstrated by the quality of the 
 corresponding artificial axioms defined, agreed upon, and prescribed en masse. The occupations of scientist 
