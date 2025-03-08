@@ -5395,10 +5395,10 @@ way to more lines such as the necessity of exclusionary policies. But back to th
 belief in sentient action being reaction when source is not known, this is one orthodoxy that places the 
 existence of knowing as the central body that demands relation to. This orthodoxy also reinforces the idea 
 that human beings are rational agents by their operation of self-interest, and a flawed assumption about 
-this idea is that human beings would therefore make the best decisions, an effect that betrays weaknesses 
-from handling the many complex and competitive systems in existence, these systems categorized by labels 
-such as anti-competitive, known, unknown, artificial, and natural. A perspective oftentimes employed is 
-that the knowledge and the possible action should be considered in the same vein, with regards to the 
+this idea is that human beings would therefore reliably make the best decisions, an effect that betrays 
+weaknesses from handling the many complex and competitive systems in existence, these systems categorized by 
+labels such as anti-competitive, known, unknown, artificial, and natural. A perspective oftentimes employed 
+is that the knowledge and the possible action should be considered in the same vein, with regards to the 
 forecasting of the future. From this perspective, knowledge is almost always a positive cause and so, 
 to acknowledge is to empower, and to acknowledge is to direct focus of targeting towards that specific 
 topic. 
