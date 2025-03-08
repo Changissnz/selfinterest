@@ -5415,7 +5415,7 @@ the present divisions in resources and loyalties. This principle is categorized 
 for the freedom of attempting to know more without fearing the routes to and destinations of knowing. 
 Obviously, if this principle is not thought to be conservative and the defining motivation in one sphere of 
 influence is unhinged to act against any knowing out of fear, the thought and action to satisfy this 
-sphere's equilibrium of rule will demonstrate the sphere to have a differing perception of knowing, as if 
+sphere's equilibrium of rule will demonstrate the sphere of having a differing perception of knowing, as if 
 the knowing is volatile cause guaranteed for effect of action so that overall, knowledge subordinates action 
 and must be dangerous as cause for inactivity and misactivity. In section 23, the notion that sentient 
 intelligence is a social value in practice is argued for, on the premise of relation via connectivity. 
@@ -5427,7 +5427,7 @@ And there are limits to uni-function in the realm of human activity. For example
 builders is productive, visibly so, and are given more praise than the political, with their demands of 
 whims and ideals, until the administration of the built and engineered products requires a roughly 
 equivalent demand for control to conserve and maintain; as with many dichotomies, the differences somehow 
-must merge together for the ends of one, but merge too soon and there would be none that can work the role 
+must merge together for the ends of one, but merge too soon and there would be none that can work any role 
 of either halves. In the realm of knowing, a genuine interest in knowing better is morally superior to that 
 of knowing more, in the likeness of present greed and future exploitation. The "knowing better" is not 
 necessarily about reduction of scale of knowing in comparison with "knowing more". And the part of one 
@@ -5447,4 +5447,13 @@ there are plenty of examples of scientists and philosophers that were not low-le
 context, but their categorization of low-level is for the clarity of attributing occupation to 
 hierarchicized field for phenomena. The objective of direct perception of phenomena and structures 
 inclines attention to effect before cause; the primary government branches, for example, of judicial (fear), 
-legislative (reason), and executive (force) are not mere metaphysical bodies. 
+legislative (reason), and executive (force) are not mere metaphysical bodies. Knowledge games are cause 
+for phenomena perceived as pathological between agents. Consider one that thinks they know something 
+about an other. When that one formulates their expression that alludes to this claimed known, the 
+cognition of the other may register the expression as allusion, that is, not sourced from that one. The 
+allusion effects the other becoming half-repellant to that one, since the fact of it may be privatized by 
+that other and even if said fact is labeled by them as not that sensitive, the occurrence of the event of 
+expression for allusion either removes the need for conversation on it (questionably solidarity) or 
+spurs the demand to clarify the truths on it, which may actually produce as much interaction between the 
+two as in the case of no allusion to the claimed known. The degree of repellance is non-null to serve 
+the defensive reaction, part of the objective of privatization, to allusion. 
