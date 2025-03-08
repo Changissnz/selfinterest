@@ -5404,4 +5404,10 @@ cause and so, to acknowledge is to empower, and to acknowledge is to direct focu
 specific topic; this is rather obtuse in wording but must be mentioned as a generalization of the expression 
 decided on by sentience given their capabilities, that which includes their knowledge base. The convention 
 of the ordering, knowing before acting, is a dogma in the permutatorial messiness of the world of unknown 
-phenomena coupled with axioms of natural law known only to generate additional phenomena. 
+phenomena coupled with axioms of natural law known only to generate additional phenomena. Cases exist to 
+challenge dogmas in these situations of permutatorial messiness, in other words. Perhaps the only fair 
+statement on the dogma of knowing before acting is that the knowing allows for deciding on the best of 
+the available choices. The knowing surely cannot be a cause automating change of preference and objective; 
+this is a persuasive cause for valuation systems such as knowledge economies and an undeniable truth 
+for cultural conflict, where knowing the other perspective is seldom enough out of the present divisions 
+in resources and loyalties. 
