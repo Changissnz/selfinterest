@@ -5405,24 +5405,24 @@ acknowledge is to direct focus of targeting towards that specific topic; this is
 but must be mentioned as a generalization of the expression decided on by sentience given their 
 capabilities, that which includes their knowledge base. The convention of the ordering, knowing before 
 acting, is a dogma in the permutatorial messiness of the world of unknown source for phenomena coupled with 
-axioms of natural law known only to generate additional phenomena. Cases exist to challenge dogmas in these 
-situations of permutatorial messiness, in other words. Perhaps the only fair statement on the dogma of 
-knowing before acting is that the knowing allows for deciding on the best of the available choices. The 
-knowing surely cannot be a cause that automates change of preference and objective; this is one of those 
-conservative principles for outcomes from valuation systems such as knowledge economies and an undeniable 
-truth for cause of cultural conflict, where knowing the other perspective is seldom enough out of the 
-present divisions in resources and loyalties. This principle is categorized as "conservative" to allow for 
-the freedom of attempting to know more without fearing the routes to and destinations of knowing. Obviously, 
-if this principle is not thought to be conservative and the defining motivation in one sphere of influence 
-is unhinged to act against any knowing out of fear, the thought and action to satisfy this sphere's 
-equilibrium of rule will demonstrate the sphere to have a differing perception of knowing, as if the knowing 
-is volatile cause guaranteed for effect of action so that overall, knowledge subordinates action and must be 
-dangerous as cause for inactivity and misactivity. In section 23, the notion that sentient intelligence 
-is a social value in practice is argued for, on the premise of relation via connectivity. Products and 
-results are effects from sentient intelligence and are objectively measurable, but it is more difficult 
-to know the qualities of the sentient intelligence used to produce those products and results. Facts, 
-principles, practices, and chance are ingredients in the convolution of sentient intelligence; only for 
-the purpose of function can attempted objective measurement of sentient intelligence be deemed valid. 
+axioms of natural law known only for deliberately generating additional phenomena. Cases exist to challenge 
+dogmas in these situations of permutatorial messiness, in other words. Perhaps the only fair statement on 
+the dogma of knowing before acting is that the knowing allows for deciding on the best of the available 
+choices. The knowing surely cannot be a cause that automates change of preference and objective; this is one 
+of those conservative principles for outcomes from valuation systems such as knowledge economies and an 
+undeniable truth for cause of cultural conflict, where knowing the other perspective is seldom enough out of 
+the present divisions in resources and loyalties. This principle is categorized as "conservative" to allow 
+for the freedom of attempting to know more without fearing the routes to and destinations of knowing. 
+Obviously, if this principle is not thought to be conservative and the defining motivation in one sphere of 
+influence is unhinged to act against any knowing out of fear, the thought and action to satisfy this 
+sphere's equilibrium of rule will demonstrate the sphere to have a differing perception of knowing, as if 
+the knowing is volatile cause guaranteed for effect of action so that overall, knowledge subordinates action 
+and must be dangerous as cause for inactivity and misactivity. In section 23, the notion that sentient 
+intelligence is a social value in practice is argued for, on the premise of relation via connectivity. 
+Products and results are effects from sentient intelligence and are objectively measurable, but it is more 
+difficult to know the qualities of the sentient intelligence used to produce those products and results. 
+Facts, principles, practices, and chance are ingredients in the convolution of sentient intelligence; only 
+for the purpose of function can attempted objective measurement of sentient intelligence be deemed valid. 
 And there are limits to uni-function in the realm of human activity. For example, a society of engineers and 
 builders is productive, visibly so, and are given more praise than the political, with their demands of 
 whims and ideals, until the administration of the built and engineered products requires a roughly 
