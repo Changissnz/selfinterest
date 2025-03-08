@@ -5408,6 +5408,6 @@ phenomena coupled with axioms of natural law known only to generate additional p
 challenge dogmas in these situations of permutatorial messiness, in other words. Perhaps the only fair 
 statement on the dogma of knowing before acting is that the knowing allows for deciding on the best of 
 the available choices. The knowing surely cannot be a cause automating change of preference and objective; 
-this is a persuasive cause for valuation systems such as knowledge economies and an undeniable truth 
-for cultural conflict, where knowing the other perspective is seldom enough out of the present divisions 
-in resources and loyalties. 
+this is one of those principles for effects from valuation systems such as knowledge economies and an 
+undeniable truth for cultural conflict, where knowing the other perspective is seldom enough out of the 
+present divisions in resources and loyalties. 
