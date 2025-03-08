@@ -5375,3 +5375,8 @@ APT really does demand counter-intuitive mechanisms to guard against, so the sup
 because of the deliberateness in defiance of the belief that events should take place in ways not so 
 deliberately connected in appearance to what is prior. 
 
+## More on philosophies of self-interest #73 
+
+The circumstances of every instance in time are magnetic to the workings of sentience. There are specially 
+designated words for the statement in many languages and if that is that, there would not be anything else 
+to write about on this truth. 
