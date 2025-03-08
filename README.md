@@ -5442,6 +5442,6 @@ essence of matters and axioms of natural law, and both of these bodies are seldo
 the generated phenomena partly responsible by human beings. A certain line of thinking goes, to know the 
 cause is to change the effect, and these changes could be insulting to the expectations of the high-level 
 dependent on what is underlying as rigid design for the high-level freedom of movement. Of course, there 
-are plenty of examples of scientists and philosophers that were not low-level in the social context, and 
-their categorization as being low-level is for this clarity, attributing occupation to hierarchicized 
-field for phenomena. 
+are plenty of examples of scientists and philosophers that were not low-level in the socio-economic 
+context, and their categorization as being low-level is for the clarity of attributing occupation to 
+hierarchicized field for phenomena. 
