@@ -5429,11 +5429,12 @@ whims and ideals, until the administration of the built and engineered products 
 equivalent demand for control to conserve and maintain; as with many dichotomies, the differences somehow 
 must merge together for the ends of one, but merge too soon and there would be none that can work the role 
 of either halves. In the realm of knowing, a genuine interest in knowing better is morally superior to that 
-of knowing more, in the likeness of present greed and future exploitation. And the part of one knowing 
-better can only be categorized as such when those related to that one share compatible bases for living and 
-acting, a concept that turns political in practice, demonstrated by the quality of the corresponding 
-artificial axioms defined, agreed upon, and prescribed en masse. The occupations of scientist and 
-philosopher exemplify the discrepancy between prestige and foundation. In some societies of the past, 
+of knowing more, in the likeness of present greed and future exploitation. The "knowing better" is not 
+necessarily about reduction of scale of knowing in comparison with "knowing more". And the part of one 
+knowing better can only be categorized as such when those related to that one share compatible bases for 
+living and acting, a concept that turns political in practice, demonstrated by the quality of the 
+corresponding artificial axioms defined, agreed upon, and prescribed en masse. The occupations of scientist 
+and philosopher exemplify the discrepancy between prestige and foundation. In some societies of the past, 
 doctors were viewed as low-level agents, the primary fact of their tending more to the natural world 
 of pathology and medicine as reason for the view. In a parallel perspective, scientists and philosophers 
 are also low-level agents, and the social consequence of this is that they are sometimes viewed as idiots. 
@@ -5441,9 +5442,9 @@ As elaboration on these views, these two occupations are generally much more min
 essence of matters and axioms of natural law, and both of these bodies are seldom directly pertinent to 
 the generated phenomena partly responsible by human beings. A certain line of thinking goes, to free the 
 cause is to change the effect, and these changes could be insulting to the expectations of the high-level 
-dependent on what is underlying as rigid design for the high-level freedom of movement. Of course, there 
-are plenty of examples of scientists and philosophers that were not low-level in the socio-economic 
-context, and their categorization as being low-level is for the clarity of attributing occupation to 
+dependent on what is underlying, the rigid design for freedom of movement by the high-level. Of course, 
+there are plenty of examples of scientists and philosophers that were not low-level in the socio-economic 
+context, but their categorization of low-level is for the clarity of attributing occupation to 
 hierarchicized field for phenomena. The objective of direct perception of phenomena and structures 
 inclines attention to effect before cause; the primary government branches, for example, of judicial (fear), 
 legislative (reason), and executive (force) are not mere metaphysical bodies. 
