@@ -5432,4 +5432,11 @@ of either halves. In the realm of knowing, a genuine interest in knowing better 
 of knowing more, in the likeness of present greed and future exploitation. And the part of one knowing 
 better can only be categorized as such when those related to that one share compatible bases for living and 
 acting, a concept that turns political in practice, demonstrated by the quality of the corresponding 
-artificial axioms defined, agreed upon, and prescribed en masse. 
+artificial axioms defined, agreed upon, and prescribed en masse. The occupations of scientist and 
+philosopher exemplify the discrepancy between prestige and foundation. In some societies of the past, 
+doctors were viewed as low-level agents, the primary fact of their tending more to the natural world 
+of pathology and medicine as reason for the view. In a parallel perspective, scientists and philosophers 
+are also low-level agents, and the social consequence of this is that they are sometimes viewed as idiots. 
+As elaboration on these views, these two occupations are generally much more mindful of the innermost 
+essence of matters and axioms of natural law, and both of these bodies are not directly pertinent to the 
+generated phenomena partly responsible by human beings. 
