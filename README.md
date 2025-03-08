@@ -5396,10 +5396,12 @@ belief in sentient action being reaction when source is not known, this is one o
 existence of knowing as the central body that demands relation to. This orthodoxy also reinforces the idea 
 that human beings are rational agents by their operation of self-interest, and a flawed assumption about 
 this idea is that human beings would therefore reliably make the best decisions, an effect that betrays 
-weaknesses from handling the many complex and competitive systems in existence, these systems categorized by 
-labels such as anti-competitive, known, unknown, artificial, and natural. A perspective oftentimes employed 
-is that the knowledge and the possible action should be considered in the same vein, with regards to the 
-forecasting of the future. From this perspective, knowledge is almost always a positive cause and so, 
-to acknowledge is to empower, and to acknowledge is to direct focus of targeting towards that specific 
-topic; this is rather obtuse but must be mentioned as a generalization of the expression decided on by 
-sentience given their capabilities, that which includes their knowledge base. 
+the actual weaknesses from handling the many complex and competitive systems in existence, these systems 
+categorized by labels such as anti-competitive, known, unknown, artificial, and natural. A perspective 
+oftentimes employed is that the knowledge and the possible action should be considered in the same vein, 
+with regards to the forecasting of the future. From this perspective, knowledge is almost always a positive 
+cause and so, to acknowledge is to empower, and to acknowledge is to direct focus of targeting towards that 
+specific topic; this is rather obtuse in wording but must be mentioned as a generalization of the expression 
+decided on by sentience given their capabilities, that which includes their knowledge base. The convention 
+of the ordering, knowing before acting, is a dogma in the permutatorial messiness of the world of unknown 
+phenomena coupled with axioms of natural law known only to generate additional phenomena. 
