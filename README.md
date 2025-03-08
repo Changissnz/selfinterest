@@ -5423,7 +5423,7 @@ results are effects from sentient intelligence and are objectively measurable, b
 to know the qualities of the sentient intelligence used to produce those products and results. Facts, 
 principles, practices, and chance are ingredients in the convolution of sentient intelligence; only for 
 the purpose of function can attempted objective measurement of sentient intelligence be deemed valid. 
-And there are limits to function in the realm of human activity. For example, a society of engineers and 
+And there are limits to uni-function in the realm of human activity. For example, a society of engineers and 
 builders is productive, visibly so, and are given more praise than the political, with their demands of 
 whims and ideals, until the administration of the built and engineered products requires a roughly 
 equivalent demand for control to conserve and maintain; as with many dichotomies, the differences somehow 
