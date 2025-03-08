@@ -5401,4 +5401,5 @@ labels such as anti-competitive, known, unknown, artificial, and natural. A pers
 is that the knowledge and the possible action should be considered in the same vein, with regards to the 
 forecasting of the future. From this perspective, knowledge is almost always a positive cause and so, 
 to acknowledge is to empower, and to acknowledge is to direct focus of targeting towards that specific 
-topic. 
+topic; this is rather obtuse but must be mentioned as a generalization of the expression decided on by 
+sentience given their capabilities, that which includes their knowledge base. 
