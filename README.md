@@ -5404,9 +5404,9 @@ cause and so, to acknowledge is to empower, and to acknowledge is to direct focu
 specific topic; this is rather obtuse in wording but must be mentioned as a generalization of the expression 
 decided on by sentience given their capabilities, that which includes their knowledge base. The convention 
 of the ordering, knowing before acting, is a dogma in the permutatorial messiness of the world of unknown 
-phenomena coupled with axioms of natural law known only to generate additional phenomena. Cases exist to 
-challenge dogmas in these situations of permutatorial messiness, in other words. Perhaps the only fair 
-statement on the dogma of knowing before acting is that the knowing allows for deciding on the best of 
+source for phenomena coupled with axioms of natural law known only to generate additional phenomena. Cases 
+exist to challenge dogmas in these situations of permutatorial messiness, in other words. Perhaps the only 
+fair statement on the dogma of knowing before acting is that the knowing allows for deciding on the best of 
 the available choices. The knowing surely cannot be a cause that automates change of preference and 
 objective; this is one of those conservative principles for outcomes from valuation systems such as 
 knowledge economies and an undeniable truth for cause of cultural conflict, where knowing the other 
@@ -5414,6 +5414,6 @@ perspective is seldom enough out of the present divisions in resources and loyal
 categorized as "conservative" to allow for the freedom of attempting to know more without fearing the routes 
 to and destinations of knowing. Obviously, if this principle is not thought to be conservative and the 
 defining motivation in one sphere of influence is unhinged to act against any knowing out of fear, the 
-thought and action to satisfy this sphere's equilibrium of rule implies the sphere's perception of knowing 
-is very different, as if the knowing is volatile cause guaranteed for effect of action so that overall, 
-knowledge subordinates action and must be dangerous as cause for inactivity and misactivity. 
+thought and action to satisfy this sphere's equilibrium of rule will demonstrate the sphere to have a 
+differing perception of knowing, as if the knowing is volatile cause guaranteed for effect of action so 
+that overall, knowledge subordinates action and must be dangerous as cause for inactivity and misactivity. 
