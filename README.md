@@ -5439,7 +5439,7 @@ of pathology and medicine as reason for the view. In a parallel perspective, sci
 are also low-level agents, and the social consequence of this is that they are sometimes viewed as idiots. 
 As elaboration on these views, these two occupations are generally much more mindful of the innermost 
 essence of matters and axioms of natural law, and both of these bodies are seldom directly pertinent to 
-the generated phenomena partly responsible by human beings. A certain line of thinking goes, to know the 
+the generated phenomena partly responsible by human beings. A certain line of thinking goes, to free the 
 cause is to change the effect, and these changes could be insulting to the expectations of the high-level 
 dependent on what is underlying as rigid design for the high-level freedom of movement. Of course, there 
 are plenty of examples of scientists and philosophers that were not low-level in the socio-economic 
