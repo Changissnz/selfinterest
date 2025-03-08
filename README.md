@@ -5379,4 +5379,9 @@ deliberately connected in appearance to what is prior.
 
 The circumstances of every instance in time are magnetic to the workings of sentience. There are specially 
 designated words for the statement in many languages and if that is that, there would not be anything else 
-to write about on this truth. 
+to write about on this truth. If the source of phenomenon for the action, this action being a reaction, 
+cannot be identified, it must be unequivocally believed that all sentient actions are, in fact, reactions, 
+so every sentient being is rightfully a reactionary agent of the time, without origin, passive to the 
+circumstances, and arguably so far as being completely under nature as opposed to nurture, for the nurture 
+was spurred by circumstances not engineered or fully selected out of the possibilities and so must be effect 
+from nature. 
