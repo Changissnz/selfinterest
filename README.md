@@ -5438,5 +5438,10 @@ doctors were viewed as low-level agents, the primary fact of their tending more 
 of pathology and medicine as reason for the view. In a parallel perspective, scientists and philosophers 
 are also low-level agents, and the social consequence of this is that they are sometimes viewed as idiots. 
 As elaboration on these views, these two occupations are generally much more mindful of the innermost 
-essence of matters and axioms of natural law, and both of these bodies are not directly pertinent to the 
-generated phenomena partly responsible by human beings. 
+essence of matters and axioms of natural law, and both of these bodies are seldom directly pertinent to 
+the generated phenomena partly responsible by human beings. A certain line of thinking goes, to know the 
+cause is to change the effect, and these changes could be insulting to the expectations of the high-level 
+dependent on what is underlying as rigid design for the high-level freedom of movement. Of course, there 
+are plenty of scientists and philosophers that were not low-level in the social context, and their 
+categorization as being low-level is for the clarity in attributing occupation to hierarchicized field 
+for phenomena. 
