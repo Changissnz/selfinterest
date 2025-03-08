@@ -5425,11 +5425,11 @@ principles, practices, and chance are ingredients in the convolution of sentient
 the purpose of function can attempted objective measurement of sentient intelligence be deemed valid. 
 And there are limits to function in the realm of human activity. For example, a society of engineers and 
 builders is productive, visibly so, and are given more praise than the political, with their demands of 
-whims and ideals, until the administration of the built and engineered products requires control to conserve 
-and maintain; as with many dichotomies, the differences somehow must merge together for the ends of one, 
-but merge too soon and there would be none that can work the role of either halves. In the realm of 
-knowing, a genuine interest in knowing better is morally superior to that of knowing more, in the likeness 
-of present greed and future exploitation. And the part of one knowing better can only be categorized as such 
-when those related to that one share compatible bases for living and acting, a concept that turns political 
-in practice, demonstrated by the quality of the corresponding artificial axioms defined, agreed upon, and 
-prescribed en masse. 
+whims and ideals, until the administration of the built and engineered products requires a roughly 
+equivalent demand for control to conserve and maintain; as with many dichotomies, the differences somehow 
+must merge together for the ends of one, but merge too soon and there would be none that can work the role 
+of either halves. In the realm of knowing, a genuine interest in knowing better is morally superior to that 
+of knowing more, in the likeness of present greed and future exploitation. And the part of one knowing 
+better can only be categorized as such when those related to that one share compatible bases for living and 
+acting, a concept that turns political in practice, demonstrated by the quality of the corresponding 
+artificial axioms defined, agreed upon, and prescribed en masse. 
