@@ -5393,8 +5393,8 @@ that is, goes a certain line of thinking, and it is only the phenomena of forms 
 truth, this source, that can convince any one to believe that they are operating in independent or 
 exclusively grouped cause. This line of thinking leads way to more lines such as the necessity of 
 exclusionary policies. But back to the statement of the belief in sentient action being reaction when source 
-is not known, this is one orthodoxy that places the existence of knowing as the central body that demands 
-relation to. This orthodoxy also reinforces the idea that human beings are rational agents by their 
+is not known, this is one orthodoxy that places the existence of knowing as the central body that is 
+demanded relation to. This orthodoxy also reinforces the idea that human beings are rational agents by their 
 operation of self-interest, and a flawed assumption about this idea is that human beings would therefore 
 reliably make the best decisions, an effect that betrays the actual weaknesses from handling the many 
 complex and competitive systems in existence, these systems categorized by labels such as anti-competitive, 
