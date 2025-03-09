@@ -5478,8 +5478,8 @@ representation is considered as a self-contained entity. As a self-contained ent
 of relations, the reference to what leads to the actual is lacking. The dedicated focus to this supposedly 
 self-contained entity does not help the process of understanding. At the end of every session of study, 
 the fifties-fifties remain. It would serve both the egotist and the supposedly selfless well to laugh at 
-this truth, to think how vain for effort of thought for no seemingly applicable purpose, ephemeral and 
-fleeting so as to preserve the incapabilities and thus makes those that endeavor upon studies to be as 
+this truth, to think how vain for effort of thought to come to no seemingly applicable purpose, ephemeral 
+and fleeting so as to preserve the incapabilities and thus makes those that endeavor upon studies to be as 
 self-contained before as after. In the context of computing, the biggest sub-field that employs deception 
 is digital cryptography. The strength of digital cryptography is, in part, due to the lack of relevance 
 of the energy consumption used to encrypt the original into the outward representation, so long as the 
