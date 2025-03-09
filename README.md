@@ -5504,4 +5504,10 @@ takes place around the time of the execution of the deception schematic, and the
 the deceiver of their deception as disgraceful pivots their psyche for efforts towards self-defeating 
 ends. And this is a truism on the fixation that produces these accumulative effects for ends that may be 
 difficult as destination, in the advent of having to revisit the entirety of the falsities in permutatorial 
-concentrates, with evidence missing and inflictions consequential. 
+concentrates, with evidence missing and inflictions consequential. Offenses of source structured into 
+chained arrangements could be exemplary of deception. Here is one elementary description in mathematical 
+terms. The most immediate point of contact from the source to the one is a "positive" agent. The "positive" 
+agent is known, and the other agents that are indirect contributors in the offense are "negative". The 
+impact from each movement of the offendors could be known to the one; the impact is the summation of 
+the absolute values of the agents. And the composition of chained products is less likely to be adequately 
+known to that same one, because the composition usually remains after every impact. 
