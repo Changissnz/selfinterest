@@ -5461,3 +5461,4 @@ part of the objective of privatization, to allusion.
 
 ## More on philosophies of self-interest #74 
 
+Suppose the effect is what comes is registered first by cognition. 
