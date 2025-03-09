@@ -5505,7 +5505,7 @@ the deceiver of their deception as disgraceful pivots their psyche for efforts t
 ends. And this is a truism on the fixation that produces these accumulative effects for ends that may be 
 difficult as destination, in the advent of having to revisit the entirety of the falsities in permutatorial 
 concentrates, with evidence missing and inflictions consequential. Offenses of source structured into 
-chained arrangements could be exemplary of deception. Here is one elementary description in mathematical 
+chained arrangements could be exemplary of deception. Here is one conceptual design in mathematical 
 terms. The most immediate point of contact from the source to the one is a "positive" agent. The "positive" 
 agent is known, and the other agents that are indirect contributors in the offense are "negative". The 
 impact from each movement of the offendors could be known to the one; the impact is the summation of 
