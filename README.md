@@ -5496,9 +5496,9 @@ interpretation that is supposed to nevertheless miss the mark of the actual's ex
 context of multiple spaces is what the idea of the Great Lie relates to. From this perspective, each space 
 has its own characteristics of form and function. The spaces are connected in some way to one another for 
 there to be a "whole" of one, and there must be elements of deception, misunderstanding and 
-misrepresentation, found within the spaces that depend on other spaces. So the whole is not purely rid of 
-deception and thus must be the embodiment of disgrace, from the moralistic perspective, that heightens the 
-likelihood of unnecessary destruction, since nothing can operate on falsehoods of what exists and what 
+misrepresentation, found within the spaces that depend on other spaces. So the whole is not in full command 
+of deception and thus must be the embodiment of disgrace, from the moralistic perspective, that heightens 
+the likelihood of unnecessary destruction, since nothing can operate on falsehoods of what exists and what 
 functions for long without sufficient existence and functioning in and of itself. Justification of the need 
 for deception takes place around the time of the execution of the deception schematic, and the recognition 
 from the deceiver of their deception as disgraceful pivots their psyche for efforts towards self-defeating 
