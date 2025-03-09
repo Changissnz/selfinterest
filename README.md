@@ -5503,4 +5503,5 @@ long without sufficient existence and functioning in and of itself. Justificatio
 takes place around the time of the execution of the deception schematic, and the recognition from 
 the deceiver of their deception as being disgraceful pivots their psyche for efforts towards self-defeating 
 ends. And this is a truism on the fixation that produces these accumulative effects for ends that may be 
-difficult in revisiting the entirety of the permutatorial concentrates in falsities. 
+difficult as destination, in the advent of having to revisit the entirety of the permutatorial concentrates 
+in falsities, with evidence missing and inflictions consequential. 
