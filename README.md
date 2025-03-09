@@ -5461,4 +5461,7 @@ part of the objective of privatization, to allusion.
 
 ## More on philosophies of self-interest #74 
 
-Suppose the effect is what comes is registered first by cognition. 
+Suppose the effect is what is registered first by cognition. The concepts of replacement and duplication 
+are put to extensive use in some deception methodologies that are or were likewise designed for extensive 
+obfuscation such that the facts, the most pertinent of information attributes, are the kernel that is 
+never touched. 
