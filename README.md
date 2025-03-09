@@ -5467,6 +5467,7 @@ obfuscation such that the facts, the most pertinent of information attributes, m
 to never be touched. The differential is the crucial aspect that is observed to detect the exemplified 
 use of these two concepts. In the paradigm of zero creation and destruction (Newtonian), replacement 
 demands an other that has a satisfiable functioning and duplication corresponds to a demand for the 
-similar of appearance. The demands (transition phase) are supposed to be concealed, and the elements 
-from the external to replace or duplicate compatible elements of the actual for the product that is 
-not the actual, perhaps an alternative narrative or an illegible cacophony. 
+similar of appearance. The demands (transition phase) are supposed to be concealed, and concealment also 
+takes place for deterring accurate identification of elements from the external used to replace or 
+duplicate compatible elements of the actual for the product that is not the actual, perhaps an alternative 
+narrative or an illegible cacophony. 
