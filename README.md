@@ -5481,7 +5481,7 @@ the fifties-fifties remain. It would serve both the egotist and the supposedly s
 this truth, to think how vain for effort of thought to come to no seemingly applicable purpose, ephemeral 
 and fleeting so as to preserve the incapabilities and thus, makes those that endeavor upon studies to be as 
 self-contained after as before. In the context of computing, the biggest sub-field that employs deception 
-is digital cryptography. The strength of digital cryptography is, in part, due to the lack of relevance 
+is digital cryptography. The strength of digital cryptography is due, in part, to the lack of relevance 
 of the energy consumption used to encrypt the original into the outward representation, so long as the 
 encryption process is executed to completion given the energy at disposal; the secret is produced. And 
 this trait is an example of the difficulty of achieving accurate characterization of elements of duplication 
