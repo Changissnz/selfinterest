@@ -5485,12 +5485,12 @@ is digital cryptography. The strength of digital cryptography is due, in part, t
 of the energy consumption used to encrypt the original into the outward representation, so long as the 
 encryption process is executed to completion given the energy at disposal; the secret is produced. And 
 this trait is an example of the difficulty of achieving accurate characterization of elements of duplication 
-and/or replacement in cases of deception that is multi-spatial structurization of its contents and 
-connections to the references, such that navigating these structures imperils finite time and resources. 
-There is a necessary aim of rigidity in the design of representation from deception, although said deception 
-conforms to a level of fluidity amenable to circumvention of detective obstacles, so that the intended 
-deceived derives qualities of expectation solely from the representation, and the representation and 
-the actual are markedly different for the purposes of results from the intended deceived's expected 
+and/or replacement in cases of deception that is multi-spatial structurization of its contents with 
+corresponding connections to external references, such that navigating these structures imperils finite time 
+and resources. There is a necessary aim of rigidity in the design of representation from deception, although 
+said deception conforms to a level of fluidity amenable to circumvention of detective obstacles, so that the 
+intended deceived derives qualities of expectation solely from the representation, and the representation 
+and the actual are markedly different for the purposes of results from the intended deceived's expected 
 reaction past interpretation of the representation. The "rigidity" accomodates the looseness of 
 interpretation that is supposed to nevertheless miss the mark of the actual's expression. The "whole" 
 context of multiple spaces is what the idea of the Great Lie relates to. From this perspective, each space 
