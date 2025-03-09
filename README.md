@@ -5491,17 +5491,17 @@ There is a necessary aim of rigidity in the design of representation from decept
 conforms to a level of fluidity amenable to circumvention of detective obstacles, so that the intended 
 deceived derives qualities of expectation solely from the representation, and the representation and 
 the actual are markedly different for the purposes of results from the intended deceived's expected 
-reaction past interpretation of the representation. The "rigidity" includes the looseness of interpretation 
-that is supposed to nevertheless miss the mark of the actual's expression. The "whole" context of 
-multiple space is what the idea of the Great Lie relates to. From this perspective, each space has its 
-own characteristics of form and function. The spaces are connected in some way to one another for there 
-to be a "whole" of one, and there must be elements of deception, misunderstanding and misrepresentation, 
-found within the spaces that depend on other spaces. So the whole is not purely rid of deception and thus 
-must be the embodiment of disgrace, from the moralistic perspective, that heightens the likelihood of 
-unnecessary destruction, since nothing can operate on falsehoods of what exists and what functions for 
-long without sufficient existence and functioning in and of itself. Justification of the need for deception 
-takes place around the time of the execution of the deception schematic, and the recognition from 
-the deceiver of their deception as disgraceful pivots their psyche for efforts towards self-defeating 
+reaction past interpretation of the representation. The "rigidity" accomodates the looseness of 
+interpretation that is supposed to nevertheless miss the mark of the actual's expression. The "whole" 
+context of multiple space is what the idea of the Great Lie relates to. From this perspective, each space 
+has its own characteristics of form and function. The spaces are connected in some way to one another for 
+there to be a "whole" of one, and there must be elements of deception, misunderstanding and 
+misrepresentation, found within the spaces that depend on other spaces. So the whole is not purely rid of 
+deception and thus must be the embodiment of disgrace, from the moralistic perspective, that heightens the 
+likelihood of unnecessary destruction, since nothing can operate on falsehoods of what exists and what 
+functions for long without sufficient existence and functioning in and of itself. Justification of the need 
+for deception takes place around the time of the execution of the deception schematic, and the recognition 
+from the deceiver of their deception as disgraceful pivots their psyche for efforts towards self-defeating 
 ends. And this is a truism on the fixation that produces these accumulative effects for ends that may be 
 difficult as destination, in the advent of having to revisit the entirety of the falsities in permutatorial 
 concentrates, with evidence missing and inflictions consequential. Offenses of source structured into 
