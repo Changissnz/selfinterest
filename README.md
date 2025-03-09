@@ -5479,8 +5479,8 @@ of relations, the reference to what leads to the actual is lacking. The dedicate
 self-contained entity does not help the process of understanding. At the end of every session of study, 
 the fifties-fifties remain. It would serve both the egotist and the supposedly selfless well to laugh at 
 this truth, to think how vain for effort of thought to come to no seemingly applicable purpose, ephemeral 
-and fleeting so as to preserve the incapabilities and thus makes those that endeavor upon studies to be as 
-self-contained before as after. In the context of computing, the biggest sub-field that employs deception 
+and fleeting so as to preserve the incapabilities and thus, makes those that endeavor upon studies to be as 
+self-contained after as before. In the context of computing, the biggest sub-field that employs deception 
 is digital cryptography. The strength of digital cryptography is, in part, due to the lack of relevance 
 of the energy consumption used to encrypt the original into the outward representation, so long as the 
 encryption process is executed to completion given the energy at disposal; the secret is produced. And 
@@ -5510,4 +5510,6 @@ terms. The most immediate point of contact from the source to the one is a "posi
 agent is known, and the other agents that are indirect contributors in the offense are "negative". The 
 impact from each movement of the offendors could be known to the one; the impact is the summation of 
 the absolute values of the agents. And the offendor composition of chained products is less likely to be 
-adequately known to that same one, because the composition usually remains after every impact. 
+adequately known to that same one, because the composition usually remains after every impact. Objectives 
+from designs such as these are to pre-occupy the recipients with dealing with the effects instead of 
+solving the cause. 
