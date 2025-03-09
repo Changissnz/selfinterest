@@ -5483,13 +5483,13 @@ fleeting so as to preserve the incapabilities and thus makes those that endeavor
 self-contained before as after. In the context of computing, the biggest sub-field that employs deception 
 is digital cryptography. The strength of digital cryptography is, in part, due to the lack of relevance 
 of the energy consumption used to encrypt the original into the outward representation, so long as the 
-encryption process is executed to completion given the energy at disposal. And this trait is an example 
-of the difficulty of achieving accurate characterization of elements of duplication and/or replacement 
-in cases of deception that is multi-spatial structurization of its contents and connections to 
-the references, such that navigating these structures imperils finite time and resources. There is a 
-necessary aim of rigidity in the design of representation from deception, although said deception 
+encryption process is executed to completion given the energy at disposal; the secret is produced. And 
+this trait is an example of the difficulty of achieving accurate characterization of elements of duplication 
+and/or replacement in cases of deception that is multi-spatial structurization of its contents and 
+connections to the references, such that navigating these structures imperils finite time and resources. 
+There is a necessary aim of rigidity in the design of representation from deception, although said deception 
 conforms to a level of fluidity amenable to circumvention of detective obstacles, so that the intended 
 deceived derives qualities of expectation solely from the representation, and the representation and 
 the actual are markedly different for the purposes of results from the intended deceived's expected 
-interpretation of the representation. The "rigidity" includes the looseness of interpretation that is 
-supposed to nevertheless miss the mark of the actual's expression. 
+reaction past interpretation of the representation. The "rigidity" includes the looseness of interpretation 
+that is supposed to nevertheless miss the mark of the actual's expression. 
