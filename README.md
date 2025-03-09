@@ -5512,4 +5512,4 @@ impact from each movement of the offendors could be known to the one; the impact
 the absolute values of the agents. And the offendor composition of chained products is less likely to be 
 adequately known to that same one, because the composition usually remains after every impact. Objectives 
 from designs such as these are to pre-occupy the recipients with dealing with the effects instead of 
-solving the cause. 
+resolving the cause. 
