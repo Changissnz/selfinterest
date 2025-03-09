@@ -5509,5 +5509,5 @@ chained arrangements could be exemplary of deception. Here is one conceptual des
 terms. The most immediate point of contact from the source to the one is a "positive" agent. The "positive" 
 agent is known, and the other agents that are indirect contributors in the offense are "negative". The 
 impact from each movement of the offendors could be known to the one; the impact is the summation of 
-the absolute values of the agents. And the composition of chained products is less likely to be adequately 
-known to that same one, because the composition usually remains after every impact. 
+the absolute values of the agents. And the offendor composition of chained products is less likely to be 
+adequately known to that same one, because the composition usually remains after every impact. 
