@@ -5498,4 +5498,4 @@ own characteristics of form and function. The spaces are connected in some way t
 to be a "whole" of one, and there must be elements of deception, misunderstanding and misrepresentation, 
 found within the spaces that depend on other spaces. So the whole is not purely rid of deception and thus, 
 must be the embodiment of disgrace, from the moralistic perspective, that heightens the likelihood of 
-unnecessary destruction. 
+unnecessary destruction for nothing can operate on falsehoods of what exists and what functions with impunity for long. 
