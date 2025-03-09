@@ -5477,4 +5477,7 @@ a guessing game of knowing truth from falsity with regards to the elements of th
 representation is considered as a self-contained entity. As a self-contained entity observed for analysis 
 of relations, the reference to what leads to the actual is lacking. The dedicated focus to this supposedly 
 self-contained entity does not help the process of understanding. At the end of every session of study, 
-the fifties-fifties remain. 
+the fifties-fifties remain. It would serve both the egotist and the supposedly selfless well to laugh at 
+this truth, to think how vain for effort of thought for no seemingly applicable purpose, ephemeral and 
+fleeting so as to preserve the incapabilities and thus make those that endeavor upon studies to be as 
+self-contained before as after. 
