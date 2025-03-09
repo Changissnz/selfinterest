@@ -5492,4 +5492,8 @@ conforms to a level of fluidity amenable to circumvention of detective obstacles
 deceived derives qualities of expectation solely from the representation, and the representation and 
 the actual are markedly different for the purposes of results from the intended deceived's expected 
 reaction past interpretation of the representation. The "rigidity" includes the looseness of interpretation 
-that is supposed to nevertheless miss the mark of the actual's expression. 
+that is supposed to nevertheless miss the mark of the actual's expression. The "whole" context of 
+multiple space is what the idea of the Great Lie relates to. From this perspective, each space has its 
+own characteristics of form and function. The spaces are connected in some way to one another for there 
+to be a "whole" of one, and there must be elements of deception, misunderstanding and misrepresentation, 
+found within the spaces that depend on other spaces. 
