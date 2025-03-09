@@ -5463,5 +5463,8 @@ part of the objective of privatization, to allusion.
 
 Suppose the effect is what is registered first by cognition. The concepts of replacement and duplication 
 are put to extensive use in some deception methodologies that are or were likewise designed for extensive 
-obfuscation such that the facts, the most pertinent of information attributes, are the kernel that is 
-never touched. 
+obfuscation such that the facts, the most pertinent of information attributes, make the kernel that is 
+to never be touched. The differential is the crucial aspect that is observed to detect the exemplified 
+use of these two concepts. In the paradigm of zero creation and destruction (Newtonian), replacement 
+demands an other that has a satisfiable functioning and duplication corresponds to a demand for the 
+similar of appearance. 
