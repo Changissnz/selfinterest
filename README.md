@@ -5471,7 +5471,7 @@ similar in appearance. The demands (transition phase) are supposed to be conceal
 takes place to deter accurate identification of elements from the external used to replace or duplicate 
 compatible elements of the actual for the product (the effect) that is not the actual, perhaps 
 an alternative narrative or an illegible cacophony. If one were to attempt to know the underlying factuality 
-behind a deception that uses replacement and duplication, and focused solely on the representation of 
+behind a deception produced from replacement and duplication, and focused solely on the representation of 
 that deception, the representation being a body of sorts delineated from the external, it would really be 
 a guessing game of knowing truth from falsity with regards to the elements of that representation. The 
 representation is considered as a self-contained entity. As a self-contained entity observed for analysis 
