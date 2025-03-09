@@ -5479,5 +5479,11 @@ of relations, the reference to what leads to the actual is lacking. The dedicate
 self-contained entity does not help the process of understanding. At the end of every session of study, 
 the fifties-fifties remain. It would serve both the egotist and the supposedly selfless well to laugh at 
 this truth, to think how vain for effort of thought for no seemingly applicable purpose, ephemeral and 
-fleeting so as to preserve the incapabilities and thus make those that endeavor upon studies to be as 
-self-contained before as after. 
+fleeting so as to preserve the incapabilities and thus makes those that endeavor upon studies to be as 
+self-contained before as after. In the context of computing, the biggest sub-field that employs deception 
+is digital cryptography. The strength of digital cryptography is, in part, due to the lack of relevance 
+of the energy consumption used to encrypt the original into the outward representation, so long as the 
+encryption process is executed to completion given the energy at disposal. And this trait is an example 
+of the difficulty of achieving accurate characterization of elements of duplication and/or replacement 
+in cases of deception that is multi-spatial structurization of its contents and connections to 
+the references, such that navigating these structures imperils finite time and resources. 
