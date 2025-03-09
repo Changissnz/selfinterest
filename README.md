@@ -5486,4 +5486,6 @@ of the energy consumption used to encrypt the original into the outward represen
 encryption process is executed to completion given the energy at disposal. And this trait is an example 
 of the difficulty of achieving accurate characterization of elements of duplication and/or replacement 
 in cases of deception that is multi-spatial structurization of its contents and connections to 
-the references, such that navigating these structures imperils finite time and resources. 
+the references, such that navigating these structures imperils finite time and resources. There is a 
+necessary aim of rigidity in the design of representation from deception although said deception conforms 
+to a level of fluidity amenable to circumvention of detective obstacles. 
