@@ -5484,8 +5484,8 @@ self-contained after as before. In the context of computing, the biggest sub-fie
 is digital cryptography. The strength of digital cryptography is due, in part, to the lack of relevance 
 of the energy consumption used to encrypt the original into the outward representation, so long as the 
 encryption process is executed to completion given the energy at disposal; the secret is produced. And 
-this trait is an example of the difficulty of achieving accurate characterization of elements of duplication 
-and/or replacement in cases of deception that is multi-spatial structurization of its contents with 
+this trait is an example of the difficulty in achieving accurate characterization of elements of duplication 
+and/or replacement in these cases of deception: multi-spatial structurization of its contents with 
 corresponding connections to external references, such that navigating these structures imperils finite time 
 and resources. There is a necessary aim of rigidity in the design of representation from deception, although 
 said deception conforms to a level of fluidity amenable to circumvention of detective obstacles, so that the 
