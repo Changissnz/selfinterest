@@ -5533,8 +5533,15 @@ trifles and pathological tendencies that operate on good principle, partially co
 axioms. This statement is rather presumptuous but must be put forth as an unequivocal acknowledgment of the 
 plasticity of decision-making by human nature and the structured industrial complex designed for human labor 
 and rule. To elaborate, plasticity of sentient decision-making is a factual attribute that corresponds to 
-intelligence dependent on knowing instead of merely existing in choice. The present is what matters to the 
-order of function. The present is the only controllable category of the temporal span. For those 
-uncomfortable with interpretations of the past that challenge present affairs and prohibitive of wants 
-for the future, given the resources made possible if only the will for self-interest is adamant enough of 
-a chaser, attention is demanded a fixation for the present. 
+intelligence, dependent on knowing instead of merely existing in choice. One that claims their 
+decision-making processes do not have a non-null plasticity must be confident in their statement, first 
+and foremost, and for their claim to have any perceptible persuasion for proof via correspondence to their 
+actions, they must also not be under the influence of factors positioned to force their hand. It is a fact 
+that many human beings have a stronger sense of conviction than others. However, as with many matters 
+under the lens of empirical judgment, the personality trait of conviction, in exemplification, is praised 
+partially because of its likeness to loyalty but then criticized for the stubbornness and ignorance that 
+particular fatalists, doomed to fail, associate with it. The present is what matters to the order of 
+function. The present is the only controllable category of the temporal span. For those uncomfortable with 
+interpretations of the past that challenge present affairs and prohibitive of wants for the future, given 
+the resources made possible if only the will for self-interest is adamant enough of a chaser, attention is 
+demanded a fixation for the present. 
