@@ -5544,4 +5544,4 @@ particular fatalists, doomed to fail, associate with it. The present is what mat
 function. The present is the only category directly controllable in the temporal span. For those 
 uncomfortable with interpretations of the past that challenge present affairs and prohibitive of wants for 
 the future, given the resources made possible if only the will for self-interest is adamant enough of a 
-chaser, attention is demanded a fixation for the present. 
+chaser, attention is demanded to fixate on the present. 
