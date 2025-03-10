@@ -5541,7 +5541,7 @@ that many human beings have a stronger sense of conviction than others. However,
 under the lens of empirical judgment, the personality trait of conviction, in exemplification, is praised 
 partially because of its likeness to loyalty but then criticized for the stubbornness and ignorance that 
 particular fatalists, doomed to fail, associate with it. The present is what matters to the order of 
-function. The present is the only controllable category of the temporal span. For those uncomfortable with 
-interpretations of the past that challenge present affairs and prohibitive of wants for the future, given 
-the resources made possible if only the will for self-interest is adamant enough of a chaser, attention is 
-demanded a fixation for the present. 
+function. The present is the only category directly controllable in the temporal span. For those 
+uncomfortable with interpretations of the past that challenge present affairs and prohibitive of wants for 
+the future, given the resources made possible if only the will for self-interest is adamant enough of a 
+chaser, attention is demanded a fixation for the present. 
