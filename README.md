@@ -5537,11 +5537,15 @@ intelligence, dependent on knowing instead of merely existing in choice. One tha
 decision-making processes do not have a non-null plasticity must be confident in their statement, first 
 and foremost, and for their claim to have any perceptible persuasion for proof via correspondence to their 
 actions, they must also not be under the influence of factors positioned to force their hand. It is a fact 
-that many human beings have a stronger sense of conviction than others. However, as with many matters 
-under the lens of empirical judgment, the personality trait of conviction, in exemplification, is praised 
-partially because of its likeness to loyalty but then criticized for the stubbornness and ignorance that 
-particular fatalists, doomed to fail, associate with it. The present is what matters to the order of 
-function. The present is the only category directly controllable in the temporal span. For those 
-uncomfortable with interpretations of the past that challenge present affairs and prohibitive of wants for 
-the future, given the resources made possible if only the will for self-interest is adamant enough of a 
-chaser, attention is demanded to fixate on the present. 
+of relativity that many human beings have a stronger sense of conviction than others. However, as with many 
+matters under the lens of empirical judgment, the personality trait of conviction, in exemplification, is 
+praised partially because of its likeness to loyalty but then criticized for the stubbornness and ignorance 
+that particular fatalists, doomed to fail, associate with it. Performance-based judgment is seldom entirely 
+comprehensive yet conclusive for societal and industrial arrangements, so there is a definite surreal 
+quality attached to the recognition of facts of relativity that answer questions on metaphysical bodies 
+such as loyalty and conviction; patriotism must be questionable because the patriot must definitively 
+express a kind of fealty to their nation-state. The present is what matters to the order of function. The 
+present is the only category directly controllable in the temporal span. For those uncomfortable with 
+interpretations of the past that challenge present affairs and prohibitive of wants for the future, given 
+the resources made possible if only the will for self-interest is adamant enough of a chaser, attention is 
+demanded to fixate on the present. 
