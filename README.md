@@ -5474,7 +5474,7 @@ an alternative narrative or an illegible cacophony. If one were to attempt to kn
 behind a deception produced from replacement and duplication, and focused solely on the representation of 
 that deception, the representation being a body of sorts delineated from the external, it would really be 
 a guessing game of knowing truth from falsity with regards to the elements of that representation. The 
-representation is considered as a self-contained entity. As a self-contained entity observed for analysis 
+representation is considered a self-contained entity. As a self-contained entity observed for analysis 
 of relations, the reference to what leads to the actual is lacking. The dedicated focus to this supposedly 
 self-contained entity does not help the process of understanding. At the end of every session of study, 
 the fifties-fifties remain. It would serve both the egotist and the supposedly selfless well to laugh at 
