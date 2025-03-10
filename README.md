@@ -5517,15 +5517,24 @@ recipients with dealing with the effects instead of resolving the cause.
 ## More on philosophies of self-interest #75 
 
 The principle of individuation places understanding into dubious acceptance, and this is not necessarily 
-because of uncertainties regarding the future. Specification of the actual from principles intent on 
-capturing the universal characteristic of some question/s can be defiant, even if the actual is removed 
-from sentient will capable of resistance and antagonism. What is "understanding" of a matter that cannot 
-be understood in adequacy but "acceptance" of the matter's from-oneself attribute? The generalities from 
-the wise ones, it is thought by those that do not believe in willful revisitation to the closest there is 
-to the innermost essence of matters, are easy to replicate into common expression. In the practical sense, 
-the common expressions are applied in the appropriate settings, and to be in the appropriate settings for 
-these applications demonstrates the principle of individuation. Therefore, no wise sentient one can really 
-convert their wisdom into the specificities of the whole split into infinitesimal space, and are believed 
-by the political of elite and base alike to may have a greater likelihood of outliving their usefulness to 
-the world of petty trifles and pathological tendencies that operate on good principle, partially 
-consisting of artificial axioms. 
+because of uncertainties regarding the future, since present matters are unique by infinitessimal 
+partitioning although there remains the question of the present reality without the cognitive will to 
+partition.  Specification of the actual from principles intent on capturing the universal characteristic 
+of some question/s can be defiant, even if the actual is removed from sentient will capable of resistance 
+and antagonism. What is "understanding" of a matter that cannot be understood in adequacy but "acceptance" 
+of the matter's from-oneself attribute? The generalities from the wise ones, it is thought by those that do 
+not believe in willful revisitation to the closest there is to the innermost essence of matters, are easy to 
+replicate into common expression. In the practical sense, the common expressions are applied in the 
+appropriate settings, and to be in the appropriate settings for these applications must be by circumstantial 
+uniqueness, from the principle of individuation. Therefore, no wise sentient one can really convert their 
+wisdom into the specificities of the whole split into infinitesimal space, and are believed by the political 
+of elite and base alike to may have a greater likelihood of outliving their usefulness to the world of petty 
+trifles and pathological tendencies that operate on good principle, partially consisting of artificial 
+axioms. This statement is rather presumptuous but must be put forth as an unequivocal acknowledgment of the 
+plasticity of decision-making by human nature and the structured industrial complex designed for human labor 
+and rule. To elaborate, plasticity of sentient decision-making is a factual attribute that corresponds to 
+intelligence dependent on knowing instead of merely existing in choice. The present is what matters to the 
+order of function. The present is the only controllable category of the temporal span. For those 
+uncomfortable with interpretations of the past that challenge present affairs and prohibitive of wants 
+for the future, given the resources made possible if only the will for self-interest is adamant enough of 
+a chaser, attention is demanded a fixation for the present. 
