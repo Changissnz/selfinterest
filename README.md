@@ -5519,4 +5519,10 @@ recipients with dealing with the effects instead of resolving the cause.
 The principle of individuation places understanding into dubious acceptance, and this is not necessarily 
 because of uncertainties regarding the future. Specification of the actual from principles intent on 
 capturing the universal characteristic of some question/s can be defiant, even if the actual is removed 
-from sentient will capable of resistance and antagonism. 
+from sentient will capable of resistance and antagonism. What is "understanding" of a matter that cannot 
+be understood in adequacy but "acceptance" of the matter's from-oneself attribute? The generalities from 
+the wise ones, it is thought by those that do not believe in willful revisitation to the closest there is 
+to the innermost essence of matters, are easy to replicate into common expression. In the practical sense, 
+the common expressions are applied in the appropriate settings, and to be in the appropriate settings for 
+these applications demonstrates the principle of individuation. Therefore, no wise sentient one can really 
+convert their wisdom into the specificities of the whole split into infinitesimal space. 
