@@ -5513,3 +5513,10 @@ the absolute values of the agents. And the offendor composition of chained produ
 adequately known to that same one, because the composition usually remains after every impact from an 
 arbitrary part out of all the offendors. Objectives from designs such as these are to pre-occupy the 
 recipients with dealing with the effects instead of resolving the cause. 
+
+## More on philosophies of self-interest #75 
+
+The principle of individuation places understanding into dubious acceptance, and this is not necessarily 
+because of uncertainties regarding the future. Specification of the actual from principles intent on 
+capturing the universal characteristic of some question/s can be defiant, even if the actual is removed 
+from sentient will capable of resistance and antagonism. 
