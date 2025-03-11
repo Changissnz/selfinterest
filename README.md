@@ -5562,19 +5562,19 @@ the state in terms of performance, because both institutions utilize definitions
 themselves in order to cohesively persist. Power games such as petty squabbles over property are 
 frequent occasions in families of wealth above the median, phenomena rich for dramatization showcasing the 
 intrigue in the reactive intersection of family and wealth. A state that allows for freedom of the 
-individual seldom takes the additional step of sponsoring any arbitrary individual without also observing 
-their familial background as well as achievements in wealth and other areas. The theme of the state 
-deforming individual volition, so that the present privileged stay privileged and intellect becomes crippled 
-lest it is fixed for the utility of the higher-ranked, is a frequent counter-example against the state by a 
-certain kind of republican type that prioritizes the local zone of their immediate control and their 
-self-identification. Imagine the countless lives that knew the world is a world bigger than their locality, 
-yet they were as tied to the land as the grass that grows on it, and perhaps subjected to the tyranny of 
-local aristocrats and the stupidity of the base alike. Also imagine the state that can provide a social 
-system without officially supporting the definitions borne from blood and inheritance, in turn, is one that 
-cannot provide enough structure for the individual to thrive as such without the individual having to take 
-additional steps to excel as a "political animal" or a "social creature" in these environments of loose 
-definition, albeit of representation still as officious as local tradition. The existence of qualities of 
-wealth and rank being ever-present, yet not as structured in definitional expression for objective 
+individual seldom takes the additional step of excessively sponsoring any arbitrary individual without also 
+observing their familial background as well as achievements in wealth and other areas. The theme of the 
+state deforming individual volition, so that the present privileged stay privileged and intellect becomes 
+crippled lest it is fixed for the utility of the higher-ranked, is a frequent counter-example against the 
+state by a certain kind of republican type that prioritizes the local zone of their immediate control and 
+their self-identification. Imagine the countless lives that knew the world is a world bigger than their 
+locality, yet they were as tied to the land as the grass that grows on it, and perhaps subjected to the 
+tyranny of local aristocrats and the stupidity of the base alike. Also imagine the state that can provide a 
+social system without officially supporting the definitions borne from blood and inheritance, in turn, is 
+one that cannot provide enough structure for the individual to thrive as such without the individual having 
+to take additional steps to excel as a "political animal" or a "social creature" in these environments of 
+loose definition, albeit of representation still as officious as local tradition. The existence of qualities 
+of wealth and rank being ever-present, yet not as structured in definitional expression for objective 
 recognition, is truthfully very defeatist to the enactment of egalitarianism. The dynamism in capability 
 from this obscurantist mannerism is a strength for a powerful city-state and also the point of culprit where 
 many willful wrongs, by this same city-state in decline, manifest from as compensation to continue the 
