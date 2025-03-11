@@ -5541,11 +5541,14 @@ of relativity that many human beings have a stronger sense of conviction than ot
 matters under the lens of empirical judgment, the personality trait of conviction, in exemplification, is 
 praised partially because of its likeness to loyalty but then criticized for the stubbornness and ignorance 
 that particular fatalists, doomed to fail, associate with it. Performance-based judgment is seldom entirely 
-comprehensive yet conclusive for societal and industrial arrangements, so there is a definite surreal 
-quality attached to the recognition of facts of relativity that answer questions on metaphysical bodies 
-such as loyalty and conviction; patriotism must be questionable because the patriot must definitively 
-express a kind of fealty to their nation-state. The present is what matters to the order of function. The 
-present is the only category directly controllable in the temporal span. For those uncomfortable with 
-interpretations of the past that challenge present affairs and prohibitive of wants for the future, given 
-the resources made possible if only the will for self-interest is adamant enough of a chaser, attention is 
-demanded to fixate on the present. 
+comprehensive yet declared conclusive for societal and industrial arrangements, so there is a definite 
+surreal quality attached to the recognition of facts of relativity that answer questions on metaphysical 
+bodies such as loyalty and conviction. As an aside, patriotism must be questionable because the patriot must 
+definitively express a kind of fealty to their nation-state. The present is what matters to the order of 
+function. The present is the only category directly controllable in the temporal span. For those 
+uncomfortable with interpretations of the past that challenge present affairs and prohibitive of wants 
+for the future, given the resources made possible if only the will for self-interest is adamant enough of a 
+chaser, attention is demanded to fixate on the present. Sentient beings have a natural tendency to order 
+out of the artificial axioms they use to reason, and only when the order falls short of satisfying 
+self-interest in evident and incontrovertible ways, such as famine, for there to be official sorts of 
+acknowledgment. 
