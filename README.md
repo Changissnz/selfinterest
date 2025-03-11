@@ -5616,5 +5616,5 @@ the "whole" is what is before the eyes and what the eyes see and the brain think
 for the individual? Only through the course of events can this thinking be challenged by the phenomena 
 experienced that stipulate the controlling vitality of the ever-present underlying definitions; in the 
 social context, the resolution term is "cultural sensitivity". There is already a "whole", yes? Why define 
-in the piecewise generalities, imprecise all the same, except to resolve a "whole" hopefully into a better 
-"whole" from making for some will? 
+in piecewise generalities, imprecise all the same, except to resolve a "whole" hopefully into a better 
+"whole" through making from some will? 
