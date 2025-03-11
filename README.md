@@ -5590,8 +5590,13 @@ A minority group is always associated with the specific minority identity, and o
 into a regional territory as a result of state failures and commandment alike. Minority individuals that 
 are able to excel in some meritocratic system so that they can go on their own way may still return to 
 this base identity of minority, due to lack of processes that aid in their independent autonomy. This is 
-precisely why ethnicity is an unresolved question for many individuals of nations both homogenous or 
-heterogenous in ethnic makeup. What is the principle guaranteed to preserve any one minority identity 
+precisely why ethnicity is an unresolved question for many individuals of nations either homogenous or 
+heterogenous in ethnic makeup. What is the guaranteed principle that preserves any one minority identity 
 in a land, after the minority group's collective grievances of political and financial infliction are 
 no longer prevalent in the ideology that bounds them into the same self-recognized group? Occupation 
-and assimilation are two avenues where members of the minority identity can dissipate into. 
+and assimilation are two avenues where members of the minority identity can dissipate into. And on this 
+question, a famous saying is "misery loves company"; the saying speaks loudly to the insufferable nature 
+of human beings that feel forced to engage in collective bargaining as resolution for shared grievances, 
+and then when interests become more privatized and individuated in the form of companies and such, the 
+standard for the collective naturally has to centralize around other matters but supposedly for the same 
+identity/ies. 
