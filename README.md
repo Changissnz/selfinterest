@@ -5570,17 +5570,17 @@ prioritizes the local zone of their immediate control and their self-identificat
 lives that knew the world is a world bigger than their locality, yet they were as tied to the land as the 
 grass that grows on it, and perhaps subjected to the tyranny of local aristocrats and the stupidity of the 
 base alike. Also imagine the state that can provide a social system without officially supporting the 
-definitions borne from blood and inheritance, in turn, cannot provide enough structure for the individual to 
-thrive as such without the individual having to take additional steps to excel as a "political animal" or a 
-"social creature" in these environments of loose definition, albeit of representation still as officious as 
-local traditionalism. And this is truthfully very defeatist to the enactment of egalitarianism since 
-wealth and rank are ever-present yet not as structured in definitional expression for objective recognition.
-The dynamism in capability from this obscurantist mannerism is a strength for a powerful city-state and 
-also the point of culprit where many willful wrongs, by this same city-state in decline, manifest from as 
-compensation to continue the structure while maintaining the freedom of expression not always from 
-structure; this statement is somewhat convincing in characterizing the city-state as a fatalist construct. 
-These points made go to support the idea that any patriotism from individual, family, or sub-collective 
-alike must be constantly questionable. The must-be statement is rather silly because it is obviously 
-possible in practice: a peasant can challenge the decree of a hierarch and a court defendant can fling 
-feces at judge or jurors around them, but the self-interest in these situations is very much subject to the 
-consequence of prescription from officiated structure. 
+definitions borne from blood and inheritance, in turn, is one that cannot provide enough structure for the 
+individual to thrive as such without the individual having to take additional steps to excel as a "political 
+animal" or a "social creature" in these environments of loose definition, albeit of representation still as 
+officious as local traditionalism. And this is truthfully very defeatist to the enactment of egalitarianism 
+since wealth and rank are ever-present yet not as structured in definitional expression for objective 
+recognition. The dynamism in capability from this obscurantist mannerism is a strength for a powerful 
+city-state and also the point of culprit where many willful wrongs, by this same city-state in decline, 
+manifest from as compensation to continue the structure while maintaining the freedom of expression not 
+always from structure; this statement is somewhat convincing in characterizing the city-state as a fatalist 
+construct. These points made go to support the idea that any patriotism from individual, family, or 
+sub-collective alike must be constantly questionable. The must-be statement is rather silly because it is 
+obviously possible in practice: a peasant can challenge the decree of a hierarch and a court defendant can 
+fling feces at judge or jurors around them, but the self-interest in these situations is very much subject 
+to the consequence of prescription from officiated structure. 
