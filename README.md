@@ -5667,6 +5667,7 @@ higher education, I was introduced to the Mauryan Subculture of Higher Existence
 was splendid because it demonstrates the kind of initiatives that the Thracian haven offered me. 
 I still remember that one Chinese woman at my alma mater. Oh how wonderful she was in sight and 
 how my feelings reciprocated through my heart but because of my views, according to her, I was 
-unfit. I accepted her rejection with dignity, and dedicated my years since then learning the 
-most powerful form of Mandarin Chinese: the 32nd version of the Northern Supernova Dragon's 
-Tiger Fist. 
+unfit for her affection. I accepted her rejection with dignity, and dedicated my years since 
+then learning the most powerful form of Mandarin Chinese: the 32nd version of the Northern Supernova 
+Dragon's Tiger Fist. I feel the spiritual change within me, without me from this dedication. 
+More confident. More steadfast. Cooler, taller, and more cordial-spoken. 
