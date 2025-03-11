@@ -5518,8 +5518,8 @@ recipients with dealing with the effects instead of resolving the cause.
 
 The principle of individuation places understanding into dubious acceptance, and this is not necessarily 
 because of uncertainties regarding the future, since present matters are unique by infinitessimal 
-partitioning although there remains the question of the present reality without the cognitive will to 
-partition.  Specification of the actual from principles intent on capturing the universal characteristic 
+partitioning, although there remains the question of the present reality without the cognitive will to 
+partition. Specification of the actual from principles intent on capturing the universal characteristic 
 of some question/s can be defiant, even if the actual is removed from sentient will capable of resistance 
 and antagonism. What is "understanding" of a matter that cannot be understood in adequacy but "acceptance" 
 of the matter's from-oneself attribute? The generalities from the wise ones, it is thought by those that do 
@@ -5553,23 +5553,23 @@ out of the artificial axioms they use to reason, and only when the order falls s
 self-interest in evident and incontrovertible ways, such as famine, are there official sorts of 
 acknowledgment. It is a fact that the institution of family falls very short in many ways. The institution 
 of family is the miniaturized version of a republican system; typically, the parents are the de facto 
-representatives of family. It is rare for family to be able to produce and provide in adequacy, and it 
-is impossible for them to produce and provide in full. Only a kind of prejudice emerges as a result past the 
-physical livelihood, and the prejudice in practice almost always has a tribal representation to it. When the 
-individual is failed by both the family and the state, there is problem for them there and problem that 
-follows them forever. It is really a toss-up between the family and the state in terms of performance 
-because both institutions utilize definitions predominantly defined by themselves, in order to cohesively 
-persist. Power games such as the petty squabbles over property are frequent occasions in families of wealth 
-above the median, phenomena rich for dramatization showcasing the intrigue in the reactive intersection of 
-family and wealth. A state that allows for freedom of the individual seldom takes the additional step of 
-sponsoring any arbitrary individual without also observing their familial background as well as achievements 
-in wealth and other areas. The theme of the state deforming individual volition, so that the present 
-privileged stay privileged and intellect becomes crippled lest it is fixed for the utility of the 
-higher-ranked, is a frequent counter-example against the state by a certain kind of republican type that 
-prioritizes the local zone of their immediate control and their self-identification. Imagine the countless 
-lives that knew the world is a world bigger than their locality, yet they were as tied to the land as the 
-grass that grows on it, and perhaps subjected to the tyranny of local aristocrats and the stupidity of the 
-base alike. Also imagine the state that can provide a social system without officially supporting the 
+representatives of family. It is rare for family to be independently able to produce and provide in 
+adequacy, and it is impossible for them to produce and provide in full. Only a kind of prejudice emerges as 
+a result past the physical livelihood, and the prejudice in practice almost always has a tribal 
+representation to it. When the individual is failed by both the family and the state, there is problem for 
+them there and problem that follows them forever. It is really a toss-up between the family and the state in 
+terms of performance because both institutions utilize definitions predominantly defined by themselves, in 
+order to cohesively persist. Power games such as the petty squabbles over property are frequent occasions in 
+families of wealth above the median, phenomena rich for dramatization showcasing the intrigue in the 
+reactive intersection of family and wealth. A state that allows for freedom of the individual seldom takes 
+the additional step of sponsoring any arbitrary individual without also observing their familial background 
+as well as achievements in wealth and other areas. The theme of the state deforming individual volition, so 
+that the present privileged stay privileged and intellect becomes crippled lest it is fixed for the utility 
+of the higher-ranked, is a frequent counter-example against the state by a certain kind of republican type 
+that prioritizes the local zone of their immediate control and their self-identification. Imagine the 
+countless lives that knew the world is a world bigger than their locality, yet they were as tied to the land 
+as the grass that grows on it, and perhaps subjected to the tyranny of local aristocrats and the stupidity 
+of the base alike. Also imagine the state that can provide a social system without officially supporting the 
 definitions borne from blood and inheritance, in turn, is one that cannot provide enough structure for the 
 individual to thrive as such without the individual having to take additional steps to excel as a "political 
 animal" or a "social creature" in these environments of loose definition, albeit of representation still as 
@@ -5578,8 +5578,8 @@ since wealth and rank are ever-present yet not as structured in definitional exp
 recognition. The dynamism in capability from this obscurantist mannerism is a strength for a powerful 
 city-state and also the point of culprit where many willful wrongs, by this same city-state in decline, 
 manifest from as compensation to continue the structure while maintaining the freedom of expression not 
-always from structure; this statement is somewhat convincing in characterizing the city-state as a fatalist 
-construct. These points made go to support the idea that any patriotism from individual, family, or 
+always from structure; this statement is somewhat convincing in characterization of the city-state as a 
+fatalist construct. These points made go to support the idea that any patriotism from individual, family, or 
 sub-collective alike must be constantly questionable. The must-be statement is rather silly because it is 
 obviously possible in practice: a peasant can challenge the decree of a hierarch and a court defendant can 
 fling feces at judge or jurors around them, but the host of self-interest in these situations is very much 
@@ -5603,13 +5603,13 @@ the same identity/ies. A prominent communist saying, as method to achieve a kind
 above any conception of identity except for that of the lone and vulnerable individual, is that sufferings 
 must be evenly distributed, which is laughable on these two premises: many human beings believe in this 
 despite how communist their political spirit is, and the focus of effort in equalizing by use of 
-distributive processes for suffering means that the thought of excellence in refinement and improvement is 
+distributive processes for suffering implies the thought of excellence in refinement and improvement is 
 deprioritized and devalued, out of the absence of mention for anything else. This, of course, is simplistic 
 reasoning, an acknowledgement that betrays the inevitability of casualties in human spirit and body through 
 the course of the process that is principle of individuation. Broad statements are most memorable markers of 
 ideology, true, and are indicative of a justice in understanding from the top, the pinnacle that is human 
-design and will short from the level of God, to the bottom that is individualized accountings. The naive 
-and active approach is to participate and engage in activity without knowledge of definition that describes 
+will and existence short from the level of God, to the bottom that is individualized accountings. The naive 
+and active approach is to participate and engage in activity without knowing definition that describes 
 the characteristics of the pertaining human beings, an approach that most likely yields less of a mental 
 burden from instance to next instance of time. The rationale goes, why entertain the "whole" as parts when 
 the "whole" is what is before the eyes and what the eyes see and the brain thinks is the truth of reality 
@@ -5617,4 +5617,6 @@ for the individual? Only through the course of events can this thinking be chall
 experienced that stipulate the controlling vitality of the ever-present underlying definitions; in the 
 social context, the resolution term is "cultural sensitivity". There is already a "whole", yes? Why define 
 into piecewise generalities, imprecise all the same, except to resolve a "whole" hopefully into a better 
-"whole" through making from some will? 
+"whole" through making from some will? The idea of luck is intertwined with independent agency and in 
+the technical realm, implies a perspective devoid or dismissive of knowledge on the pertinent processes 
+and truths. 
