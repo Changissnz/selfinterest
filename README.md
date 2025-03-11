@@ -5600,8 +5600,8 @@ of human beings that feel forced to engage in collective bargaining as resolutio
 and then when interests become more privatized and individuated in the form of companies and such, the 
 standard for the collective naturally has to centralize around other matters but supposedly for the same 
 identity/ies. A prominent communist saying, as method to achieve a kind of equality that transcends 
-above any conception of identity except for that of the individual, is that sufferings must be evenly 
-distributed, which is laughable on these two premises: many human beings believe in this despite how 
-communist their political spirit is, and the focus of effort in equalizing by use of distributive processes 
-for suffering means that the thought of excellence in refinement and improvement is deprioritized and 
-devalued, out of the absence of mention for anything else. 
+above any conception of identity except for that of the lone and vulnerable individual, is that sufferings 
+must be evenly distributed, which is laughable on these two premises: many human beings believe in this 
+despite how communist their political spirit is, and the focus of effort in equalizing by use of 
+distributive processes for suffering means that the thought of excellence in refinement and improvement is 
+deprioritized and devalued, out of the absence of mention for anything else. 
