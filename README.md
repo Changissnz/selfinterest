@@ -5605,5 +5605,7 @@ must be evenly distributed, which is laughable on these two premises: many human
 despite how communist their political spirit is, and the focus of effort in equalizing by use of 
 distributive processes for suffering means that the thought of excellence in refinement and improvement is 
 deprioritized and devalued, out of the absence of mention for anything else. This, of course, is simplistic 
-reasoning and betrays casualties of human spirit and body through the course of the process that is 
-principle of individuation. 
+reasoning and betrays the inevitability of casualties in human spirit and body through the course of the 
+process that is principle of individuation. Broad statements are most memorable markers of ideology, true, 
+and are indicative of a justice in understanding from the top, the pinnacle that is human design and will 
+short from the level of God, to the bottom that is individualized accountings. 
