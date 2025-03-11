@@ -5573,32 +5573,32 @@ local aristocrats and the stupidity of the base alike. Also imagine the state th
 system without officially supporting the definitions borne from blood and inheritance, in turn, is one that 
 cannot provide enough structure for the individual to thrive as such without the individual having to take 
 additional steps to excel as a "political animal" or a "social creature" in these environments of loose 
-definition, albeit of representation still as officious as local tradition. And this is truthfully very 
-defeatist to the enactment of egalitarianism since wealth and rank are ever-present yet not as structured in 
-definitional expression for objective recognition. The dynamism in capability from this obscurantist 
-mannerism is a strength for a powerful city-state and also the point of culprit where many willful wrongs, 
-by this same city-state in decline, manifest from as compensation to continue the structure while 
-maintaining the freedom of expression not always from structure; this statement is somewhat convincing in 
-characterization of the city-state as a fatalist construct. These points made go to support the idea that 
-any patriotism from individual, family, or sub-collective alike must be constantly questionable. The must-be 
-statement is rather silly because it is obviously possible in practice: a peasant can challenge the decree 
-of a hierarch and a court defendant can fling feces at judge or jurors around them, but the host of 
-self-interest in these situations is very much subject to the consequence of prescription from officiated 
-structure. Some interesting facts are in order of being written on the category of minority in any nation. 
-Meritocratic systems are not enough to guarantee livelihood to minorities, and neither do ethno-mob 
-formations revolving around the respective minority identity. A minority group is always associated with the 
-specific minority identity, and oftentimes is delineated into a regional territory as a result of state 
-failures and commandment alike. Minority individuals that are able to excel in some meritocratic system so 
-that they can go on their own way may still return to this base identity of minority, due to lack of 
-processes that aid in their independent autonomy. This is precisely why ethnicity is an unresolved question 
-for many individuals of nations either homogenous or heterogenous in ethnic makeup. What is the guaranteed 
-principle that preserves any one minority identity in a land, after the minority group's collective 
-grievances of political and financial affliction are no longer prevalent in the ideology that bounds them 
-into the same self-recognized group? Occupation and assimilation are two avenues where members of the 
-minority identity can dissipate into. And on this question, a famous saying is "misery loves company". The 
-saying speaks loudly to the insufferable nature of human beings that feel forced to engage in collective 
-bargaining as resolution for shared grievances, and then when interests become more privatized and 
-individuated in the form of companies and such, the standard for these collectives naturally have to 
+definition, albeit of representation still as officious as local tradition. The existence of qualities of 
+wealth and rank being ever-present, yet not as structured in definitional expression for objective 
+recognition, is truthfully very defeatist to the enactment of egalitarianism. The dynamism in capability 
+from this obscurantist mannerism is a strength for a powerful city-state and also the point of culprit where 
+many willful wrongs, by this same city-state in decline, manifest from as compensation to continue the 
+structure while maintaining the freedom of expression not always from structure; this statement is somewhat 
+convincing in characterization of the city-state as a fatalist construct. These points made go to support 
+the idea that any patriotism from individual, family, or sub-collective alike must be constantly 
+questionable. The must-be statement is rather silly because it is obviously possible in practice: a peasant 
+can challenge the decree of a hierarch and a court defendant can fling feces at judge or jurors around them, 
+but the host of self-interest in these situations is very much subject to the consequence of prescription 
+from officiated structure. Some interesting facts are in order of being written on the category of minority 
+in any nation. Meritocratic systems are not enough to guarantee livelihood to minorities, and neither do 
+ethno-mob formations revolving around the respective minority identity. A minority group is always 
+associated with the specific minority identity, and oftentimes is delineated into a regional territory as a 
+result of state failures and commandment alike. Minority individuals that are able to excel in some 
+meritocratic system so that they can go on their own way may still return to this base identity of minority, 
+due to lack of processes that aid in their independent autonomy. This is precisely why ethnicity is an 
+unresolved question for many individuals of nations either homogenous or heterogenous in ethnic makeup. What 
+is the guaranteed principle that preserves any one minority identity in a land, after the minority group's 
+collective grievances of political and financial affliction are no longer prevalent in the ideology that 
+bounds them into the same self-recognized group? Occupation and assimilation are two avenues where members 
+of the minority identity can dissipate into. And on this question, a famous saying is "misery loves 
+company". The saying speaks loudly to the insufferable nature of human beings that feel forced to engage in 
+collective bargaining as resolution for shared grievances, and then when interests become more privatized 
+and individuated in the form of companies and such, the standard for these collectives naturally have to 
 centralize around other matters but supposedly for the same identity/ies. A prominent communist saying, as 
 method to achieve a kind of equality that transcends above any conception of identity except for that of the 
 lone and vulnerable individual, is that sufferings must be evenly distributed, which is laughable on these 
