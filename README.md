@@ -5558,8 +5558,8 @@ produce and provide in adequacy, and it is impossible for them to produce and pr
 of prejudice emerges as a result past the physical livelihood, and the prejudice in practice almost always 
 has a tribal representation to it. When the individual is failed by both the family and the state, there is 
 problem for them there and problem that follows them forever. It is really a toss-up between the family and 
-the state in terms of performance because both institutions utilize definitions predominantly defined by 
-themselves, in order to cohesively persist. Power games such as petty squabbles over property are 
+the state in terms of performance, because both institutions utilize definitions predominantly defined by 
+themselves in order to cohesively persist. Power games such as petty squabbles over property are 
 frequent occasions in families of wealth above the median, phenomena rich for dramatization showcasing the 
 intrigue in the reactive intersection of family and wealth. A state that allows for freedom of the 
 individual seldom takes the additional step of sponsoring any arbitrary individual without also observing 
