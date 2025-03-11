@@ -5533,7 +5533,7 @@ the world of petty trifles and pathological tendencies that operate on good prin
 of artificial axioms. This statement is rather presumptuous but must be put forth as an unequivocal 
 acknowledgment of the plasticity of decision-making by human nature and the structured industrial complex 
 designed for human labor and rule. To elaborate, plasticity of sentient decision-making is a factual 
-attribute that corresponds to intelligence, dependent on knowing instead of merely existing in choice. One 
+attribute that corresponds to intelligence, demanding to know instead of merely exist in choice. One 
 that claims their decision-making processes do not have a non-null plasticity must be confident in their 
 statement, first and foremost, and for their claim to have any perceptible persuasion for proof via 
 correspondence to their actions, they must also not be under the influence of factors positioned to force 
