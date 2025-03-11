@@ -5574,6 +5574,8 @@ borne from blood and inheritance, in turn, cannot provide enough structure for t
 as such without the individual having to take additional steps to excel as a "political animal" or a "social 
 creature" in these environments of loose definition, albeit of representation still as officious as 
 local traditionalism. And this is truthfully very defeatist to the enactment of egalitarianism since 
-wealth and rank are ever-present yet not as structured in definitional expression for objective recognition. 
-This goes to support the idea that any patriotism from individual, family, or sub-collective alike must be 
-constantly questionable. 
+wealth and rank are ever-present yet not as structured in definitional expression for objective recognition.
+The dynamism in capability from this obscurantist mannerism is a strength for a powerful city-state and 
+also the point of culprit where many willful wrongs are done as compensation to continue the structure 
+while maintaining the freedom of expression not always from structure. These points made go to support the 
+idea that any patriotism from individual, family, or sub-collective alike must be constantly questionable. 
