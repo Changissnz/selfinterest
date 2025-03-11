@@ -5623,8 +5623,8 @@ and truths. The belief in luck has at least the virtue of mental efficiency in m
 Ardent believers of luck seldom construct empirical statements for why they think and do in their ways. 
 There is no direct and simple correlation between belief in luck and recklessness. However, characters that 
 stand by luck in their successes typically also have a confidence to them that is very personal, sort of 
-like a trait of theirs associated with them due to the individuated conditions surrounding and of them. 
-These characters dare, then succeed, and then explain to others that it was all luck that made them. This is 
+like a trait associated with them due to the individuated conditions surrounding and of them. These 
+characters dare, then succeed, and then explain to others that it was all luck that made them. This is 
 perplexing to reason and feel about. There is a strange mixture of claimed selflessness (luck was the agent, 
 not them) and arrogance (luck was on their side to help them be the domineering agent at the end). Luck is 
 also not very scientific, for it forsakes the drive of self-interest to understand possibly for control and 
