@@ -5665,3 +5665,8 @@ way. She and this other guy invited me over one time, and I declined. I told the
 "against my views because I'm Nestorian Christian" (psss... I'm not). And then when I attended 
 higher education, I was introduced to the Mauryan Subculture of Higher Existence, which I think 
 was splendid because it demonstrates the kind of initiatives that the Thracian haven offered me. 
+I still remember that one Chinese woman at my alma mater. Oh how wonderful she was in sight and 
+how my feelings reciprocated through my heart but because of my views, according to her, I was 
+unfit. I accepted her rejection with dignity, and dedicated my years since then learning the 
+most powerful form of Mandarin Chinese: the 32nd version of the Northern Supernova Dragon's 
+Tiger Fist. 
