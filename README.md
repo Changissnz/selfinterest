@@ -5549,10 +5549,10 @@ nation-state. The present is what matters to the order of function. The present 
 directly controllable in the temporal span. For those uncomfortable with interpretations of the past that 
 challenge present affairs and prohibitive of wants for the future, given the resources made possible if only 
 the will for self-interest is adamant enough of a chaser, attention is demanded to fixate on the present. 
-Sentient beings have a natural tendency for order out of the artificial axioms they use to reason, and only 
-when the order falls short of satisfying self-interest in evident and incontrovertible ways, such as famine, 
-are there official sorts of acknowledgment. It is a fact that the institution of family falls short in 
-some ways. The institution of family is the miniaturized version of a republican system; typically, the 
+Sentient beings have a natural tendency towards order out of the artificial axioms they use to reason, and 
+only when the order falls short of satisfying self-interest in evident and incontrovertible ways, such as 
+famine, are there official sorts of acknowledgment. It is a fact that the institution of family falls short 
+in some ways. The institution of family is the miniaturized version of a republican system; typically, the 
 parents are the de facto representatives of family. It is rare for family to be independently able to 
 produce and provide in adequacy, and it is impossible for them to produce and provide in full. Only a kind 
 of prejudice emerges as a result past the physical livelihood, and the prejudice in practice almost always 
