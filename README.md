@@ -5576,6 +5576,8 @@ creature" in these environments of loose definition, albeit of representation st
 local traditionalism. And this is truthfully very defeatist to the enactment of egalitarianism since 
 wealth and rank are ever-present yet not as structured in definitional expression for objective recognition.
 The dynamism in capability from this obscurantist mannerism is a strength for a powerful city-state and 
-also the point of culprit where many willful wrongs are done as compensation to continue the structure 
-while maintaining the freedom of expression not always from structure. These points made go to support the 
-idea that any patriotism from individual, family, or sub-collective alike must be constantly questionable. 
+also the point of culprit where many willful wrongs, by this same city-state in decline, are done as 
+compensation to continue the structure while maintaining the freedom of expression not always from 
+structure; this statement is somewhat convincing in characterizing the city-state as a fatalist construct. 
+These points made go to support the idea that any patriotism from individual, family, or sub-collective 
+alike must be constantly questionable. 
