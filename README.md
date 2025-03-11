@@ -5610,4 +5610,5 @@ the course of the process that is principle of individuation. Broad statements a
 ideology, true, and are indicative of a justice in understanding from the top, the pinnacle that is human 
 design and will short from the level of God, to the bottom that is individualized accountings. The naive 
 and active approach is to participate and engage in activity without knowledge of definition that describes 
-the characteristics of the pertaining human beings. 
+the characteristics of the pertaining human beings, an approach that yields less of a mental burden from 
+instance to next instance of time. 
