@@ -5554,7 +5554,7 @@ self-interest in evident and incontrovertible ways, such as famine, for there to
 acknowledgment. It is a fact that the institution of family falls very short in many ways. The institution 
 of family is the miniaturized version of a republican system; typically, the parents are the de facto 
 representatives of family. It is rare for family to be able to produce and provide in adequacy, and it 
-is impossible to produce and provide in full. Only a kind of prejudice emerges as a result past the 
+is impossible for them to produce and provide in full. Only a kind of prejudice emerges as a result past the 
 physical livelihood, and the prejudice in practice almost always has a tribal representation to it. When the 
 individual is failed by both the family and the state, there is problem for them there and problem that 
 follows them forever. It is really a toss-up between the family and the state in terms of performance 
@@ -5568,7 +5568,7 @@ privileged stay privileged and intellect becomes crippled lest it is fixed for t
 higher-ranked, is a frequent counter-example against the state by a certain kind of republican type that 
 prioritizes the local zone of their immediate control and their self-identification. Imagine the countless 
 lives that knew the world is a world bigger than their locality, yet they were as tied to the land as the 
-grass that grows on it, and perhaps subject to the tyranny of local aristocrats and the stupidity of the 
+grass that grows on it, and perhaps subjected to the tyranny of local aristocrats and the stupidity of the 
 base alike. Also imagine the state that can provide a social system without officially supporting the 
 definitions borne from blood and inheritance, in turn, cannot provide enough structure for the individual to 
 thrive as such without the individual having to take additional steps to excel as a "political animal" or a 
@@ -5576,11 +5576,11 @@ thrive as such without the individual having to take additional steps to excel a
 local traditionalism. And this is truthfully very defeatist to the enactment of egalitarianism since 
 wealth and rank are ever-present yet not as structured in definitional expression for objective recognition.
 The dynamism in capability from this obscurantist mannerism is a strength for a powerful city-state and 
-also the point of culprit where many willful wrongs, by this same city-state in decline, are done as 
+also the point of culprit where many willful wrongs, by this same city-state in decline, manifest from as 
 compensation to continue the structure while maintaining the freedom of expression not always from 
 structure; this statement is somewhat convincing in characterizing the city-state as a fatalist construct. 
 These points made go to support the idea that any patriotism from individual, family, or sub-collective 
 alike must be constantly questionable. The must-be statement is rather silly because it is obviously 
-practice in practice: a peasant can challenge the decree of a hierarch and a court defendant can fling 
+possible in practice: a peasant can challenge the decree of a hierarch and a court defendant can fling 
 feces at judge or jurors around them, but the self-interest in these situations is very much subject to the 
 consequence of prescription through officiated structure. 
