@@ -5631,3 +5631,25 @@ the agent, not them) and arrogance (luck was on their side to help them be the d
 end). Luck is also not very scientific, for it forsakes the drive of self-interest to understand, possibly 
 for control, and it also implies that the agent of luck is a participant in some game of probabilities 
 forced onto them. 
+
+## END NOTE 
+
+I was able to write this book in the time where I did not have much going for me in terms of labor. 
+The writing was not more trouble for me than it is worth (zero dollars), I swear. I would like to 
+dedicate this sentence to thanking the dead people I mentioned in this writing. The book would not 
+be the same without them. I would have written more for this book, but I am expecting duty calls. 
+I have been rehearsing in the mirror, puffing up my chest to look buff and strong. The duty calls 
+are not for any L.E.O. position. I wanted to be a police officer back when I was younger. When I 
+started making friends with blacks and hispanics, my outlook changed (no influence whatsoever, I 
+swear). Then when I was in high school, I skipped out on all the dances and football games because 
+I would rather go to the toilet at exactly the same time those dances and football games occurred. 
+On each occasion, I would sit down on the toilet, and continuously defecate until the event ended. 
+Hours every time, oh my hardships. Then I would go to bed and think about my half-Korean bastard 
+relative who is living the life in the Eastern Hemisphere. I regret eating more Pho bowls than sushi 
+plates in my lifetime, as of this time. I completely blame socio-economics for this, and I mean no 
+disrespect. I believe in peace, justice, and democracy (I swear). I still remember the Moor that 
+I wrestled back in high school, and so completely lost. A real icon to me. I remember how I knew 
+I was weaker and slower, so I tried doing a Flying Tiger's Dragon Kick at him. He caught my foot 
+while I was mid-air, and then slam-dunked me on the mat like a basketball shot by Michael Jordan. 
+He sure showed me. Now I don't ever do violence anymore after that. I believe in peace, justice, 
+and democracy (I swear). 
