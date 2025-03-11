@@ -5537,7 +5537,7 @@ attribute that corresponds to intelligence, dependent on knowing instead of mere
 that claims their decision-making processes do not have a non-null plasticity must be confident in their 
 statement, first and foremost, and for their claim to have any perceptible persuasion for proof via 
 correspondence to their actions, they must also not be under the influence of factors positioned to force 
-their hand into contradiction. It is a fact of relativity that many human beings have a stronger sense of 
+their hand into contradiction. It is a fact of relativity that some human beings have a stronger sense of 
 conviction than others. However, as with many matters under the lens of empirical judgment, the personality 
 trait of conviction, in exemplification, is praised partially because of its likeness to loyalty but then 
 criticized for the stubbornness and ignorance that particular fatalists, doomed to fail, associate with it. 
@@ -5551,8 +5551,8 @@ challenge present affairs and prohibitive of wants for the future, given the res
 the will for self-interest is adamant enough of a chaser, attention is demanded to fixate on the present. 
 Sentient beings have a natural tendency for order out of the artificial axioms they use to reason, and only 
 when the order falls short of satisfying self-interest in evident and incontrovertible ways, such as famine, 
-are there official sorts of acknowledgment. It is a fact that the institution of family falls very short in 
-many ways. The institution of family is the miniaturized version of a republican system; typically, the 
+are there official sorts of acknowledgment. It is a fact that the institution of family falls short in 
+some ways. The institution of family is the miniaturized version of a republican system; typically, the 
 parents are the de facto representatives of family. It is rare for family to be independently able to 
 produce and provide in adequacy, and it is impossible for them to produce and provide in full. Only a kind 
 of prejudice emerges as a result past the physical livelihood, and the prejudice in practice almost always 
