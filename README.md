@@ -5610,5 +5610,8 @@ the course of the process that is principle of individuation. Broad statements a
 ideology, true, and are indicative of a justice in understanding from the top, the pinnacle that is human 
 design and will short from the level of God, to the bottom that is individualized accountings. The naive 
 and active approach is to participate and engage in activity without knowledge of definition that describes 
-the characteristics of the pertaining human beings, an approach that yields less of a mental burden from 
-instance to next instance of time. 
+the characteristics of the pertaining human beings, an approach that most likely yields less of a mental 
+burden from instance to next instance of time. The rationale goes, why entertain the "whole" as parts when 
+the "whole" is what is before the eyes and what the eyes see and the brain thinks is the truth of reality 
+for the individual? Only through the course of events can this thinking be challenged by the phenomena 
+experienced that stipulate the controlling vitality of the ever-present underlying definitions. 
