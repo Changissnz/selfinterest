@@ -5591,4 +5591,7 @@ into a regional territory as a result of state failures and commandment alike. M
 are able to excel in some meritocratic system so that they can go on their own way may still return to 
 this base identity of minority, due to lack of processes that aid in their independent autonomy. This is 
 precisely why ethnicity is an unresolved question for many individuals of nations both homogenous or 
-heterogenous in ethnic makeup. 
+heterogenous in ethnic makeup. What is the principle guaranteed to preserve any one minority identity 
+in a land, after the minority group's collective grievances of political and financial infliction are 
+no longer prevalent in the ideology that bounds them into the same self-recognized group? Occupation 
+and assimilation are two avenues where members of the minority identity can dissipate into. 
