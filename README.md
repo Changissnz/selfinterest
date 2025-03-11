@@ -5621,12 +5621,12 @@ resolve a "whole" hopefully into a better "whole" through making from some will?
 intertwined with independent agency and, in the technical realm, implies a perspective devoid or dismissive 
 of knowledge on the pertinent processes and truths. The belief in luck has at least the virtue of mental 
 efficiency in matters of complication. Ardent believers of luck seldom construct empirical statements for 
-why they think and do in their ways. There is no direct and simple correlation between belief in luck and 
-recklessness. However, characters that stand by luck in their successes typically also have a confidence to 
-them that is very personal, sort of like a trait associated with them due to the individuated conditions 
-surrounding and of them. These characters dare, then succeed, and then explain to others that it was all 
-luck that made them. This is perplexing to reason and feel about. There is a strange mixture of claimed 
-selflessness (luck was the agent, not them) and arrogance (luck was on their side to help them be the 
-domineering agent at the end). Luck is also not very scientific, for it forsakes the drive of self-interest 
-to understand, possibly for control, and it also implies that the agent of luck is a participant in some 
-game of probabilities forced onto them. 
+why they think and do in their ways alongside outcomes. There is no direct and simple correlation between 
+belief in luck and recklessness. However, characters that stand by luck in their successes typically also 
+have a confidence to them that is very personal, sort of like a trait associated with them due to the 
+individuated conditions surrounding and of them. These characters dare, then succeed, and then explain to 
+others that it was all luck that made them. This is perplexing to reason and feel about. There is a strange 
+mixture of claimed selflessness (luck was the agent, not them) and arrogance (luck was on their side to help 
+them be the domineering agent at the end). Luck is also not very scientific, for it forsakes the drive of 
+self-interest to understand, possibly for control, and it also implies that the agent of luck is a 
+participant in some game of probabilities forced onto them. 
