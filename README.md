@@ -5543,10 +5543,12 @@ conviction, in exemplification, is praised partially because of its likeness to 
 for the stubbornness and ignorance that particular fatalists, doomed to fail, associate with it. 
 Performance-based judgment is seldom entirely comprehensive yet declared conclusive for societal and 
 industrial arrangements, so there is a definite surreal quality attached to the recognition of facts of 
-relativity that answer questions on metaphysical bodies such as loyalty and conviction. As an aside, patriotism must be questionable because the patriot must definitively express a kind of fealty to their 
+relativity that answer questions on metaphysical bodies such as loyalty and conviction. As an aside, 
+patriotism must be questionable because the patriot must definitively express a kind of fealty to their 
 nation-state. The present is what matters to the order of function. The present is the only category 
 directly controllable in the temporal span. For those uncomfortable with interpretations of the past that 
-challenge present affairs and prohibitive of wants for the future, given the resources made possible if only the will for self-interest is adamant enough of a chaser, attention is demanded to fixate on the present. 
+challenge present affairs and prohibitive of wants for the future, given the resources made possible if only 
+the will for self-interest is adamant enough of a chaser, attention is demanded to fixate on the present. 
 Sentient beings have a natural tendency for order out of the artificial axioms they use to reason, and only 
 when the order falls short of satisfying self-interest in evident and incontrovertible ways, such as famine, 
 are there official sorts of acknowledgment. It is a fact that the institution of family falls very short in 
