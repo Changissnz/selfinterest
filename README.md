@@ -5582,5 +5582,5 @@ always from structure; this statement is somewhat convincing in characterizing t
 construct. These points made go to support the idea that any patriotism from individual, family, or 
 sub-collective alike must be constantly questionable. The must-be statement is rather silly because it is 
 obviously possible in practice: a peasant can challenge the decree of a hierarch and a court defendant can 
-fling feces at judge or jurors around them, but the self-interest in these situations is very much subject 
-to the consequence of prescription from officiated structure. 
+fling feces at judge or jurors around them, but the host of self-interest in these situations is very much 
+subject to the consequence of prescription from officiated structure. 
