@@ -5554,14 +5554,14 @@ self-interest in evident and incontrovertible ways, such as famine, for there to
 acknowledgment. It is a fact that the institution of family falls very short in many ways. The institution 
 of family is the miniaturized version of a republican system; typically, the parents are the de facto 
 representatives of family. It is rare for family to be able to produce and provide in adequacy, and it 
-is impossible to produce and provide in full. Only a kind of prejudice emerges as a result, and the 
-prejudice in practice almost always has a tribal representation to it. When the individual is failed by both 
-the family and the state, there is problem for them there and problem that follows them forever. It is 
-really a toss-up between the family and the state in terms of performance because both institutions utilize 
-definitions predominantly defined by themselves, in order to cohesively persist. The petty squabbles over 
-property and power games are frequent occasions in families of wealth above the median, phenomena rich for 
-dramatization showcasing the intrigue in the reactive intersection of family and wealth. A state that allows 
-for freedom of the individual seldom takes the additional step of sponsoring any arbitrary individual 
-without also observing their familial background as well as achievements in wealth and other areas. This 
-goes to support the idea that any patriotism from individual, family, or sub-collective alike must be 
-questionable. 
+is impossible to produce and provide in full. Only a kind of prejudice emerges as a result past the 
+physical livelihood, and the prejudice in practice almost always has a tribal representation to it. When the 
+individual is failed by both the family and the state, there is problem for them there and problem that 
+follows them forever. It is really a toss-up between the family and the state in terms of performance 
+because both institutions utilize definitions predominantly defined by themselves, in order to cohesively 
+persist. The petty squabbles over property and power games are frequent occasions in families of wealth 
+above the median, phenomena rich for dramatization showcasing the intrigue in the reactive intersection of 
+family and wealth. A state that allows for freedom of the individual seldom takes the additional step of 
+sponsoring any arbitrary individual without also observing their familial background as well as achievements 
+in wealth and other areas. This goes to support the idea that any patriotism from individual, family, or 
+sub-collective alike must be questionable. 
