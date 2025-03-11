@@ -5551,4 +5551,11 @@ for the future, given the resources made possible if only the will for self-inte
 chaser, attention is demanded to fixate on the present. Sentient beings have a natural tendency to order 
 out of the artificial axioms they use to reason, and only when the order falls short of satisfying 
 self-interest in evident and incontrovertible ways, such as famine, for there to be official sorts of 
-acknowledgment. 
+acknowledgment. It is a fact that the institution of family falls very short in many ways. The institution 
+of family is the miniaturized version of a republican system; typically, the parents are the de facto 
+representatives of family. It is rare for family to be able to produce and provide in adequacy, and it 
+is impossible to produce and provide in full. Only a kind of prejudice emerges as a result, and the 
+prejudice in practice almost always has a tribal representation to it. When the individual is failed by both 
+the family and the state, there is problem for them there and problem that follows them forever. It is 
+really a toss-up between the family and the state in terms of performance because both institutions utilize 
+definitions predominantly defined by themselves in order to cohesively persist. 
