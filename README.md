@@ -5527,10 +5527,10 @@ those that do not believe in willful revisitation to the closest there is to the
 matters, are easy to replicate into common expression. In the practical sense, the common expressions are 
 applied in the appropriate settings, and to be in the appropriate settings for these applications must be by 
 circumstantial uniqueness, from the principle of individuation. Therefore, no wise sentient one can really 
-convert their wisdom into all specificities of the whole split into infinitesimal space, and are believed by 
-the political of elite and base alike to may have a greater likelihood of outliving their usefulness to the 
-world of petty trifles and pathological tendencies that operate on good principle, partially consisting of 
-artificial axioms. This statement is rather presumptuous but must be put forth as an unequivocal 
+allocate their wisdom into all specificities of the whole split into infinitesimal space, and are believed 
+by the political of elite and base alike to may have a greater likelihood of outliving their usefulness to 
+the world of petty trifles and pathological tendencies that operate on good principle, partially consisting 
+of artificial axioms. This statement is rather presumptuous but must be put forth as an unequivocal 
 acknowledgment of the plasticity of decision-making by human nature and the structured industrial complex 
 designed for human labor and rule. To elaborate, plasticity of sentient decision-making is a factual 
 attribute that corresponds to intelligence, dependent on knowing instead of merely existing in choice. One 
