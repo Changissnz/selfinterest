@@ -5569,9 +5569,11 @@ higher-ranked, is a frequent counter-example against the state by a certain kind
 prioritizes the local zone of their immediate control and their self-identification. Imagine the countless 
 lives that know the world is a world bigger than their locality, yet they are as tied to the land as the 
 grass that grows on it, and maybe subject to the tyranny of local aristocrats and the stupidity of the 
-base alike. Also imagine that the state that can provide a social system without supporting the definitions 
+base alike. Also imagine the state that can provide a social system without supporting the definitions 
 borne from blood and inheritance, in turn, cannot provide enough structure for the individual to thrive 
-as such without having to take additional steps to excel as a "political animal" or a "social creature" 
-in these environments of loose definition, albeit of representation still as officious as the local 
-traditionalism. This goes to support the idea that any patriotism from individual, family, or sub-collective 
-alike must be constantly questionable. 
+as such without the individual having to take additional steps to excel as a "political animal" or a "social 
+creature" in these environments of loose definition, albeit of representation still as officious as the 
+local traditionalism; and this is truthfully very defeatist to the enactment of egalitarianism since 
+wealth and rank are ever-present yet not as structured in definition for objective recognition. This goes to 
+support the idea that any patriotism from individual, family, or sub-collective alike must be constantly 
+questionable. 
