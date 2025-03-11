@@ -5626,4 +5626,6 @@ their successes typically also have a confidence to them that is very personal, 
 theirs associated with them due to the individuated conditions surrounding and of them. These characters 
 dare, then succeed, and then explain to others that it was all luck that made them. This is perplexing to 
 reason and feel about. There is an ominous mixture of claimed selflessness (luck was the agent, not them) 
-and arrogance (luck was on their side to help them be the domineering agent at the end). 
+and arrogance (luck was on their side to help them be the domineering agent at the end). Luck is also 
+not very scientific, for it forsakes the drive to understand possibly for control and it also implies 
+that the agent of luck is a participant in some game of probabilities forced onto them. 
