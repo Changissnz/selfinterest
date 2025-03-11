@@ -5672,4 +5672,9 @@ then learning the most powerful form of Mandarin Chinese: the 32nd version of th
 Dragon's Tiger Fist. I feel the spiritual change within me, without me from this dedication. 
 More confident. More steadfast. Cooler, taller, and more cordial-spoken. I believe more in 
 peace now from that. I believe more in justice, and last but not least, I believe more in 
-democracy. 
+democracy. All these beliefs of mine I am stating brings me to a fond memory of a colleague 
+during my college years. She really was the quirkiest person ever (I swear). Every time before 
+she walked into the classroom, she would take out a container with a French word on it, and 
+blow powder from it everywhere to make herself look like a fairy princess. And then the Chinese 
+guys would butt in front of me while I was in line, and encircle her, whispering in her ear 
+and all that during class. And that is why I still feel really Chinese still, to this day. 
