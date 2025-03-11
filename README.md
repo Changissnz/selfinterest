@@ -5573,7 +5573,7 @@ base alike. Also imagine the state that can provide a social system without offi
 definitions borne from blood and inheritance, in turn, is one that cannot provide enough structure for the 
 individual to thrive as such without the individual having to take additional steps to excel as a "political 
 animal" or a "social creature" in these environments of loose definition, albeit of representation still as 
-officious as local traditionalism. And this is truthfully very defeatist to the enactment of egalitarianism 
+officious as local tradition. And this is truthfully very defeatist to the enactment of egalitarianism 
 since wealth and rank are ever-present yet not as structured in definitional expression for objective 
 recognition. The dynamism in capability from this obscurantist mannerism is a strength for a powerful 
 city-state and also the point of culprit where many willful wrongs, by this same city-state in decline, 
@@ -5608,4 +5608,6 @@ deprioritized and devalued, out of the absence of mention for anything else. Thi
 reasoning, an acknowledgement that betrays the inevitability of casualties in human spirit and body through 
 the course of the process that is principle of individuation. Broad statements are most memorable markers of 
 ideology, true, and are indicative of a justice in understanding from the top, the pinnacle that is human 
-design and will short from the level of God, to the bottom that is individualized accountings. 
+design and will short from the level of God, to the bottom that is individualized accountings. The naive 
+and active approach is to participate and engage in activity without knowledge of definition that describes 
+the characteristics of the pertaining human beings. 
