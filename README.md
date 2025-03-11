@@ -5652,4 +5652,9 @@ I wrestled back in high school, and so completely lost. A real icon to me. I rem
 I was weaker and slower, so I tried doing a Flying Tiger's Dragon Kick at him. He caught my foot 
 while I was mid-air, and then slam-dunked me on the mat like a basketball shot by Michael Jordan. 
 He sure showed me. Now I don't ever do violence anymore after that. I believe in peace, justice, 
-and democracy (I swear). 
+and democracy (I swear). I love the education institutions that I have attended. My high school 
+reminds me of the hours I sat on the toilet during the football games and dances. And my alma 
+mater was a haven for Thracians. Now, I do not want you, the reader, to jump to conclusions. 
+The Thracians I interacted with there were very open people. Moors, Ukrainians, Germanics, 
+Chinese. Everyone was as welcome there as the defecation I gladly produced into the toilet during 
+those high school football games and dances. 
