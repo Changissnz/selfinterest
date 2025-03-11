@@ -5598,7 +5598,7 @@ bounds them into the same self-recognized group? Occupation and assimilation are
 of the minority identity can dissipate into. And on this question, a famous saying is "misery loves 
 company". The saying speaks loudly to the insufferable nature of human beings that feel forced to engage in 
 collective bargaining as resolution for shared grievances, and then when interests become more privatized 
-and individuated in the form of companies and such, the standard for these collectives naturally have to 
+and individuated in the form of companies and such, the standard for these collectives naturally has to 
 centralize around other matters but supposedly for the same identity/ies. A prominent communist saying, as 
 method to achieve a kind of equality that transcends above any conception of identity except for that of the 
 lone and vulnerable individual, is that sufferings must be evenly distributed, which is laughable on these 
@@ -5610,8 +5610,8 @@ of casualties in human spirit and body through the course of the process that is
 Broad statements are most memorable markers of ideology, true, and are indicative of a justice in 
 understanding from the top, the pinnacle that is human will and existence short from the level of God, to 
 the bottom that is individualized accountings. The naive and active approach is to participate and engage in 
-activity without knowing definition that describes the characteristics of the pertaining human beings, an 
-approach that most likely yields less of a mental burden from instance to next instance of time. The 
+activity without first knowing definition that describes the characteristics of the pertaining human beings, 
+an approach that most likely yields less of a mental burden from instance to next instance of time. The 
 rationale goes, why entertain the "whole" as parts when the "whole" is what is before the eyes and what the 
 eyes see and the brain thinks is the truth of reality for the individual? Only through the course of events 
 can this thinking be challenged by the phenomena experienced that stipulate the controlling vitality of the 
