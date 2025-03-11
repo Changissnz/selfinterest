@@ -5572,8 +5572,8 @@ grass that grows on it, and maybe subject to the tyranny of local aristocrats an
 base alike. Also imagine the state that can provide a social system without supporting the definitions 
 borne from blood and inheritance, in turn, cannot provide enough structure for the individual to thrive 
 as such without the individual having to take additional steps to excel as a "political animal" or a "social 
-creature" in these environments of loose definition, albeit of representation still as officious as the 
-local traditionalism; and this is truthfully very defeatist to the enactment of egalitarianism since 
-wealth and rank are ever-present yet not as structured in definition for objective recognition. This goes to 
-support the idea that any patriotism from individual, family, or sub-collective alike must be constantly 
-questionable. 
+creature" in these environments of loose definition, albeit of representation still as officious as 
+local traditionalism. And this is truthfully very defeatist to the enactment of egalitarianism since 
+wealth and rank are ever-present yet not as structured in definitional expression for objective recognition. 
+This goes to support the idea that any patriotism from individual, family, or sub-collective alike must be 
+constantly questionable. 
