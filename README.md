@@ -5598,35 +5598,35 @@ into the same self-recognized group? Occupation and assimilation are two avenues
 minority identity can dissipate into. And on this question, a famous saying is "misery loves company". The 
 saying speaks loudly to the insufferable nature of human beings that feel forced to engage in collective 
 bargaining as resolution for shared grievances, and then when interests become more privatized and 
-individuated in the form of companies and such, the standard for the collective naturally has to centralize 
-around other matters but supposedly for the same identity/ies. A prominent communist saying, as method to 
-achieve a kind of equality that transcends above any conception of identity except for that of the lone and 
-vulnerable individual, is that sufferings must be evenly distributed, which is laughable on these two 
-premises: many human beings believe in this despite how communist their political spirit is, and the focus 
-of effort in equalizing by use of distributive processes for suffering implies the thought of excellence in 
-refinement and improvement is deprioritized and devalued, out of the absence of mention for anything else. 
-This, of course, is simplistic reasoning, an acknowledgement that betrays the inevitability of casualties in 
-human spirit and body through the course of the process that is principle of individuation. Broad statements 
-are most memorable markers of ideology, true, and are indicative of a justice in understanding from the top, 
-the pinnacle that is human will and existence short from the level of God, to the bottom that is 
-individualized accountings. The naive and active approach is to participate and engage in activity without 
-knowing definition that describes the characteristics of the pertaining human beings, an approach that most 
-likely yields less of a mental burden from instance to next instance of time. The rationale goes, why 
-entertain the "whole" as parts when the "whole" is what is before the eyes and what the eyes see and the 
-brain thinks is the truth of reality for the individual? Only through the course of events can this thinking 
-be challenged by the phenomena experienced that stipulate the controlling vitality of the ever-present 
-underlying definitions; in the social context, the resolution term is "cultural sensitivity". There is 
-already a "whole", yes? Why define into piecewise generalities, imprecise all the same, except to resolve a 
-"whole" hopefully into a better "whole" through making from some will? The idea of luck is intertwined with 
-independent agency and in the technical realm, implies a perspective devoid or dismissive of knowledge on 
-the pertinent processes and truths. The belief in luck has at least the virtue of mental efficiency in 
-matters of complication. Ardent believers of luck seldom construct empirical statements for why they think 
-and do in their ways. There is no direct and simple correlation between belief in luck and recklessness. 
-However, characters that stand by luck in their successes typically also have a confidence to them that is 
-very personal, sort of like a trait associated with them due to the individuated conditions surrounding and 
-of them. These characters dare, then succeed, and then explain to others that it was all luck that made 
-them. This is perplexing to reason and feel about. There is a strange mixture of claimed selflessness (luck 
-was the agent, not them) and arrogance (luck was on their side to help them be the domineering agent at the 
-end). Luck is also not very scientific, for it forsakes the drive of self-interest to understand possibly 
-for control and it also implies that the agent of luck is a participant in some game of probabilities forced 
-onto them. 
+individuated in the form of companies and such, the standard for these collectives naturally have to 
+centralize around other matters but supposedly for the same identity/ies. A prominent communist saying, as 
+method to achieve a kind of equality that transcends above any conception of identity except for that of the 
+lone and vulnerable individual, is that sufferings must be evenly distributed, which is laughable on these 
+two premises: many human beings believe in this despite how communist their political spirit is, and the 
+focus of effort in equalizing by use of distributive processes for suffering implies the thought of 
+excellence in refinement and improvement is deprioritized and devalued, out of the absence of mention for 
+anything else. This, of course, is simplistic reasoning, an acknowledgement that betrays the inevitability 
+of casualties in human spirit and body through the course of the process that is principle of individuation. 
+Broad statements are most memorable markers of ideology, true, and are indicative of a justice in 
+understanding from the top, the pinnacle that is human will and existence short from the level of God, to 
+the bottom that is individualized accountings. The naive and active approach is to participate and engage in 
+activity without knowing definition that describes the characteristics of the pertaining human beings, an 
+approach that most likely yields less of a mental burden from instance to next instance of time. The 
+rationale goes, why entertain the "whole" as parts when the "whole" is what is before the eyes and what the 
+eyes see and the brain thinks is the truth of reality for the individual? Only through the course of events 
+can this thinking be challenged by the phenomena experienced that stipulate the controlling vitality of the 
+ever-present underlying definitions; in the social context, the resolution term is "cultural sensitivity". 
+There is already a "whole", yes? Why define into piecewise generalities, imprecise all the same, except to 
+resolve a "whole" hopefully into a better "whole" through making from some will? The idea of luck is 
+intertwined with independent agency and, in the technical realm, implies a perspective devoid or dismissive 
+of knowledge on the pertinent processes and truths. The belief in luck has at least the virtue of mental 
+efficiency in matters of complication. Ardent believers of luck seldom construct empirical statements for 
+why they think and do in their ways. There is no direct and simple correlation between belief in luck and 
+recklessness. However, characters that stand by luck in their successes typically also have a confidence to 
+them that is very personal, sort of like a trait associated with them due to the individuated conditions 
+surrounding and of them. These characters dare, then succeed, and then explain to others that it was all 
+luck that made them. This is perplexing to reason and feel about. There is a strange mixture of claimed 
+selflessness (luck was the agent, not them) and arrogance (luck was on their side to help them be the 
+domineering agent at the end). Luck is also not very scientific, for it forsakes the drive of self-interest 
+to understand possibly for control and it also implies that the agent of luck is a participant in some game 
+of probabilities forced onto them. 
