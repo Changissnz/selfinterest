@@ -5520,27 +5520,27 @@ The principle of individuation places understanding into dubious acceptance, and
 because of uncertainties regarding the future, since present matters are unique by infinitessimal 
 partitioning, although there remains the question of the present reality without the cognitive will to 
 partition it. Specification of the actual, from principles intent for capturing the universal characteristic 
-of some question/s, can be defiant even if the actual is removed from sentient will capable of resistance 
-and antagonism. What is "understanding" of a matter that cannot be understood in adequacy but "acceptance" 
-of the matter's from-oneself attribute? The generalities from the wise ones, it is thought by those that do 
-not believe in willful revisitation to the closest there is to the innermost essence of matters, are easy to 
-replicate into common expression. In the practical sense, the common expressions are applied in the 
-appropriate settings, and to be in the appropriate settings for these applications must be by circumstantial 
-uniqueness, from the principle of individuation. Therefore, no wise sentient one can really convert their 
-wisdom into the specificities of the whole split into infinitesimal space, and are believed by the political 
-of elite and base alike to may have a greater likelihood of outliving their usefulness to the world of petty 
-trifles and pathological tendencies that operate on good principle, partially consisting of artificial 
-axioms. This statement is rather presumptuous but must be put forth as an unequivocal acknowledgment of the 
-plasticity of decision-making by human nature and the structured industrial complex designed for human labor 
-and rule. To elaborate, plasticity of sentient decision-making is a factual attribute that corresponds to 
-intelligence, dependent on knowing instead of merely existing in choice. One that claims their 
-decision-making processes do not have a non-null plasticity must be confident in their statement, first 
-and foremost, and for their claim to have any perceptible persuasion for proof via correspondence to their 
-actions, they must also not be under the influence of factors positioned to force their hand into 
-contradiction. It is a fact of relativity that many human beings have a stronger sense of conviction than 
-others. However, as with many matters under the lens of empirical judgment, the personality trait of 
-conviction, in exemplification, is praised partially because of its likeness to loyalty but then criticized 
-for the stubbornness and ignorance that particular fatalists, doomed to fail, associate with it. 
+of some question/s, can be defiant to principle even if the actual is removed from sentient will capable of 
+resistance and antagonism. What is "understanding" of a matter that cannot be understood in adequacy but 
+"acceptance" of the matter's from-oneself attribute? The generalities from the wise ones, it is thought by 
+those that do not believe in willful revisitation to the closest there is to the innermost essence of 
+matters, are easy to replicate into common expression. In the practical sense, the common expressions are 
+applied in the appropriate settings, and to be in the appropriate settings for these applications must be by 
+circumstantial uniqueness, from the principle of individuation. Therefore, no wise sentient one can really 
+convert their wisdom into the specificities of the whole split into infinitesimal space, and are believed by 
+the political of elite and base alike to may have a greater likelihood of outliving their usefulness to the 
+world of petty trifles and pathological tendencies that operate on good principle, partially consisting of 
+artificial axioms. This statement is rather presumptuous but must be put forth as an unequivocal 
+acknowledgment of the plasticity of decision-making by human nature and the structured industrial complex 
+designed for human labor and rule. To elaborate, plasticity of sentient decision-making is a factual 
+attribute that corresponds to intelligence, dependent on knowing instead of merely existing in choice. One 
+that claims their decision-making processes do not have a non-null plasticity must be confident in their 
+statement, first and foremost, and for their claim to have any perceptible persuasion for proof via 
+correspondence to their actions, they must also not be under the influence of factors positioned to force 
+their hand into contradiction. It is a fact of relativity that many human beings have a stronger sense of 
+conviction than others. However, as with many matters under the lens of empirical judgment, the personality 
+trait of conviction, in exemplification, is praised partially because of its likeness to loyalty but then 
+criticized for the stubbornness and ignorance that particular fatalists, doomed to fail, associate with it. 
 Performance-based judgment is seldom entirely comprehensive yet declared conclusive for societal and 
 industrial arrangements, so there is a definite surreal quality attached to the recognition of facts of 
 relativity that answer questions on metaphysical bodies such as loyalty and conviction. As an aside, 
