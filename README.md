@@ -5595,12 +5595,13 @@ heterogenous in ethnic makeup. What is the guaranteed principle that preserves a
 in a land, after the minority group's collective grievances of political and financial infliction are 
 no longer prevalent in the ideology that bounds them into the same self-recognized group? Occupation 
 and assimilation are two avenues where members of the minority identity can dissipate into. And on this 
-question, a famous saying is "misery loves company"; the saying speaks loudly to the insufferable nature 
+question, a famous saying is "misery loves company". The saying speaks loudly to the insufferable nature 
 of human beings that feel forced to engage in collective bargaining as resolution for shared grievances, 
 and then when interests become more privatized and individuated in the form of companies and such, the 
 standard for the collective naturally has to centralize around other matters but supposedly for the same 
-identity/ies. A prominent communist saying, as methodology to achieve a kind of equality that transcends 
-above any conception of identity except for that of the individual, sufferings must be evenly distributed, 
-which is laughable on these two premises: many human beings believe in this despite how communist their 
-political spirit is, and the focus of effort in equalizing by use of distributive processes for suffering 
-means that the thought of excellence in refinement and improvement is deprioritized and devalued. 
+identity/ies. A prominent communist saying, as method to achieve a kind of equality that transcends 
+above any conception of identity except for that of the individual, is that sufferings must be evenly 
+distributed, which is laughable on these two premises: many human beings believe in this despite how 
+communist their political spirit is, and the focus of effort in equalizing by use of distributive processes 
+for suffering means that the thought of excellence in refinement and improvement is deprioritized and 
+devalued, out of the absence of mention for anything else. 
