@@ -5628,5 +5628,5 @@ surrounding and of them. These characters dare, then succeed, and then explain t
 luck that made them. This is perplexing to reason and feel about. There is a strange mixture of claimed 
 selflessness (luck was the agent, not them) and arrogance (luck was on their side to help them be the 
 domineering agent at the end). Luck is also not very scientific, for it forsakes the drive of self-interest 
-to understand possibly for control and it also implies that the agent of luck is a participant in some game 
-of probabilities forced onto them. 
+to understand, possibly for control, and it also implies that the agent of luck is a participant in some 
+game of probabilities forced onto them. 
