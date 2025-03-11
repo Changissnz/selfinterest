@@ -5670,4 +5670,6 @@ how my feelings reciprocated through my heart but because of my views, according
 unfit for her affection. I accepted her rejection with dignity, and dedicated my years since 
 then learning the most powerful form of Mandarin Chinese: the 32nd version of the Northern Supernovan 
 Dragon's Tiger Fist. I feel the spiritual change within me, without me from this dedication. 
-More confident. More steadfast. Cooler, taller, and more cordial-spoken. 
+More confident. More steadfast. Cooler, taller, and more cordial-spoken. I believe more in 
+peace now from that. I believe more in justice, and last but not least, I believe more in 
+democracy. 
