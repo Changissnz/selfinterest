@@ -5662,4 +5662,6 @@ on this girl, right. She broke my heart with rejection after claiming that I was
 (psss... I'm not). Then I moved on. I was strong enough to move on and there was another 
 girl during high school. Then I discovered her Costa Rican connections in a kind of awkward 
 way. She and this other guy invited me over one time, and I declined. I told them it was 
-"against my views because I'm Nestorian Christian" (psss... I'm not). 
+"against my views because I'm Nestorian Christian" (psss... I'm not). And then when I attended 
+higher education, I was introduced to the Mauryan Subculture of Higher Existence, which I think 
+was splendid because it demonstrates the kind of initiatives that the Thracian haven offered me. 
