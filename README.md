@@ -5583,4 +5583,12 @@ construct. These points made go to support the idea that any patriotism from ind
 sub-collective alike must be constantly questionable. The must-be statement is rather silly because it is 
 obviously possible in practice: a peasant can challenge the decree of a hierarch and a court defendant can 
 fling feces at judge or jurors around them, but the host of self-interest in these situations is very much 
-subject to the consequence of prescription from officiated structure. 
+subject to the consequence of prescription from officiated structure. Some interesting facts are in order 
+of being written on the category of minority in any nation. Meritocratic systems are not enough to guarantee 
+livelihood to minorities, and neither do mob formations revolving around the respective minority identity. 
+A minority group is always associated with the specific minority identity, and oftentimes is delineated 
+into a regional territory as a result of state failures and commandment alike. Minority individuals that 
+are able to excel in some meritocratic system so that they can go on their own way may still return to 
+this base identity of minority, due to lack of processes that aid in their independent autonomy. This is 
+precisely why ethnicity is an unresolved question for many individuals of nations both homogenous or 
+heterogenous in ethnic makeup. 
