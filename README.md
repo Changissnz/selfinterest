@@ -5580,4 +5580,7 @@ also the point of culprit where many willful wrongs, by this same city-state in 
 compensation to continue the structure while maintaining the freedom of expression not always from 
 structure; this statement is somewhat convincing in characterizing the city-state as a fatalist construct. 
 These points made go to support the idea that any patriotism from individual, family, or sub-collective 
-alike must be constantly questionable. 
+alike must be constantly questionable. The must-be statement is rather silly because it is obvious that 
+a peasant can challenge the decree of a hierarch and a court defendant can fling feces at judge or 
+jurors around them, but the self-interest in these situations are very much subject to the consequence of 
+prescription through officiated structure. 
