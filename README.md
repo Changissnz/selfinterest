@@ -5516,7 +5516,7 @@ recipients with dealing with the effects instead of resolving the cause.
 
 ## More on philosophies of self-interest #75 
 
-The principle of individuation places understanding into dubious acceptance, and this is not necessarily 
+The principle of individuation steers understanding into dubious acceptance, and this is not necessarily 
 because of uncertainties regarding the future, since present matters are unique by infinitessimal 
 partitioning, although there remains the question of the present reality without the cognitive will to 
 partition it. Specification of the actual, from principles intent for capturing the universal characteristic 
