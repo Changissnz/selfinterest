@@ -5563,5 +5563,15 @@ persist. Power games such as the petty squabbles over property are frequent occa
 above the median, phenomena rich for dramatization showcasing the intrigue in the reactive intersection of 
 family and wealth. A state that allows for freedom of the individual seldom takes the additional step of 
 sponsoring any arbitrary individual without also observing their familial background as well as achievements 
-in wealth and other areas. This goes to support the idea that any patriotism from individual, family, or 
-sub-collective alike must be constantly questionable. 
+in wealth and other areas. The theme of the state deforming individual volition, so that the present 
+privileged stay privileged and intellect becomes crippled lest it is fixed for the utility of the 
+higher-ranked, is a frequent counter-example against the state by a certain kind of republican type that 
+prioritizes the local zone of their immediate control and their self-identification. Imagine the countless 
+lives that know the world is a world bigger than their locality, yet they are as tied to the land as the 
+grass that grows on it, and maybe subject to the tyranny of local aristocrats and the stupidity of the 
+base alike. Also imagine that the state that can provide a social system without supporting the definitions 
+borne from blood and inheritance, in turn, cannot provide enough structure for the individual to thrive 
+as such without having to take additional steps to excel as a "political animal" or a "social creature" 
+in these environments of loose definition, albeit of representation still as officious as the local 
+traditionalism. This goes to support the idea that any patriotism from individual, family, or sub-collective 
+alike must be constantly questionable. 
