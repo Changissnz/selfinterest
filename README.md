@@ -5619,4 +5619,8 @@ social context, the resolution term is "cultural sensitivity". There is already 
 into piecewise generalities, imprecise all the same, except to resolve a "whole" hopefully into a better 
 "whole" through making from some will? The idea of luck is intertwined with independent agency and in 
 the technical realm, implies a perspective devoid or dismissive of knowledge on the pertinent processes 
-and truths. 
+and truths. The belief in luck has at least the virtue of efficiency in matters of complication. Ardent 
+believers of luck seldom construct empirical statements for why they think and do. There is no direct and 
+simple correlation between belief in luck and recklessness. However, characters that stand by luck in 
+their successes typically also have a confidence to them that is very personal, sort of like a trait of 
+theirs associated with them due to the individuated conditions surrounding and of them. 
