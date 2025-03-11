@@ -5585,21 +5585,21 @@ obviously possible in practice: a peasant can challenge the decree of a hierarch
 fling feces at judge or jurors around them, but the host of self-interest in these situations is very much 
 subject to the consequence of prescription from officiated structure. Some interesting facts are in order 
 of being written on the category of minority in any nation. Meritocratic systems are not enough to guarantee 
-livelihood to minorities, and neither do mob formations revolving around the respective minority identity. 
-A minority group is always associated with the specific minority identity, and oftentimes is delineated 
-into a regional territory as a result of state failures and commandment alike. Minority individuals that 
-are able to excel in some meritocratic system so that they can go on their own way may still return to 
-this base identity of minority, due to lack of processes that aid in their independent autonomy. This is 
-precisely why ethnicity is an unresolved question for many individuals of nations either homogenous or 
-heterogenous in ethnic makeup. What is the guaranteed principle that preserves any one minority identity 
-in a land, after the minority group's collective grievances of political and financial affliction are 
-no longer prevalent in the ideology that bounds them into the same self-recognized group? Occupation 
-and assimilation are two avenues where members of the minority identity can dissipate into. And on this 
-question, a famous saying is "misery loves company". The saying speaks loudly to the insufferable nature 
-of human beings that feel forced to engage in collective bargaining as resolution for shared grievances, 
-and then when interests become more privatized and individuated in the form of companies and such, the 
-standard for the collective naturally has to centralize around other matters but supposedly for the same 
-identity/ies. A prominent communist saying, as method to achieve a kind of equality that transcends 
+livelihood to minorities, and neither do ethno-mob formations revolving around the respective minority 
+identity. A minority group is always associated with the specific minority identity, and oftentimes is 
+delineated into a regional territory as a result of state failures and commandment alike. Minority 
+individuals that are able to excel in some meritocratic system so that they can go on their own way may 
+still return to this base identity of minority, due to lack of processes that aid in their independent 
+autonomy. This is precisely why ethnicity is an unresolved question for many individuals of nations either 
+homogenous or heterogenous in ethnic makeup. What is the guaranteed principle that preserves any one 
+minority identity in a land, after the minority group's collective grievances of political and financial 
+affliction are no longer prevalent in the ideology that bounds them into the same self-recognized group? 
+Occupation and assimilation are two avenues where members of the minority identity can dissipate into. And 
+on this question, a famous saying is "misery loves company". The saying speaks loudly to the insufferable 
+nature of human beings that feel forced to engage in collective bargaining as resolution for shared 
+grievances, and then when interests become more privatized and individuated in the form of companies and 
+such, the standard for the collective naturally has to centralize around other matters but supposedly for 
+the same identity/ies. A prominent communist saying, as method to achieve a kind of equality that transcends 
 above any conception of identity except for that of the lone and vulnerable individual, is that sufferings 
 must be evenly distributed, which is laughable on these two premises: many human beings believe in this 
 despite how communist their political spirit is, and the focus of effort in equalizing by use of 
