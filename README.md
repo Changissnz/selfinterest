@@ -5567,8 +5567,8 @@ in wealth and other areas. The theme of the state deforming individual volition,
 privileged stay privileged and intellect becomes crippled lest it is fixed for the utility of the 
 higher-ranked, is a frequent counter-example against the state by a certain kind of republican type that 
 prioritizes the local zone of their immediate control and their self-identification. Imagine the countless 
-lives that know the world is a world bigger than their locality, yet they are as tied to the land as the 
-grass that grows on it, and maybe subject to the tyranny of local aristocrats and the stupidity of the 
+lives that knew the world is a world bigger than their locality, yet they were as tied to the land as the 
+grass that grows on it, and perhaps subject to the tyranny of local aristocrats and the stupidity of the 
 base alike. Also imagine the state that can provide a social system without supporting the definitions 
 borne from blood and inheritance, in turn, cannot provide enough structure for the individual to thrive 
 as such without the individual having to take additional steps to excel as a "political animal" or a "social 
