@@ -5681,7 +5681,7 @@ in her ear and all that during class, making meowing sounds. And that is why I s
 Chinese still, to this day. But I know my accent of Mandarin Chinese is very different from the 
 mainland Mandarin speakers. It has a Russian tinge to it and the way I speak it evokes emotions 
 of evanescence, is what I've been told. I also like to thank all the people I've met since 2000 
-that have stayed in contact with me, asking me if I am okay, inspecting me for any long-lasting 
+that have stayed in contact with me, always asking me if I am okay, inspecting me for any long-lasting 
 scars mental, physical, or otherwise. The town people. The city people. Priests... even. It's a 
 great world and a great country, which is surprising when I look at it from a monetary perspective. 
 People cannot seem to spare an extra penny. But everyone seems to care so much. I'm about to turn 
@@ -5692,4 +5692,8 @@ the next British billionaire with his Saudi wife making so much money and being 
 Valley (this region is terrific for technology), that kind of stuff. What a blast, really, and a joy. 
 It's a messy world. If my country does not want me working in their services, that's fine. The jobs 
 can go to Mexicans. I can waste my life away watching television and talking to the friends I have 
-over social media. 
+over social media. Sometimes, I head over to the local pub and have a beer or two. The One Republic 
+cops are always there, flirting with the democratic socialist bartenders. Really sweet to watch, 
+love at first sight, that kind of thing. It also gives me hope and faith that people get along just 
+fine in this great and gorgeous country, which is terrific really so much that I cannot expect any 
+better, truly. 
