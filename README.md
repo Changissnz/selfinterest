@@ -5710,19 +5710,19 @@ this one guy, a Latin for sure but probably not from Mexico. He would always tel
 about how bad life was in Florida (the heat alone is disgusting): "Richard, Florida is way better than 
 the Caribbean and Latin America." And I believe him, based on what I've read on their industries. There 
 was also another guy that always called himself Irish. He ended up becoming a Bitcoin entrepreneur, so 
-I'm not surprised if he is actually an Australian disguised as Irish. A guy from high school had 
+I would not be surprised if he is actually an Australian disguised as Irish. A guy from high school had 
 Polish immigrants for parents. Strange dude. I remember on several occasions, he would quietly tell me 
 he had a thing for tall black guys. I was like, that's your thing, brotha, that's your thing. I tried 
 joining the US Army right after high school and got flat-out rejected after walking in on two dudes 
 making out with each other. I was like "oh well", I can go find something else to do to be a patriot. 
-Shifting topics to this last tidbit of mine, I sometimes think I should go to church more often. But 
-after one of my Latin friends told me I had to get converted to Catholicism to be a real Christian, 
-and then move to Spain so I can be a translator for the Philippines, that was when I put my foot 
-down and declined to go with him to church. Anyway, one of the great things about the USA is that 
-there are options to do and participate in nothing. I can die an idiot, in other words, in a state 
-with too many retirees and their old politics and old money (Florida). Nothing wrong with that, it's 
-just that things get old. Life. It moves too fast when you want things to last, and drags on forever 
-for you to find happiness never. Well, this is it. I'm done writing this shit. Look, I'm not trying 
-to hurt nobody's feelings, just saying, okay?! 
+You know how Athenians are. If you can't join them, serve them. Shifting topics to this last tidbit 
+of mine, I sometimes think I should go to church more often. But after one of my Latin friends told me 
+I had to get converted to Catholicism to be a real Christian, and then move to Spain so I can be a 
+translator for the Philippines, that was when I put my foot down and declined to go with him to church. 
+Anyway, one of the great things about the USA is that there are options to do and participate in nothing. 
+I can die an idiot, in other words, in a state with too many retirees and their old politics and old money 
+(Florida). Nothing wrong with that, it's just that things get old. Life. It moves too fast when you want 
+things to last, and drags on forever for you to find happiness never. Well, this is it. I'm done writing 
+this shit. Look, I'm not trying to hurt nobody's feelings, just saying, okay?! 
 
 ~the end~ 
