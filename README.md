@@ -5686,15 +5686,15 @@ scars mental, physical, or otherwise. The town people. The city people. Priests.
 great world and a great country, which is surprising when I look at it from a monetary perspective. 
 People cannot seem to spare an extra penny. But everyone seems to care so much. I'm about to turn 
 on the television and watch the daily firestorm on there. It's about the only thing I look forward 
-to anymore. Every time I turn on the television, it's always about somebody getting raped, crying, 
-old men talking to teenage girls, really beefy Macedonians shooting M-16's in an apocalyptic world, 
-another British billionaire with his Saudi wife making so much money and being so happy in Silicon 
-Valley (this region is terrific for technology), that kind of stuff. What a blast, really, and a joy. 
-It's a messy world. If my country does not want me working in their services, that's fine. The jobs 
-can go to Mexicans. I can waste my life away watching television and talking to the friends I have 
-over social media. Sometimes, I head over to the local pub and have a beer or two. The One Republic 
-cops are always there, flirting with the democratic socialist bartenders. Really sweet to watch, 
-love at first sight, that kind of thing. Maintaining the order for justice and democracy, together 
+to anymore. Every time I turn on the television, it's always about somebody getting raped, women 
+and children crying, old men talking to teenage girls, really beefy Macedonians shooting M-16's in an 
+apocalyptic world, another British billionaire with his Saudi wife making so much money and being so 
+happy in Silicon Valley (this region is terrific for technology), that kind of stuff. What a blast, 
+really, and a joy. It's a messy world. If my country does not want me working in their services, that's 
+fine. The jobs can go to Mexicans. I can waste my life away watching television and talking to the 
+friends I have over social media. Sometimes, I head over to the local pub and have a beer or two. The 
+One Republic cops are always there, flirting with the democratic socialist bartenders. Really sweet to 
+watch, love at first sight, that kind of thing. Maintaining the order for justice and democracy, together 
 in the name of peace. It also gives me hope and faith that people get along just fine in this great 
 and gorgeous country, which is terrific really so much that I cannot expect any better, truly. Last 
 but not least, I'd like to thank my parents because I had to move back into their household after 
