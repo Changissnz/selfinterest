@@ -5688,7 +5688,7 @@ People cannot seem to spare an extra penny. But everyone seems to care so much. 
 on the television and watch the daily firestorm on there. It's about the only thing I look forward 
 to anymore. Every time I turn on the television, it's always about somebody getting raped, crying, 
 old men talking to teenage girls, really beefy Macedonians shooting M-16's in an apocalyptic world, 
-the next British billionaire with his Saudi wife making so much money and being so happy in Silicon 
+another British billionaire with his Saudi wife making so much money and being so happy in Silicon 
 Valley (this region is terrific for technology), that kind of stuff. What a blast, really, and a joy. 
 It's a messy world. If my country does not want me working in their services, that's fine. The jobs 
 can go to Mexicans. I can waste my life away watching television and talking to the friends I have 
