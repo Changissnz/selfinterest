@@ -5702,6 +5702,8 @@ the job market failed me. This country (USA) is really fantastic with the libert
 know for a fact if this was China, Vietnam, Indonesia, Russia, Brazil, India, Iran, Spain, Australia, 
 those countries, there would be a hole in the back of my mother's head and she dead in a ditch for 
 being so outrageously blasphemous every day to everyone around her. And my father would probably just 
-be another kiss-ass communist. 
+be another kiss-ass communist. In Florida, my father was able to be better than a standard kiss-ass 
+communist because he doesn't have as many Russian friends as the typical Cuban immigrant into Florida. 
+I'd like to take the time now to write about some of my friends in my youth back in Florida. 
 
 ~the end~ 
