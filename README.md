@@ -5697,9 +5697,11 @@ cops are always there, flirting with the democratic socialist bartenders. Really
 love at first sight, that kind of thing. Maintaining the order for justice and democracy, together 
 in the name of peace. It also gives me hope and faith that people get along just fine in this great 
 and gorgeous country, which is terrific really so much that I cannot expect any better, truly. Last 
-but not least, I'd like to thank my parents because I had to move back in with them after the job 
-market failed me. This country (USA) is really fantastic with the liberties it grants. I know for a 
-fact if this was China, Vietnam, Indonesia, Russia, Brazil, India, Iran, Spain, Australia, those 
-countries, there would be a hole in the back of my mother's head and she dead in a ditch for being 
-so outrageously blasphemous every day to everyone around her. And my father would probably just 
+but not least, I'd like to thank my parents because I had to move back into their household after 
+the job market failed me. This country (USA) is really fantastic with the liberties it grants. I 
+know for a fact if this was China, Vietnam, Indonesia, Russia, Brazil, India, Iran, Spain, Australia, 
+those countries, there would be a hole in the back of my mother's head and she dead in a ditch for 
+being so outrageously blasphemous every day to everyone around her. And my father would probably just 
 be another kiss-ass communist. 
+
+~the end~ 
