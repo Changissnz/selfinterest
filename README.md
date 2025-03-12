@@ -5708,8 +5708,12 @@ communist because he doesn't have as many Russian friends as the typical Cuban i
 I'd like to take the time now to write about some of my friends in my youth back in Florida. There was 
 this one guy, a Latin for sure but probably not from Mexico. He would always tell me when I complained 
 about how bad life was in Florida (the heat alone is disgusting): "Richard, Florida is way better than 
-the Caribbean and Latin America." And I believe him, based on what I've read on their industries. 
-Shifting topics to this last tidbit of mine, I sometimes think I should go to church more often. But 
+the Caribbean and Latin America." And I believe him, based on what I've read on their industries. There 
+was also another guy that always called himself Irish. He ended up becoming a Bitcoin entrepreneur, so 
+I'm not surprised if he is actually an Australian disguised as Irish. A guy from high school had 
+Polish immigrants for parents. Strange dude. I remember on several occasions, he would quietly tell me 
+he had a thing for tall black guys. I was like, that's your thing, brotha, that's your thing. Shifting 
+topics to this last tidbit of mine, I sometimes think I should go to church more often. But 
 after one of my Latin friends told me I had to get converted to Catholicism to be a real Christian, 
 and then move to Spain so I can be a translator for the Philippines, that was when I put my foot 
 down and declined to go with him to church. Anyway, one of the great things about the USA is that 
