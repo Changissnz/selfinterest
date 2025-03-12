@@ -5723,6 +5723,7 @@ Anyway, one of the great things about the USA is that there are options to do an
 I can die an idiot, in other words, in a state with too many retirees and their old politics and old money 
 (Florida). Nothing wrong with that, it's just that things get old. Life. It moves too fast when you want 
 things to last, and drags on forever for you to find happiness never. Well, this is it. I'm done writing 
-this shit. Look, I'm not trying to hurt nobody's feelings, just saying, okay?! 
+this shit. Look, I'm not trying to hurt nobody's feelings, just saying, okay?! Take things as they may 
+be, believe what you believe. 
 
 ~the end~ 
