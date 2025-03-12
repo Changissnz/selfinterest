@@ -5698,12 +5698,24 @@ love at first sight, that kind of thing. Maintaining the order for justice and d
 in the name of peace. It also gives me hope and faith that people get along just fine in this great 
 and gorgeous country, which is terrific really so much that I cannot expect any better, truly. Last 
 but not least, I'd like to thank my parents because I had to move back into their household after 
-the job market failed me. This country (USA) is really fantastic with the liberties it grants. I 
-know for a fact if this was China, Vietnam, Indonesia, Russia, Brazil, India, Iran, Spain, Australia, 
-those countries, there would be a hole in the back of my mother's head and she dead in a ditch for 
-being so outrageously blasphemous every day to everyone around her. And my father would probably just 
-be another kiss-ass communist. In Florida, my father was able to be better than a standard kiss-ass 
+the job market failed me. This country (USA) is really fantastic with the liberties and democracies 
+it grants. I know for a fact if this was China, Vietnam, Indonesia, Russia, Brazil, India, Iran, Spain, 
+Australia, those countries, there would be a hole in the back of my mother's head and she dead in a ditch 
+for being so outrageously blasphemous every day to everyone around her. Here in the USA, she's mainly an 
+indoors type just like over half of all women in the USA. And my father would probably just be 
+another kiss-ass communist. In Florida, my father was able to be better than a standard kiss-ass 
 communist because he doesn't have as many Russian friends as the typical Cuban immigrant into Florida. 
-I'd like to take the time now to write about some of my friends in my youth back in Florida. 
+I'd like to take the time now to write about some of my friends in my youth back in Florida. There was 
+this one guy, a Latin for sure but probably not from Mexico. He would always tell me when I complained 
+about how bad life was in Florida (the heat alone is disgusting): "Richard, Florida is way better than 
+the Caribbean and Latin America." And I believe him, based on what I've read on their industries. 
+Shifting topics to this last tidbit of mine, I sometimes think I should go to church more often. But 
+after one of my Latin friends told me I had to get converted to Catholicism to be a real Christian, 
+and then move to Spain so I can be a translator for the Philippines, that was when I put my foot 
+down and declined to go with him to church. Anyway, one of the great things about the USA is that 
+there are options to do and participate in nothing. I can die an idiot, in other words, in a state 
+with too many retirees and their old politics and old money (Florida). Nothing wrong with that, it's 
+just that things get old. Life. It moves too fast when you want things to last, and drags on forever 
+to let you find happiness never. 
 
 ~the end~ 
