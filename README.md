@@ -5716,6 +5716,6 @@ down and declined to go with him to church. Anyway, one of the great things abou
 there are options to do and participate in nothing. I can die an idiot, in other words, in a state 
 with too many retirees and their old politics and old money (Florida). Nothing wrong with that, it's 
 just that things get old. Life. It moves too fast when you want things to last, and drags on forever 
-to let you find happiness never. 
+for you to find happiness never. 
 
 ~the end~ 
