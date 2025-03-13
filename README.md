@@ -1,4 +1,5 @@
-# Self-Interest 
+# Self-Interest
+### Copyright 2025 Richard Pham
 
 The uniqueness of all philosophies of self-interest are but 
 a fraction of any other. In more words, that is because this 
